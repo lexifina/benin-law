@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 12 avril 2000 Par le Président de la République, Chefde l'Etat, Chef du Gouvernement, Mathieu KEREKOU.- Ministre d'Etat, Chargé de la Coordination de l'Action Gouvernementale, du Plan, du Développement et de la Promotion de l'Emploi, __---===.i'/ Iim~ Bruno AMOUSSOU.- Le Garde des Sceaux Ministre de la Justice, de la Législation et des Droits de l'Homme, J ..·Oh H. GNONLONFOUN --- '- Le Ministre des Finances et de l'Ec mIe, ./' vL Abdoulaye DIb-TCHANE AMJ>LIATIONS : PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 MECCAG-PDPE 4 MJLDH 4 MFE 4 AUTRES MINISTERES 16 SGG 4 DGBM-DCF-DGTCP- DGDDI-DGID 5 BN-DAN-DLC 3 GCONB-DCCT-INSAE 3 BCP-CSM-IGAA 3 UNB-FASJEP-ENA 3 JO 1.-
