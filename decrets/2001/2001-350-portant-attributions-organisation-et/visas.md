@@ -1,0 +1,10 @@
+# Visas
+
+'a'-r'+r ItIt,t]llt,tQUI,t t)u I]t,tNIN t,t{ttst t) I,l,NC ti D l,) t,r\ tili I,( J It LI Q tr I,i Vu Yrr \/rl vu Yu l)ltcltli'l' N o2001 -,'r5O I)U 6 l.iltl]1'};l'lBIlt,; :lOO'l Itrrtarrt irttlibtrtiorrs, olgarrisation c( lbrrct iorrrrcrrrclt I tlLr IVlirristèr'c rlc I'lr:tlrrstlic, tlrr (hrnrrrcrcc cl rlc la I)trrntotiorr tlc l'lirrrlrloi.
+LIi t,t{ltst DItN't' I)tù l,A tilt,t,uut.l Q u ti,.
+ctilit. Dti L'ti't'A'I, cr I til. l)U (;ou\/tiRNt4M tiN'l'.
+\/rr lt Loi No 90{32 tlu I I cléccnrbrc 1990 porlant constitution dc Ir l(éputrliquc tlLr Bérrin;
+\/u la Prociantation lc 03 avril 2001 par la CoLrr CorrstitLrtiotrlcllc dcs résultats tléllnitil's dc I'élcctiorr prési<lcrrticllc rlu 22 nrals 2t)01 ;
+lc Décrct N" 2001-170 tlu 07 r,ai 2001 gxrrtanr. conrpositiorr du couvcrrrcnrcnt ; lc I)écrct N" 9(r-402 tltr Ill scplctrbrr.: 199(r lix:rrrt los sltrroturcs tlo la I)r'ôsitlcrrcc 11: la l{(publiquc ct dcs Ministèrcs;
+lc Décrct N" 2000-562 tltt l6 trovcttthrc 2000 gxrrtarrt atllihtrtiorrs, organi.satitrrr ct ltrrrction rrcrncrrt dLr Ministèrc tlc l'intlustric ct rlcs I,ctilos ct IVloycurros [,)rrtr-cpriscs ; lc Décrct N" 93-427 du 25 scptcnrbrc 1998 portaut attributi.rr-s, organisatiorr ct l;o,ctionnenrc,[ du Mi,istère du Corrr,rcrcc, <lc I'Artisanat ct tlu'l.ourisrrrc; lc Décrct N" 99-513 du 02 rrovcurbrc 1999 porta.t attritrutiorrs, o'ga.isation ct lottctionnctttcnt du Ministèrc Chargé rlc la Coortlination dc l'Acliorr Gou vcrrrcrrrcn t;r lc, tlu Plarr, tlu Dévcloppenrclrt ct dc la lrr.ornotion tlc I'Entploi;
+Sur propositiolr tlu Minjstrc tlc l'lntlLIstlic, tlu Cornrnclco ct tlc la l)rolrotiorr tlc l,llrrploi ; I-c Corrscil dcs Ministrcs crrlcntlu cn sa sélrncc tlu 22 Àoûl 2(X) L , DIIS ]\IISSIONS I''T I)IiS AT'[I{IBI]'TIONs DU MINISl'IiItIi Àrticlc I "' : Le Ministèrc d nrissions de concevoir, d'or Gouverncmcnt dans lcs dom e I'Industrie, tlu Contnrercc ct dc la Pronrotion de l,Ertploi a poLu. ganiser, dc progratnlllor ct d'assurer'l'exécution dc la politique clu aines de l'indLrstric, du commcrcc ct dc la proruotion dc I'cnrfloi.
