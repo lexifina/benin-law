@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 24 novenbre 2004 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le lVlinistre des Finances et de l'Economie, Gréqoire LAOUROU.- Le Ministre des Travaux Publics et des Transports, Mathieu KEREKOU.- Le ttilinistre de la Fonctlon Publique, du Travail et de la Réforme Administrative, Bou car AR N Le Ministre de l'Enseignement Supérieur et de la Recherche Scientifique, Ahamed AKOBI OsséniK. BAGNAN Ampliations : PR 6 AN 4 CS 2CC 2 CES 2 HAAC 2 MFÉ. 4 MESRS 4 MTPT 4 MFPTRA 4 AUTRES MINISTERES .I7 SGG 4 DGBM-DCF-DGTCP-DGDDI-DGID 5 BN.DAN.DLC 3 GCONB-DCCT-INSAE 3 BCP-CSM-IGAA 3 UAC-UNIPAR-ENAM 3 FADESP-FDSP 2 JO 1.-
