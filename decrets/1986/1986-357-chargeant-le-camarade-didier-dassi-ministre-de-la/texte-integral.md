@@ -1,0 +1,9 @@
+# Décret n° 1986-357 du 9 septembre 1986 chargeant le Camarade Didier DASSI Ministre de la Justice Chargé de l'Inspection des Entreprises Publiques et Semi-Publiques de l'intérim du camarade Adolphe BIAOU, Ministre du Développement Rural et de l'Action Coopérative pour compter du 6 Septembre 1986
+
+/BA ]EPLIBLIQUE POPULAIRE DU BEI{IN PRESTDENCE DE LA REPUBLIOIIE DECRET N' 86-357 du 9 septembre 1986 chargeant l-e Camarade Dldier l4inistre de la Justice' Charg pecti.on des Entreprises Publi Semi-Publtques de l- I intérirn d Adolphe BIÀoU, Ministre du Dé Rural et de ltAction Coopérat ter_du 6 Septembre 1p86.
+DASSI , é de l r Insques et u Camarade veloppement ive pour s snp- VU w I,E PRESIDENT DE [Â REPUBLIQUE, CHEF DE LIETAT, PRESIDENT DU ONSEIL EXECUTÎF NATIONAL, 1r0;rl,o:rneince no77-32 du ÿ Septembre 1977 portant de Ia Lroi Sondamentale de 1a Républlque ?opuilàire 1es lois Constitutlonnelles qui ltont modiiiée ;
+promulgat ton du Bénil et Ie décret \o 85-254 du 17 Juin't985 portant compositi6n du Conseil Exéeutif National et de son ôonité pe rmâne nt ;
+b ECRET E Àrtlcle 2 .- Ie présent décret sera publié au Journal Officiel.
+Afticle '1er-.- Pour compter du samedi 06 Se trfiIffi:f'Ef$r, rûinis t re ^ de :-a;us i icà rèr,"=g Entreprises Publiques et Semi-Publiques es Mlnistre du Développement Rural et de 1tÀc lrabsence du Camarade âdolphe BII,OU.
+tr'ait à coîOt{ou, Par Ie Présldent de Ia République.
+Chef de l-tEtat, Présldent du Conseil Exécutif Iilational, p € t tenbre 1986, 1e Camarade de ltlnspection des clurgé de lrlrltériln du ion Coopérative pendant Ie 9 Septembre 1986 I'ilathieu IGnEKoU.- Ampllations: PR 6 SA/CC/ 4 CPIAIIR 4 SGCEN 4 SID 2 PPc 2 IIDRJTS- MJIXP.SP 6 Âutres tr,Iini res 13 DPE-DIÆ-N\TSAE 6 TGE 4 Br{-Dxlü 4 JORPB 1 CPC I DCCî-ONEPI-Gde Charc. 3 UIIB-FASJEP 4 BCP 1 Préfets 6 6.-
