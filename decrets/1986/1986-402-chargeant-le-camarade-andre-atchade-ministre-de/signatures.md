@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à COTONOU, 1e 29 Septembre 1986 Par Che I Ma eu KEREKOU Axopliations:P SA,/CC/PP,PB 4 CPIANR 4 SGCEN 4 SPD 2 PPC 2 CPC 6 I.{SP-MET 6 AUTRES MI}iISTERES 1f DPE-IT,C-]NSAE 6 TGE 4 BN- DAN 4 DCC1-0I,IEPI-Gde Chanc. I UItrB-FASJEP 4 BCp 1 préfets 6 JORPB 1..
+L
