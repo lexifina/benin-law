@@ -1,0 +1,6 @@
+# Visas
+
+I tir.PUÈL]-ul]u PLrr'ciLÀiiür DU Èrll' ii'tr PRXSID]TNCE DE LA RECI,ELIAUS DECRXT lJo 85-542 du 2{. Décembre 1gB5 de Ia Dortant aDprobation des Statuts 'SociJti üôÀ lransPorts du Mono (soms'io).
+Ltr PRESIDET,]T D] i,Â RE?UBLIQLIE, CHIF DE LIETAT, PFNSIDEI'.IT DU col'Jsir]- EXECUTIF I{AIrONAL' 1ru lfordonnance N" 77-f2 du 9 Septembre 1977 portar't promulgation cle i"-Lài -Fondamentaie de la ÀépuËti-qu. Populaire du Bénin et les iÀis Constltut ionnefle s qui 1'ont modifiée ;
+lruledécretltroF5.254dulT.Tuinlg85portant,compositionduConseil Èxécutlf National et d'e son Comité Permanent I l/U lrordonnance No 78-2J du 5 Aott.1!78 portant création, organisailôn et fonctionnement clc's Soclétés provinciales ; w Ia Loi No 81-OO9 du 1o octobre 1ÿE1 portant_ création, or'ganisationt âtt.ibrtio.rs et fonctionnement des oiganes locaux du pouùoir à'gtat et de leurs organes exécutifs ;
+w l_a Loi No 82-OO8 du 5O Décerobre 1982 régissant 1es rapports entre i;Btàt, res OrficËI,-iu"-Soài;tés-diEtaIr 1es Sociétés d iE:onorni'e frfi*te ét cel1es danÉ tesquclles IrEtat a'une prise de pqJ-tlcipation, et firant leurs modafités de gestion ; LE Conseif Exécutif Irlational entendu en sa séance du 4 Décembrc 1985, DJJCiiETtr Artlcle '1 er . - Sont du llono (soTRAI4O)
