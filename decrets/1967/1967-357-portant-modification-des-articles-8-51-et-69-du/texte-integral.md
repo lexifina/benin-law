@@ -1,0 +1,29 @@
+# Décret n° 1967-357 du 17 octobre 1967 portant modification des articles 8, 51 et 69 du décret 62-45/PR-MFPT du 2 février 1962
+
+i .ÿpRNSIDENCE DE ].]À RXPUBIIQUE REPUBI]QTIE !U DÂHOIqEY 7T)EcREr No 35? ÆRlMr,prî.
+portant roodification des articles B.
+51 et 69 du décret 62-45/PR-ytrpT du'2 r e \rrt€r lYoz - I,E PR.ESIDENT DE IA REPIIBITQUE, W La Proclarcation du 22 DéeemUre 1955 ;
+VU le décret no147/PR du 15 Mai 1967, portant fomation clu Gouve rnenc nt ;
+W le Déeret no2'l 5/PR du 16 Mai 1965, d.éteminant ]-ee services rattachés à 1a Présidence de l-a République et fixant les attributions des merabres du Gouve rneme nt ; VU 1a lol 59-21 du 11 Aott 1959, portant statut général de 1a Fonction Publique;
+ÿ1J le Décret ro59-21a du 15 Décenbre 1959r portant rcodalitée c onmune s drapplicatlon du Statut Général tle 1a Fonction Publique 1ru 1e Décret no 62-45/PR-IqFPT du 2 I'évrier t962, portant statuts particuliers Ces corps des ?ersonnel-s des Services du Condltlonirenent au ?ort et de lrlnspect5-on des Produits et tles tsolds et Ue sure s ViJ Ia lettre rLo2575/MîÀE du 70 décembte 1966 au Mlnistre des -.-,,:l I'inar,ces et des Affaires Economlques t t SIJR le iapport conjoint du Mlnj-sttre de Ia Fonctlon Publique,.du îravai-f et clu Tôurisme et du Ministre des FLnances, tles Âffai4e6 Economique s et du Plan ;
+Ie Conseil des Ministres entenclu :
+D D C R,E 1 E composé des agents auxiliaires en s tlonneroent et de 1r Inspection des P Article B.- Pour sa constj-tution, ce corps ervic e rodult s tion du présent décret - ITRE sera exclusivenent au Contrô1e du Condià Ia date ale Pronulgâ- Artlc].e I nouve au .- ?our sa constitutlon .initiale ce corps §era exclus ivernent cons Contrô}e du Condit alnsi q\rl au Contrô titué des agents auxiliaires en service au ionneroent et de lrlnspection ,les ?rodults 1e des ?rix à la date de promulgation du présent clécret.
+ARÎIoLE 1e:.- Ie clécret îo45/PR/MF?T du 2 Févrief 1!62' portant statuts ; iffiffis des corps cles personnels des Services du Condltionnement au iort, aè ltinspectioà de,s P-roduits et des Poids et Mesures est r1oatifié ainsi qur11 suit :
+AU IIXU DE :
+AU I,IEU DE Article 51.-En app]-icat.lon des dispositions de ltarticle 58 du §t-â-tu-t-3féra1, !èndarüIe déIai qul e11es prévoient et dans 1os conditions fixéeè pour leur application par 1e décret $ÿ-218 du 15 tlécembre 1959rsüsvisé, pourront être nornmés tlana 1e corps-des Conducteurs. itu Cônditionneàent tles Produits, les agents non fonctionnaires des administratlons et établissements publics admini-stratifs de ]-tEtat Justifiant des conditions requises pour 1e recrutenont de ce corps. Àrt icle 1 nouveau.- Pendant un délai de der:x années à conpter e l-a e epu ication tlu présent décret au Journal Officiel du Dahoney, pourront égalenent être hommés dans 1e corps tles Cond.ucteurs du Conditionnement des ?rodui Ies Assistants qui, ré- I, IRE Articlo 59.- Pendant un déIai de Jrois années à conpter de 1a ilate Ae$b-Ïf'âTion du présent décret au Journal Officiel tle 1a RépubIi-que et nonobstant les atispositions de lrartic.le 58, paragraple ci-dessus, pourront être nommés Inspecteurs du Conditiormenent des Prod.uitsr'1ès candidats ressortissants tlu Dahomey tltulaires de lrrur des diplônes suivants :
+I\\ I I E R gulièrement déslgnés pour suirre un stage de fornation profe-ssionielle d'une duréà au nolns égale à 9 roois, ont obtenu des résultat concluants sanctlonnés par un diplôrne ou certificat de fin tle stage,
+- ') Ingénieur cle l-tEcoJ-e Supérieure d I Agriculture Af:ricaine d I Alger;
+- Ingénieur Hortlcole
+- Ingénieur tle ltlnstitut d'Agriculture de tunis.
+Pour ces rnêrne s canclidats et pentlant 1e nôme délai, des llnites drâge fixées à ltarticl-e 7 âu Statut Généra1--sont'-prod .,r de èinq années.
+les intéressés sont tenus à lrissue cle leurs études, de sulvre 1es stages de spécialisation plévy§ dans J.e Service tle frâilàii.àiionl'n6ràn"è' aei curtures,- Instrr:ments de Mesure à ?aris Artlc1e 6 .- nOUVe aU de de publi-ca que et nono i-dessus, p ?roduits, ltwr des tli Ia. Répub1 graPhe I nernent de laires de ei c
+- Pendant uri déIai de trois dru:ées à coropter tion -àu présent tlécret au Journal Officiel de t"iân{ }ès disposltions de lrarticle 58, para' à"."0"t-gtre nôru0é s Inspecteurs du- Conditioniàs- àurrAia"ts ressortisèants tlu Dahonrey titup1ône s suivants : Ingénieur tle lrEcoJ.e Supérleure 6 t Agriculture Afric aine tlt AJ-ger;
+- Ingénleur llortlcole i
+- Ingénieur de 1'Institut drAgriculture de §rn1s' Pourcesroêmescanditlatsetpendant}eoê.roedélai, des AU I,IEU DE :
+ûd tre suivre 1e Nornalis a Paris .
+siss ti-o ntéressés sont tenus à lrissue tle lcurs études de tages d.e spécialisati.on prévr.rs dans Ie service tle n, Défense des Cultures, Instzunents de üesure à Pendant ce nê!ûe dé1al, pourront égalernent être nomnés d.ans 1e corps des Inspecteurs du Contlitj,onnenent, 1es Conducteurs d.u Conditionncracnt qui, régu1ièrencnt désigrrés pour suivre un §tage de fornation professionnelle drune dr.rr ée au molns éga1e à 9 nois, ont obtenu des résultats conclr:ants sanctionnés par wr tliplône ou certlficat de fin de stage.
+L,e reste sans changement.
+ABîICLE 2.- Le Ministrc d Tôurisae et le Ministre de PIan sont chargés de 1'exé Journal Officiet de 1a Rép Par Ie ?résident de 1a République le Ministre cle la Fonction Pub1i du Travail et du Tourisne;
+e 1a Fonctlon ?ub1lque, du Travail et du s Finances, des Âffaires Econoniques et du cution du présent décret qui sera publié au ublique du Dahonrcy./.- Iait à COTONOU, le 1? octobre 1967 Généra1 ChristoPhe SOGIO I,e Ministre des linances, des Affaires Economiques et du P1an, Pascal CHABI AMPIIATIONS:
+PR 4 . MI'Pîî.MFA3? 8 . CS 6 - Ministères 9 - DDR 2 - DÀE 4 - Sce.Condition.4 - SGG 4 - IA ? - Gd.e Chanc 1 - DB-DC-m-So1de 4 - îrésor 4 - DGÀJI 2 - DFP-D? B - JORD 1 .
+(7 Bertin tÉonnn
