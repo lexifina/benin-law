@@ -1,0 +1,13 @@
+# Visas
+
+R§ruF:IOUE POPULATRE DU tsENIN pRtsrruNgÈ DE LA REPUBLTOUE DECRET No88-48, du I Décehb::e 1988 , portant ltste'des Juges Popula ires ilon Professiorurels du Trlbunal Populaire de Ia Provirrce du Zou.
+W 1s Décret No 84-507 du 17 Décembre 1984 portant'attributions, orsanisation et fonctionnenent du Ministère de Ia Justicer de ltlnspection des Entreprises Publiques et Semi- Pu bl iques r W Ia loi No 81 -OO4 du 2J Mars 1ÿ81 portant organis â tion 'judiclâ ire sn Républ ique Populaire 4ç Bénin, W Ia loi N'85-006 du 17 Mal 1981t relatlve à Itélection des Juges Populaires de Commune r des Tribr:naux Populaires dc District, des Tribunaux Populaires âe Province et à 1télectlon des Secrétaircs des lblbunaux Populaires Locaux et des Tbibunaux Populaires de Commune r LE PRNS]DEI\JT DE LA REPUEI.IOUE C}IEF DE L'ETAT, PRESIDLNT DU COIJSETL EXîCUTIF MTIONAL, W l tordonnanc e N" 77 -32 du 9 Septembre 1977 Portant promulgation d.e Ia Loi Fondamentale de 1a Républ lque Populaire du Bénin et les lois constitu tionne]les qui 1.ront modifiée, lÀJ 1e décret N' BB-r1 5 du 29 Jul]-].et 1988 portant comp.osition du Consell Exécutif National et de: son Comité Permanentr 1a I{q Loi No 88-O-OB du 26 Avrll 1988 portant àmendement à Ia loi 8r-006 du 1i Mai 198f, i Ia décision-Ioi n§ 88-006 4tr 2 Décembre 1988 portant amendernent à Ia 1oi No 8r-006 Arj 17 l4ai 194, relatlve à 1rélection des Juges Populaires non professiornels des Tl'ibunaux_Popula ireP.
+LoËaux. àes Tribunaux Populaires de Commune, des -Tribunaux Por:ulairés dc Distrlct. deÈ lbibunaux Populaires dc Province et à 1tél-ection des Seciétaires d.es Tribunaux Populaires Loceux et des Tribunaux Populaires:de, Commune, Ia Ioi No 86J11 du 26 Féÿiier 1986 portant habilitation dur ôà""Ëir ExÈcutif ùàtionar à modifier "n "âi âe-[èJoin-ra conipétence territoritile des lribunaux Populaires et Parquets Populaires de Districÿr La lol Nor 87-O1O 4u 21 Septembre 1987 portant habilitation du Conseil Exécutif National à modifler eh cas de besoin Ia con'pétence territoriale des Tribunaux et Parquets Populalres de Province. r ..,/...
+W W W W VU Le décret NoBB-133 du 19 Aott 1988 portant lnstal.1atI-on res t"iU*uai et ia-r'quets Pôpulalres de Province, des IrLburaux et Parquets Populaires de District r des -fribural$...f Ôpu-Lal-res de C ornrnme et Aélinlitation de le"irr compétence tegltolre ;
+DECREIE :
+ArtloLe 1er.- Est conssatée1télectloil en quali'té-de-juges Popu-- tÈËfu-roiàÀ*iàr*àrÀ-0,, t"il,*a1 Poprilalre de 1à Province du Zourdes Canrarades dont Ies nomg suivent t I *ou*r* Thornas
+- SÀC.BO Coovi
+- ADJSKOU AMO§
+- ALAO Ramanou
+- BoTOYTYE RaPha§L
+- AGBESSI A1a1n.
