@@ -1,0 +1,11 @@
+# Visas
+
+\ 'lcs , REPUBLIOUE POPULAIRE DU BENIN PRESIDENCE BE LA REPUBLIAUE 1erV 1c e-Pré s ident 2ème Vlce- Prés ident 1er R.{PPORTEUR ! le Ministre Dé1ëgué auprès du Présldent de 1a République, Chargé du Plan et de Ia Statistique ou son repré s entant , ! Ie Ministre des Affaires Etrangères et d.e 1a Coopération ou son représentant - LE PRXSIDENT DB IA RXFUBLISITE, C}IEF DE ILIETAT;oPRBSTDENT DU CONSEtrL EXECUTIF N.AIIONAL, V1J Ii ordonnanc e No 77 -32 du 9 septembre 1g?7 portant promulgation de Ia Loi Fbndarnentale de 1a République Populairè Au Aénin et Ies lois constltutlonnelles qul ltont modlfiée, VtJ }e décret No 84-122 du J aott 1984 portant.compositicjri'dü'Cônsell Exécutif National et de son Comité Fefnaneni, - -- -:
+vt, 1e d.écret No 84-264 du 2 Juillet 1984 flxant 1es taù de bourses nationales et avantages aôcordés aux Etudlants. Etudiant.s .s,tagialresr A6ef.tts Pernanents de lrEgst, et aux Personnels M.r.+I-italreË 'en fôrmatlon à 1rE1ranger., + VIJ le aécràt.No. B3-ZËO du ,6 juiuet lg}j portant créatlon;'attributions et.cor4posLt-ion de 1a Çomrnissiop Natlqnàle d. rAttribution des Bourdes de S1age, SUR proposltlon du'Mlnistre des Ehsei-gnements M6yens et.§up{p],euq, i,E Conrité. Pglmanent du Conseil Exécutlf Natlonal e1r sa séance du 24 Avrl1 1985, DECR ETE Articl-e 2.- La cpmm4,ssion est composée comme suit PgESIDENT : Ie Ministre des Enselgnements Moyens et Supérieur. ou son rePrésentant.
+arÈigfe-1elà- Ile est créé une commission dénommée rr Coû0ls.s1on Natlonale dtAttrübution de.Bsurses d'Etades et de stagesr. / le ltinlstre des Finances et de lrEconomle ou son représentaàt r.
+EIEEE : Tous 1es Mombres du Conseil Exécuttf National ou Izurs représentarrts' .../...
+":- DTcRET N. B5-15J au e r'ràiri§ei portant cnéation et conpg6_itl,qn,,êe la Commisslon Nationale dI attributiôn des Loulses dtétudes et de stages.
+2ème RAPPORTEUR : Ie Ministre.du Travail et des Affaires sociares ou son .f Repr,sentant.
+: se prononcer sur lt opSortunité des moyens de formatlon âcâdemique et professionnelle proposés par ltEtat et par lrElranger ;
+- procéder.dans }e cadrè de 1a rég1émentation en vigueur, 1a dé-slgnation des bénéficiaires de bourses=d'études ou de stàges àt Ia déterninatlon des avantages qui leur sont consentis.
+Le s ré sultats 'et slon sont adressés au Comit du Bénin pour décision à pr
