@@ -1,0 +1,5 @@
+# Visas
+
+IDA RæUBLIOUE DU BENIN +BILSIDENCE DE LA .REPUB].JIIJB ---1-' vu VU Le !éoret N vernenent ;
+DECR.ET N" 94-jZ? du C[+ ootobre 1994 Portant ratiflcation de lrAcgord de Crédit de Développenent No 2529 BEN signé entre 1a République du Bénin êt lrAssociatlon Internationale de Développenent (AID) relatlf au deuxième projet nRéhabilitation du Crédit Agricole r. LE PRESIDENT DE LA RNPIJBLTQUE, i , r..t.: - CHEF DE LIETAT, C}IEF DU GOIJVERNEI']ENT, W La tol No 90-052 du '11 Décembre 199O portant ConstLtution de 1a République du Bénin i vt, La Loi No 94-01 7 du Cl+ Octobre 1994'portant autorisatlon de ratification de ltAccord de Crédit de Développement No 2529 BEN sigL.i entre Ia Répub11que du Bénin et 1?Associâtion Internationale dè Développement (afO) relatif au deuxièroe Projet rrRéhabilitation du Crédlt Agricole rr ;
+La Déci.si.on l'[c a'l -CÉ2ÆCRÆT au JO l\tars 1991 portant procla.uation des résultats définittfs du deuxiène tour des élections présid.entielles du 24 Itlars 1991 i o 94-114 du 06 l,ia1 1994 poftant composition du Gou- D.ECRETB
