@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à COTONOU, le 15 .ranv r 1998 Par le Président de la République, Chef de I'Etat, Chef du Gouvemement, Mathieu KEREKOU.- J Le Premier de I'Action Le Ministre du Commerce, de I'Artisanat et du Tourisme, Mi , chargé de la Coordination uvemementale et des Relations avec les Institutions, Po:te-Parole du Gouvernement, t l^,§ Adrien HOUNGBEDJI.- Le Ministre des Finances, Le Ministre des Tr Le Ministre de I'Env ironnement, Publics et des Tr de I'Habitat e el' rban ffiê, ea Le Ministre de I'Intérieur, de la Sécurité et de I'Administration Territoriale, Le Ministre de la Justice, de la Législation et des Droits de I'homme, \.- J Théonhile N'DA.- Le Ministre des Mines, de I'Energie et de I'Hydraulique, Ampliations : PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 PM 4 MCAT 4 MTPT 4 MJLDH 4 MF 4 MMEH 4 MEHU 4 AUTRES MINISTERES 11 SGG 4 DGBM-DCF-DGTCP-DGID-DGDDI 5 BN-DAN-DLC 3 GCONB-DCCT- INSAE 3 BCP-CSM-IGAA 3 UNB-FASJEP-ENA 3 INTERESSES 1I JO 1.- i*.
+lL lrr
