@@ -1,0 +1,6 @@
+# Décret n° 1992-303 du 6 novembre 1992 Chargeant Monsieur Désiré VIEYRA, Ministre d'Etat, Secrétaire Général à la Présidence de la République de l'intérim du Président de la République pour compter du 07 Novembre 1992
+
+- Source : Secrétariat général du Gouvernement du Bénin (sgg.gouv.bj), documenthèque, <https://sgg.gouv.bj/doc/decret-1992-303/download>
+- Date : 1992-11-06 (date du texte dans son intitulé (promulgation/signature) ; la date de publication au Journal officiel n’est pas donnée par la source)
+- Couche texte : fournie par l’éditeur sur un document numérisé (non relue)
+- Unités : 1 articles
