@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à COTONOU, IC 3T DECEMB Par le Président de la RéPublique, Chef de I'Etat, Chef du Gouvernement, Le Premier chargé de 1n Çseldination de l'Aotion Gouvemementale et des Relations avec les Institutions, Porte-Parole du Gouvernement, Adrien HOUNGBEDJI.- Le Garde des Sceaux, Ministre de la Justice, de ta Législation et des Droits de l'Homme, Le Minisffe de la Fonction Publique du Travail et de la Réforme Administrative, Assouma YAKOUBOU,- AMPLIATIONS:PR6AN4CS2CCZCES2FIAAC2PM4MILDH4 ffis MINIsTERES 15 scc 4 DGBM-DCF-DGTCP-DGID- DGDDID5BN-DAN-DLC3GCoNB.DCCT-INSAE3BCP-CSM-IGAA3 UNB-ENA.FASJEP3 JO 1.- }TFPTRÀ fr^{ lri
