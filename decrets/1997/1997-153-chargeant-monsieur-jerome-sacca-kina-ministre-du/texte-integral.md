@@ -1,0 +1,6 @@
+# Décret n° 1997-153 du 27 mars 1997 chargeant Monsieur Jérôme SACCA KINA Ministre du Développement Rural de l'intérim de Monsieur Moïse MENSAH Ministre des Finances pour Compter du 27 mars 1997
+
+REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE DECRET No 9z-ts3 DU 27 MÀRs 1997 chargeant Monsieur Jérôme SACCA KINA Ministre du DévelopPement Rural de l'intérim de Monsieur Moïse MENSAH Ministre des Finances pour Compter dt27 mars 1997 LE PRESIDENT DE LA REPUBLIQUE CHEF DE L'ETAT, CHEF DU GOUVERNEMENT, vu la Loi N" 90-032 du I I Décembre 1990 portant constitution de la République du Bénin ; VU la proclamation le ler Awil 1996 par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du 1 8 Mars 1996 ;
+VU le Décret N" 96-128 du 09 Avril 1996 portant composition du Gouvernement. DECRETE Article ler : Pour compter du 27 Mars 1997, Monsieur Jérôme SACCA KINA, Ministre du Développement Rural est chargé de l'intérim du Ministre des Finances pendant I'absence de Monsieur Moïse MENSAH.
+Articlc 2 : Le présent Décret sera publié au Joumal Officiel.
+Fait à coToNou. le AMPLIATIONS. PR 6 AN 4 CS 2 CC 2 MDR 4 AL]]'RES MINISTERES I6 SGC 4 DC/MIL I DEPARTEMENTS 6 JO I Par le Président de la République, Chef de I'Etat, Chef du Gouvemement,
