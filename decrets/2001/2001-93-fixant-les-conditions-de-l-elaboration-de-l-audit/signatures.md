@@ -1,0 +1,6 @@
+# Signatures
+
+Fait a Cotonou, le 20 fevrier 2001 Le President de la Republique Chef de l'Etat Chef du Gouvernement Le Ministre d'Etat, Charge de la Coordination de l'Action Gouvernementale, du Plan, du Developpement et de la Promotion de l'Emploi
+- ..... -:::::::;:,,..- ~ -;--: ~ --:---· - ~ -· -· ---~-·....
+v' ~ .. -.--...
+ef'- Bruno AMOUSSOU Signatures Le Ministre de !'Environnement, de !'Habitat et de l'Urbanismc Luc-Marie Constant GNACADJA Le Ministre des Mines, l'Energie et de l'Hydraulique Felix ESSOU DANSOU AMPLIATIONS Le Ministre de la Sante Publique Marina d'ALMEIDA MASSOUGBODJI Le Ministre de l'industrie, des petites et Moyenne Entreprises John IGUE PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 MECCAG-PDPE 4 MEHU 4 MMEH 4 MSP 4 MIPME 4 Autres Ministeres 14 SGG 4 DGBM-DCF-DGTCP-DGDDI-DGID 5 BN-DAN-DLC 3 GCONB- DCCT-INSAE 3 BCP-CSM-IGAA 3 UNB- FASJEP 3 JO 1 Signatures
