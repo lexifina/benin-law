@@ -1,0 +1,13 @@
+# Décret n° 1993-12 du 25 janvier 1993 autorisant Monsieur Claude C. GBAGUIDI, à perdre la Nationalité Béninoise
+
+/w REPIIBLIOUE DU BENIN PRESIDENCE DE IÂ REPUBIJOT'E DECRSI No 9r-12 ürr 25 .Ianviet 199, eutorttent l.Ionslcur Clauèe C. OBÀGUIDL à perdre Ia Natlonqllté Eénlnotrs.
+I,E PRESIDEM DE IA REzuBLIQUE, CHEE' DE LIETAI, CHEI' DU GOUVERNEMENI, W Ia Lol No9O-Ol2 du 11 Républlque du Bén1n ;
+W fe Déoret No91-176 du 29 JullLet 1991 Gouvernement j'.. _ Décenbre 199O portent Constlürt1on de lE W la tol No65-17 du 2l tluln 1965 nortant Code de 1a Nattonallté Bénlnolse et le Décret No?P12/F(I:y,JL du 11 Aott 1965 fixant 1es nodalltés dtappltcatl.on du Code de Ia Natlotrallté BénlDolse et les lnstnroti.ons du Garde des Sceaux, Minlstre de Ia Justlce e! de }a Législatton ;
+W la Déoislon NoOg1 ,C4ziHCR/PÎ du lO l.{ars 1991 portant proclaroatlon des résultets déflnittfs du der»rlème tàur des Ëlectlone prés{de4t1eI1es du 24 i.iars 1991 ;
+portant composltlon du W 1e Décret No92-OB du 22 Janvler 1992 portant orgaqrsatlon, attrlbutlons et fonctiormement du I'iinlstère de Ia Juetlce- et de la Léglslation ;
+W la reguête en date du 16 Janvler 1992 de Monsleur Claude C.
+GBAC,{JIDI ensenble les p1èces produites ;
+$lJR proposltion du Garrile des Sceaux, Minlstre de 1a Justlce et de la Léglslation ;
+Le Consell des Minlstres entendu en sa séence du 05 Janvler lggj i DECRE rF tr âf!Elg-leg.- Monsieur Claude C. GBAGUIDI né Le 19 Janvter 195, à Savalou de GBAGUIDI Àssongba et de Feue AdJl DJOSSOU, depeurant à Oldenburgertr 85, D.2875 Ganderrkesee 1r en-Républiqué Féaérate drÀllenagne, est autorlsé à perdre Ia Natlonaiité Ééntnolse.
+È:tlc]e.4.- Le preésentDécret prend effet à 1a date de sa slgnaùre sdi6 teutcfiJ.s qut ll soit porté attelnte à' 1a valLdlté-des actes passés par llonsieur Claude-C. GBAGUID], nI aux arôfii acquis par_-Igs tlers -antérieurement à sa.pubIlcatloà, sur le fondemen€ de la Natlonallté Béninolse de Lttntéiessé.
+$rt-i-c-1e- l_. - Le présent Décret sera publié et colnmunlqué partout .eT*u-é'sb-rî sera.-- Falt à COÎONOU, le 25 Janvier 1991 par Ie trésldent de Ia République, Chef de lrEtat, Chef du Gouvernement, .r-u/ / "--. l'*1, 'lÈ Nj,céphqre SOGL0 Le Mlnistre dtEtat, Secrétaire Généra1 à la Présldence de Ia Répub1lque, Déslré VIEYRA Le Garde des Sceaux, Ministre de Ia Jus'Lice et de Ia Législâtion, ti}\ Le lvlihlstre des Affaires Etrangères et de 1a Coqpéràtion, Théodorô H0L0 'I s D. YEIIOUESSI ations PR 6 ASS. NAT. 4 COUR SUPREIqE 1 I{INISTEiIDS 20, DEPARTE}IEXIIS 6 DCCT 2 GCONB 2 ENA .II , 1 DAN ] INTERESSE 1 DACP 4 JORB 1.- MAE,C2IVIJL4AUÎRES FASJEP/UNB2ENAI 1
