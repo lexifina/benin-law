@@ -1,0 +1,4 @@
+# Visas
+
+REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE No gz-t3t DU 20 MÀRS 1997 Chargeant Monsieur Kamarou FASSASSI Ministre des Travaux Publics et des Transports de I'intérim de Monsieur Ismaêl TIDJANI-SERP0S Garde des Sceaux Ministre de Ia Justice de Ia Législation et des Droits de l'Homme.
+VU La Loi N' 90-0J2 du 11 Décembre 1990 portant Constitution de la Républlque du BENIN, VU La Proclamation le ler Avril 1996 pü la Cour Constitutionnelle des résultats définitifs de I,élection présidentielle du 18 Mars 1996, VU Le Décret N" 96-128 du 09 Avril 1996 portant composition du Gouvernement, )ECRET t-T-- DECRETE Articte 1er: Pour compter du 20 Mars 1997, Monsieur Kamarou FASSASSi, Ministre des Travaux Publics et des Iransports est chargé de l,intér1m du Garde des Sceaux, Ministre de ]a Justice, de la Législation et des Droits de I'Homme pendant l'absence de Monsleur Ismaêl IIDJANI-sERp0s.
