@@ -1,0 +1,5 @@
+# Visas
+
+REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE Chargeant Monsieur Albert TEVOEDJRE Ministre du Plan, de la Restructuration Economique et de la Promotion de l'Emploi de l'intérim de Monsieur Adrien HOUNGBEDJI Premier Ministre, chargé de la Coordination de l'Action Gouvemementale et des Relations avec les Institutions pour compter du 2lnovembre 1996 LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVf,RNEMENT, la loi No 90-032 du l1 Décembre 1990 portant Constitution de la République du Bénin , la proclamation le 1- Awil 1996 par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du 18 Mars 1996 ;
+le Décret N'96-128 du 09 Awil 1996 portant composition du Gouvemement ; Pour compter du 21 novembre 1996, Monsieur Albert TEVOEDJRE, Ministre du Plan. de la Restructuration Economique et de la Promotion de I'Emploi, est chargé de l'intérim du Premier Ministre, chargé de la Coordination de I'Action Gouvemementale et des Relations avec les Institutions pendant I'absence de Monsieur Adrien HOLINGBEDJI.
+VU \{J VU Arti I
