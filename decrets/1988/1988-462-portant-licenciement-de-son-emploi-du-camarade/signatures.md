@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à COTONOU, Ie 25 Novembre 1988 fe de par Chef Présldent de Ia République lrEtat, Président du Conse , Exécutif National, ,i1 Mathie KEREKO Le ivlinistre du 1!'avai]- et des Aff ai-re s S ciales, I Le Ministre des --.1'//- /// Edouard ' ZODEHOUGAI{ t[IrrlsTie-ffiEiimâ]re Irenée ZfNSOU Le Minlstre de 1a Justj.ce, Chargé de lrlnspectlon des Ë:trePrises Publiques et Semiques, Le Ministre du DéveloPpement Rural et de lrAction CooPérative , Eclorrard ZODEHOUGAN re n er Anpliations 3 FR 6 SA/CC/RÆ 4 SGCH{ 4 CPIAI'IR 2 CPC 2- PPC 1 SËffi6ffi5cct r ur'-ubæ-loRAc-ÿLITEPSP B autres Mi-nistires 12 CEAP 6 ONAB 4 TGE f DGPE/MTA.S 4 DB-DCF-DSDV.DIçP B DI 2 DPE' DIC-INSAE-BCP 4 BN-DAN 2 CNR 2 INTEF.ESSE 1 JORPB 1.- Gandonou KODIA
