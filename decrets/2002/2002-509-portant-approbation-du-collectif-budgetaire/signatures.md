@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 2Lr novembre 20C2 Par lc Président dç la République, Chef de 1'Etat, Chef du Gouvcrnement, athieu KEREKOU.- Le Ministre d'Etat Chargé de 1a Coordination de l'Action Gouvemementale, de 1a Prospective et du Développement, Bruno AMOUSSOU ! Le Ministre de I 'lntérieur, de la Sécurité et de la Décentralisation, Le Ministre des Finances et de 'l'Economie, '-=? ) DanielTAWEMA.- régoire LAOUROU.- AMPLIATIONS : PR 6 AN 4 CS 2 CC 2 CES 2HAAC 2 MCCAG-PD 4 MFE 4 MISD 4 AUTRES MINISTERES 18 SGG 4 DGBM-DCF-DGTCP-DGID 5 BN-DAN-DLC 3 GCONB.DCCT-INSAEE 3 BCP-CSM-IGAA 3 UAC.ENAM-FADESEP 3 LINIPAR- FDSP 2 JO 1.
