@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à COTONOU' Ie 17 Fér,'rier 1986 par le Président de 1a Répub1i-que, Chef de ltEtat, Président du Conseil- Exécutif lYational , Ivlathieu I{EREKOU Le llinistre du Travail des Affaires Soci êS r NathanaëI Î,{ENSA}I ^.- i Le I'linistre Dé1égué auprès du Président de 1a P.épublique, Chargé de ltIntérieur, de Ia Sécurité Fablique et de ltAdminis Affaires Sociales, 1e a République, Chargé de e 1 I Adrninistration Terril.rBconomie sont chargés, ation du présent décret tration Territorlale Edouard ZODBHOUGAN PPC 2 MFE 15 ÿIIAS- SID2lGE4DFE- 5 DAFA/If'E 1' 1 Gde Chanc. 1 del etd tde plic a.
+Le-l{inistre des Finalces et de 1 I Econonie t ospice ANTOI'IIO u Amoliations : PR I SA/CC/PRPB /+ CP/ANR 4 cPC 6 iffiaÉl-Ie autrcs Ministères 12 'sGcEII 4 oic-irvsar-scP I DB-DCoF 10 soLDE ET TriBSoR-Dr 1 Provjrces et Districts 2 x 92 = 184 DAT 2 DCCî TNTTSIÈ + SYNACOB 4 UNB.FASJEP 4 BI{ 2 DAI\ 2 JORPB ,
