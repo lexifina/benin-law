@@ -1,0 +1,9 @@
+# Visas
+
+o REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE DECRET N'2005-095 DU 09 MARS 2OO5 Portant ratification de I'Accord de prêt signé le 06 mars 2004 entre la République du Bénin et la Banque Arabe pour le Développement Economique en Afrique (BADEA) dans le cadre du financement du projet de construction et d'équipement des résidences universitaires.
+LB PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOWERNEMENT, Vu la loi n' 90-032 du 1l décembre 1990 portant Constitution de la République du Bénin ;
+Vu la loi n'2005-13 du 02 mars 2005 Portant autorisation de ratification de I'Accord de prêt signé le 06 mars 2004 entre la République du Bénin et la Banque Arabe pour le Développement Economique en Afrique(BADEA) dans le cadre du financement du projet de construction et d'équipement des résidences universitaires à l'Université de Parakou et au Centre Universitaire de Porto-Novo (phase I : construction de deux (02) résidences à I'Université de Parakou);
+Vu la proclamation le 03 avril 200i par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du 22 mars 2007 ;
+Vu le décret n'2005-052 du 04 février 2005 portant composition du Gouvernement ;
+o TMJ..
+O o Article l"' : Est ratifiée l'accord de prêt d'un montant de trois millions deux cent mille (3 200 000) dollars US, soit environ un milliard sept cent quarante sept millions deux cent mille (l 141 200 000) francs CFA, signé le 06 mars 2004, entre la République du Bénin et la Banque Arabe pour le Développement Economique en Afrique (BADEA) dans le cadre du financement du projet de construction et d'équipement de résidences universitaires à l'Université de Parakou et au Centre Universitaire de Porto-Novo (phase 1 : construction de deux (02) résidences à l'Université de Parakou) et dont le texte se trouve cij oint.
