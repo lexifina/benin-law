@@ -1,0 +1,12 @@
+# Visas
+
+REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQI,JE DECRET No 96 - 232 du 20 Juin 1996 Ponant agrément de "SALAIJS OIL INTERNA- TIONAL S.A." pour l'imçnnation, le stockage et la dislribution des produits Étroliers raffinés et leurs dérivés en République du Bénin.
+LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT VU La Loi No90-32 du 1l Décembre 1990, portant Constitution de la République du Bénin ;
+VU La Loi N'90-005 du 15 Mai 1990, fixant les conditions d'exercice des actiütés de commerce en République du Bénin ;
+VU La Loi N'92-O23 du 06 Août 1992, portant détermination des principes fondamentaux de dénationalisation et des transferts de propriété d'entreprise du secteur public atr secteur privé ;
+VU Le Décret N'95-139 du 03 Mai 1995, portant modalités d'importation et de distribution des produits pétroliers raffinés et de leurs dérivés en République du Bénin ;
+VU L'Anêté Interministériel N"24IMCT/MF^4EMH/MTPT/CAB du 03 Mai 1995 fixant les conditions d'application du Décret N"95- 139 du03 Mai 1995 :
+VU L'Arêté tnterministériel N'25/MCT^4EMIÿCAB du 03 Mai 1995, fixant les conditions d'accès aux installations de stockage à ia disposition de la SONACOP et portant autres modalités de rnise en oeuwe de l'ouverture du secteur des produits pétroliers au Bénin SUR proposition du Ministre du Cormnerce de I'Artisanat et dr-r Tourisme LE Conseil des Ministres entendu en sa séance du 19 Juin 1996 VU La Proclamation le ler Awil 1996 par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du l8 Mars 1996 VU Le Décret No96-128 du 09 Awil portant composition du Gouvemement ;
+t) ECRBTE ARI.lCLll IER : La Société .'SALAYUS OIL INTERNATIONAL S.A,", Cornnrerce N'18680-B du 26 Août 1994 à irnrrratriculée au Registre du CO'I'ONOU, est ag.éée pour irnporter, stocker et distribuer en République du Bénin les produits pétroliers ralTnés et leurs dérivés.
+AR'IICL,E 2.- : La durée de l'aprérnent est de dix ans pour compter de la date de signature du présent Décret. Elle peut être renouvelée ou prorogée confonnément à I'article 6 du Décret N'95-139 du o3 Mai 1995 portant rnodalités d'importation et de distribution des produits pétroliers raffinés et de ler.rrs dérivés en République du Bénirr.
+de respecter les obligations irrconrbant aux tihrlaires d'agrérnent d'importation, de stockage et de distributiorr des produits raffinés et leurs dérivés. Elle est tenue en parlioulier de :
