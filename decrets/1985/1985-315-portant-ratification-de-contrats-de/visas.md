@@ -1,0 +1,6 @@
+# Visas
+
+#.
+/cs REPURLIOUE POPULATRii] DU BENIN PR!:51P1:5ç11 lrli L"A P,IPUBLTCUE D]'JCRLT N" B5-3 15 dur 9 Août DB5 portant ratificertion d.e contrats de rééchelonnenrent d.es Prêts de Ia phase I du Projet.Pétrolier de SEIIE et dc ltAccord draffectation tles Revenus du Champ Pétrolifère cie SEliE.
+LE P]1 ,STD,,NT D,i LA P.EPUBLTQUE, cHLl,' DX LrnTAT, PREsfI;ijNl DU' CONSI)TL I-a: :CUTIF ]Y/|TIONAL, 1rtj lrordonnancc No -77- jZ du 9 septembre 19TT portant promulgction de 1a Loi Foncienentale d. Ia R.p"Éiiq;;-ËàË,iâi.Ë*à" Bénin et tes lois constitutionnôir"u-qui i,ont ilAiii;";
+VU Ie décret No 85-254 ciu 1/ juin 19tJ5 portant composition du conseil Exécutif National ét oe éoâ ôoÀiia p;;il;;i;-" VU 19.,9i9":t N, 85- f1O_du 7 Aott 1985 portant transmission au uonrre permanent de IrAgsenb1ée Natlcnalc Révotutioruralre, pour autorisation dc ratlficatlon, cle contrats ou .u?ôr:àrorrnement dcs prêts de Ia phase r du'projc.t pgtroriàr-àÀ-3telm et de lrAccord drAffectati-on des Reveirus ou crràmf-eéi"orirare de SEtrIE , w la.dd,cision Nq B5-51,/ANR/Cp/p au 8 Aott .l 985 a.utorisant Ia ratlfication de contrats de reéchefànnement- ctcs prgiÀ--àe ra l{1e f .du Projet pétro1ler d,: SEITIE ct cjc. L.rAcéo"ii-Àîrii".- rarl-on des Hevenus clu Chaùp pÉtrot if ère cie SEt,lE, DII CRf:; T f,
