@@ -1,0 +1,4 @@
+# Signatures
+
+Fait a Cotonou, le 4 avril 2001 Le President de la Republique Chef de l'Etat Chef du Gouvernement Le Ministre d'Etat, ,,,,,.-,,.,.-· Charge de la Coordination de l'Action Gouvernementale, du Plan, du Developpement et de la Promotion de l'Er:nploi Bruno AMOUSSOU Signatures Le Ministre de !'Environnement, de !'Habitat et de l'Urbanismc .,.,-,--~1-~ (. (~ '-:)?' .
+Luc-Marie Constant GNACADJA Le Ministre des Travaux, Publics et des Transports Joseph Sourou ATTIN AMPLIATIONS Le Ministre de l'industrie, des petites et Moyenne Entrcpriscs ~ L . 0 -.____./ John IGUE Le Ministre de la Sante Publique ttLWJ-Ll-LLQ Marina d'ALMEIDA MASSOUGBODJI PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 MECCAG-PDPE 4 MEHU 4 MTPT 4 MSP 4 MIPME 4 Autres Ministeres 15 SGG 4 DGBM-DCF-DGTCP-DGDDI-DGID 5 BN-DAN-DLC 3 GCONB-DCCT-INSAE 3 BCP-CSM-IGAA 3 UNB-FASJEP-ENA 3 JO 1 Signatures
