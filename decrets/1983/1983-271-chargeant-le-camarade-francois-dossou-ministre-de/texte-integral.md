@@ -1,0 +1,7 @@
+# Décret n° 1983-271 du 8 août 1983 Chargeant le camarade François DOSSOU, Ministre de la Justice Populaire, de l'intérim du camarade Grégoire AGBAHE, Ministre du Tourisme, de l'Artisanat et des Sports pour compter du 6 Août 1983
+
+DECREî N" 81-271 du 8 aott '1 9Bf chargeant le Canarade Flançois D0SSOU, Mj-nistre de la Justice Populaire, de lrintérin du Camarade Grégoire AGBAHE, Ministre du Tourisne, de 1rÂrtisanat et des Loisirs pour compter du 6 Âott 1981 .
+LE PRES]DENT DE LI'. REzuBLIOL'E CTMF DE L'EîAT, PRE"SIDENT DU C SEIL EXECUTIF N,,\TÏONAL, ,oN- 1(J l t0rdonnanc e No 7742 du 9 Septembre 1977 portant promulgation de l-a Lol Fondamentale de 1a République Populalre du Bénln et Ia Loi No Br-O01 du J Février: 19A3 qui 1ra complètée ;
+1TtJ le décret No B2J+41 du JO Décembre 19AZ portant composition du Consell Exécutif Natlonal et de son Conité Permanent, DECRETE Article lerr- Pour compter du 6 ^ott 1981 . 1e Carnarade FranÇols DÔ§$qiEnlstre de 1a-Justice Populalie ést chargé de 1'lntérlm du Ministre du Tourisme, r,le l tArtj,sanat et des Loislrs, pendant ltabsence du Camarade Çrégoire AGBIJIE.
+lurticle 2.- Le présent décret sera publié au journal 0ff1cle1.
+Fait à COT'ONOU, Ie B août 19Bf 1e de par hef Président de la République, l"tEtat, Président du Conseil Exécutlf Natlonalr , Mathieu KEREKOU Ampllations : PR ciu PRPB 4 ANR 4 CPC 6 ScG 4 PPC 2 MJP-I{TAL 6 autres Ministè e6 20 DPE-DLC-INSÂB 6 TGE 4 DAN 2 I}.ISJA 2 rcCÎ 1 ONEPI4de Chanc.2IrNB-FASJEP-BN 6 BCP 1Préfets 6 JORPB 1.- REPUBLÏAUB POPTJLATRE DU BENIN PRESIDENCE DE I,A R.,PUBLIOUB
