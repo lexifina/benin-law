@@ -1,0 +1,8 @@
+# Visas
+
+PRESIDENCE DE LA REPUBLIQUE DECRET No 98-643 DU 30 DECEMBRE 1998 Portant modalités d'application des articles 49 et 61 de la loi n 94429 du 3 juin 1996 portant réorganisation de l,Ordre national du Bénin.
+LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT, VU la loi n" 90-032 du 1 t décembre 1990 portant Constitution de la République du Bénin;
+VU la loi no 94-029 du 3 juin 1996 portant réorganisation de I'Ordre national du bénin ; vu la proclamation le ier awil 1996 par la cour constitutionnelle des résultats définitifs de l'élection présidentielle du l8 mars 1996 ;
+vu le décret n' 98-280 du 12 juillet 199g portant composition du gouvemement , vu le décret n" 98-383 du ll septembre l99g portant aftributions, organisation et fonctionnement de la grande chancellerie de l'ordre nationai du nÉnii; SUR proposition du Président de la République, Grand-Maître de I'ordre : Le Conseil des Minisres entendu en sa séance du l6 décembre l99g ;
+Article ler : conformément aux prescriptions des articles 49 et 6l de la Loi rf94-029 du 3.1uin 1996 portant réorganisation de l'ordre national du Bénin, il est institué des droits de chancellerie pour l'exécution des brevets et la cession des insignes par la Grande chancellerie de I'Ordre national du Bénin.
+Arficle 2 : Les droits de chancellerie seront perçus par ie receveur des domaines de l'eruegistrement et du tirnbre pour le compte de la grandc chancellerie. RTPUBLIQLIE DU BENIN DECRETE La remise des brevets et insignes ne peut être faite qu'après versement de ces droits et au uu au ,e"ô[J i. constatirt par 1ê crana chancelier de 1'ordre national
