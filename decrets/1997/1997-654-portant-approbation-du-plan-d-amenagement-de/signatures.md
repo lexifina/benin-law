@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, Ie...3.1...o. é.c.emhr.e...1 9 9 7 par le Président de la République Chef de I'Etat, Chef du Gouvemement, Le Premier Ministre, de I'Action ia Coordination e et des Relati avec les Institutions, Portedu Gouvemement, t Mathieu U 4* L Le Ministre des Finances Adrien HOUNGBEDJI Ismaël ERPOS Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de I'Homme Le Ministre de l'Environnement, de l'Habitat et de I'Urbanisme, Le Ministre de l'Intérieur, de la Sécurité et de l'Admimshation Territoriale, _l\ lt- N'DA Théophile Amoliations : PR 6 AN 4 CS 2 CC 2 CES 2IIAAC 2 PM 4 MEHU 4 MISAT 4 MF 4 MJLDH 4 AT]-TRES MINISTERES 13 SGG 4 DGBM- DCF-DGTCP-DGID-DGDDI 5 BN-DAN.DLC 3 GCONB-DCCT-INSAE 3 BCP-CSM-IGAA3 UNB.ENA-FASJEP 3 JO 1.-
