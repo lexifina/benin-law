@@ -1,0 +1,14 @@
+# Décret n° 1984-323 du 8 août 1984 Portant création de la commission ad hoc chargé de connaître des faits reprochés au camarade Théophile AHONOUKOUN, Contrôleur de l'Office des Postes et Télécommunications à Cotonou
+
+/DA REPUBL]EL]E FOPULAIRE DU BJI.,III{ PRES]D]NCE DE LA REPUBL]AUE I,E PRESIDENT DE L.1! iùiPtELISUE, CHEF DE LIEIAT, PITESIDENT DU CONSEIL EXECUTII NATIONAL, 1IU Lf ordonnance N" 77-3? du 9- Septemby:e 19TT portant proqlul&atior-r de la loi Fondamentafe de Ia République populalre àu Èénih èi 1es Iois Constitutionnelles qui- lroni modiiiée, w Le décret No B4-f22 du I Âott 1984 portant composition du conseil Exécutif Naticnal et rle son Comité irermanent, VU Ltordonnance No 80-6 riu 11 Féwrier 19gO édlctant 1es dispositions: en vue de 1a répression dlsciplinaire des aéiàurnàments et certaines infractions commis par fes Agents ae l iEtat et 1es trmployés des collectivités 1o c a1è s, SLIR Décisi.on du Conseil Exe<cutif National en 1984, DECRET No A4-12-1 du B Aott 1984 portant création de fa, Commj.ssion ad hoc chargée de connaltre des faj.ts rep.rochés au Caniarade Théodore IIHONOUKOUN, Contrôleur de l t Office oes Postes et TéIécommuni cations à Cotonou.
+sa séance du 6 Jrrin DECRETE +rP"àe-Jg. - En-application c.les disposltinns de ltordonnance No o -ou 11 l"evrier 1980 susvlsée , ..i1 est créé une commission ad hoc rl répression disciplinaire charlie de connaftre des faits reprochée Camarade Théodore AHONOUKOUN. -Contr6leur dê I' Oiiiaé-ciés- P-oÊtèii:ôt Iétr écomnurllêaticns à Cotonoui dans Ïe -aétôurnemeat âur11 4 commis pré3ualce de }a Banque Commeiclale du Bénln et aüOft Offlôe.
+au lli'r-icle 2.- La composition cic fa commi.ssion est r-a suivante :
+Président : Camarade Gilbcrt AHOUANDJINOU, du ministère de la Justice et de Itlnspection des Entreprises Publiques et Semi-fubliques Ivienrbres : Camr:rades : - Justin KOUASSI , de lrlnspeitibn Général6drEtat. Section i--inancièrer
+- Raphaë1 DOBOSSOU, de lrlnspection Généra1e dtÉtat, Section Admini stratl ve , :l
+- Germain AGOSSADOU, du Mlnistère du Travail et des Afiaires Sociales ;
+- Sylvai.n BOYA, du Ministère des Finances et de lrEconomie ;
+- Ll eùtenant-Stagj-aire Ferdinand ASSOGBA et Adjudant-Chef Emmanuel. FENSAH r des Forces Armées Populaires du Bénin ;
+- Eti errne ÂVoSSEVoU du l,{irij.stère de ltEquipement et dis Transports.
+{rt:-ql-e- l.- La Commission clui déposera son rapport dans les quinze ]Tÿ)T'i.rr-s qui suirront sa saisinè indiquera la date d I ef fet des mesures qur e3-1e aura préconisées.
+Arti"1e.-t.- Le présent décret sera publié et communj.qué partout otr besoin s era.
+lait à Cotonou, le B Âott i9B4 Président de 1a République, lrEtat, Président du Conseil Exécutif Nati onal, I\{a'6hieLl KERU(OU Par Ie Chef de I a ^,1 Amplj-ations PB B SA/CCIPRPB 4 I]GCEN 4 PRESIDENÎ ET }IEI{BRES 10.- I
