@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 28 ocroBRE 1997 par le Président de la République, Chef de I'Etat, Chef du Gouvemement, Le Premier , Chargé de la tà, Adrien HOIINGBEDJI '/' Le Ministre de Ia Fonction Publique, du Travail et de la Réforme Administrative / Le Ministre des Finances, Le Ministre de I'Education Nationale et de la Recherche Scientifique (Ministre Intérimaire) - -Ampliations : PR6AN4CS 2CC2 CES2HAAC 2PN44 MF 4MFPTRA4 MENRS 4 AUTRES MINISTERES 14 SGG 4 DGBM-DCF.DGTCP-DGID.DGDDI 5 BN-DAN.DLC 3 GCONB.DCCT-INSAE 3 BCP.CSM-IGAA 3 UNB-ENA- FASJEP 3 JO 1.- Coordination de l'Action Gouvemementale et des Relations avec les Institutions,Porte-Parole du Gouvememenq I
