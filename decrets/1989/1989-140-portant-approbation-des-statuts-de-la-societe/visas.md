@@ -1,0 +1,14 @@
+# Visas
+
+I ,i-,,,JL]QUE POPULAIRE DU BENrN PRESIDB{CE DE LA REPUBLTOUE DECRET No 89-140 du 17 Avril 19€,9 portant approbation des Statuts de 1a Société Natlonale drAssurarces et de Réassurance (sol'1,+ ) .
+I.E PRESTDENT DE LA REPUBLIOUE, CHEF DE LIEIAT, PRESTDENT DU CONSEIL EreCUTTF NATIONAL, V-tJ lf ordor:rranc e No 77'52 du 9 Septenrbre 1977 portant promulgaticn de Ia Loi Fondarnentale de Ia République Populalre du Bénin et les lols ConstitutionLelles qui 1ront rnodiflée ;
+VU l-a Loi No 88-00, du 26 ArrriJ- 19aB relative à Ia création, à 1l organisati.on et au fonctionnement des Ertreprlses Publiques et Semi-Publlques ;
+VU 1e décret N' 84-176 du 19 Ayril 1984, portant approbation des Statuts de 1a Société Nationale dtAssurances et de Réassur,a:rcc;
+w Ie décret N' 88-115 du 29 Juillet 19BB portant composi-tion du Consell Exécutif National et de son Comlté Permanent ;
+StiR, proposltlon du Ml-nlstre des Finances et du Ministre de la Justlce, Chqrgé de ltlnspection d,ps frrlreprises Publlques et Seml-Pub1i"ques, LE Cml.té Permanent du Consell Exécutlf Natlona]. entendu en sa séance dL1 14 Décembre 19881 Artlcle 1er.- Sont approuvés les Statuts de Ia Société Nationale drAssurances et de Réassurance (So.N.A.R.) tels qutl1s sont annexés au présent décret.
+DECRETE :
+Articl-e 2.- Le présent décret qui abroge toutes dispositions antérieures contrai-res, notanment celles du décret No 84-'1 76 du 19 Avril '1 984 sus-visé sera publié au Journal Officiel' Falt à CoToNoU' Ie 17 Atrll 19 par 1e Président de 1a RéPublique, Chef de ltEtat, Président du ConseLl Exécutif Nationalt Le Nlinlstre des Finarrces, L Mathieu KEREKOU stre de Ia Justice, Chargé spectJ.on des E:etrePris:s e 1r fn Àrnpliations s FR I SA/CC 4 Ar'[R 4 CPC 6 PPC 2 WIEPSP-]4]" I SGCEI'I 4 autres Mtnistères 14 SPD 2 DPE-DLC-:INSA§ 6 IGE et ses Secti:ns DCCT-GêE ghADC. 4 ONEPT, 7 SONAR 8 CCIB 2 DB'MF-DSDV-DîCP-DI 1OO UNB-FA.gIEP 4 BN.DAI{ 4 JORPB 'I ..
+I Publiques et Semi-Publiques, :i; l' --!-i.
+-l:-- / Didier DTISSI Saliou ABOUDOU ..-'.--æ STAfiJTSDE LÀ SOC]ETE NAîIONALE DTAssuRANCES ET DE REAssURANCE (so N.n.n.1 !=-È-E:-=-=-=-=- DE LA CREATION. DE LIOBJET SOCIAL. DU SIEGE SOCIÀL. DE LA IX,JRBE. DiJ CAPTTAL SOCTAL Àrticle 1er.- 11 est créé en République Populaire du Bénin une soclété d.tEtat à caractère commercial dénomm&société Nationafe d.r Assr.ra-nces et dè Réassurance (So.N.À.R.).
+EIle est dotée de Ia personnalité morale et de ]r autonomie financière et régie par les di.spositions des présents statuts a.insi que par cel-les de 1a Loi No 8a-OO5 du 26 Arril 1988 relative à 1a création, à lt orgaaisation et au fonctionnernent des Entreprises Publiques et Semi-Publiques .
+!g!!9§3.- Sous réserve rles dlspositions de 1a Lol No BB-005 'lu 26 Awil '1 9BB et du décret dt applicat{on subséquent, e}1e exer'ce son actlvité conformément aux Lois et usages régissant fe fonctionnement des Sociétés Privées .
