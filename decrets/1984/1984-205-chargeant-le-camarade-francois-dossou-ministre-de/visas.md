@@ -1,0 +1,4 @@
+# Visas
+
+/B^ REPUBL]OI.JE POPULAIRE DU BENIN PRESIDENCE.DE LA REPUBLIQUE DtrCRET No 84-205 du B l\[ai 1984 chargeant le Camarade François DOSSOU' Mlnj.stre de fa Justice Populaire de tt intérim du Camarade Armand MONTEIRO' Ministre de lrEnseigrtement Supérieur et de la Recherche Scientifique pour compter du I Itla i 1984 .
+LE PRESIDEI\rT Dri LA RIiPUBLIOUE, CTIEF DE LIETAT, PRESIDENî DU CONSEIL EXECUTIF NATIONAL, \ItJ frordonnance No 77-12 du 9 Septembre 1977 portant promulgation de la Loi Fondamentale de Ia République Populaire du Bénin et fes Lois Const ituti onneff es qui ltont modifiée, VU le Décret N" 82-441 du JO Décembre 1982 portant composition du Conseil- Exécutif Nationat et de son Comité Permanent, DOSSOII, llinistfe de la Justice Pop du Ministre de ltEnseignement Supé tifique, pendant ftabsence du Cama
