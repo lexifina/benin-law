@@ -1,0 +1,3 @@
+# Signatures
+
+Fait a Cotonou, Ie 15 avril 2003 Par le President de la Republique, Chef de I 'Etat, Chef du Gouvemement, Mathieu KEREKOU.- Le Ministre d 'Etat Charg~,.d la Coordination de l' Action GouvemementaIe, de la Prospective et du Developpement, _=:::;7rl-;lin~J- Bruno AMOUSSOU.- Le Ministre des Affaires Etrangeres et d 1 'Integration Afrieai e Le Ministre de 1 'Environnement, de 1 'Habitat et de 1 'Urbanisme, Luc-Marie Constant GNACADJA AMPLIATIONS : PR 6 AN 4 CS 2 CC 2 CBS 2 HAAC 2 MCCAG-PD 4 MEHU 4 MFE 4 AUTRES MINIS TERES 18 SGG 4 DGBM-DCF-DGTCP- DGID-DGDDI 5 BN-DAN-DLC 3 GCONB-DCCT-INSAE 3 BCP-CSM- IGAA 3 UAC-ENAM-FASJEP 3 UNIPAR-FDSP 2 JO 1.-
