@@ -1,0 +1,5 @@
+# Signatures
+
+Fait à CClOlt'-u, t-c 7 A-.tll 1987 s disposit i.ons 256 ô,o 26 JlnLLet ion des débits dê Par le ?résid.ent de l-a Républio ue - Chef de LtEtat, Président d.u' Consell- Exécutif Itrati ona1, \.
+ArtlclP 31.- Est consid.éré conrne défj_nitlvement fermd et ne pouvant être réouvert àans u:e nouverre autorlsation. tout étabiissement de restauratton ou assimilé qui nraura pas été exploité deplis 12 mois, sar:f d.ans les cas -d.e réparatlon, de trânsfn':marion ou d.tagrandissement des locanrr .dtrrent Ëignalés'au niniJire ;I,arg?t de ltIntérieur et de Ia Sécurlié puulique" '/ I --r'* Ed.ouard /zollttouoas Mlnistrê DéLéeué auPrès du Président cle Ia RéPubliquet Chargé cle Lrlntérleur, de La Séotrlté Publlque et de 1 t Administrati on TerriS orlale, tre Mlnistre du Con:rnerce , cle l rÂrtlsanat e t d,u 1o , I L,e Ministre de La Santé Publique, éÀT Girigissou GADO Le Minlstre de LrEqulpement et des l î rans port s soulé Drll{Loiq ÂmpLlatlons r PR 6 §A/CClpRpB 4 SGCEN 4 CplAIr-R 4 C?C 4 p?C z MCAT.MET-I/LSP-M]SPAT 16 AUTBT§ MI}IISTENES .I 1 CEAP 2 X 6 =,I2 IGE 3 SID 1 DB-DC3-DSDÿ-DÎCP-DI 10 DIE-DIC-INSAE-3CP I BN_ nAN 2 JORÏB 1..
+re
