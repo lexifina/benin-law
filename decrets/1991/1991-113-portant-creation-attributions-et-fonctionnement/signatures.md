@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à CCTONOU, le 7 Juin 1991 Pour 1"- Président de Chef de lrEtat, Chef abs ent, 1 e l"lini. stre Ce .La Coordination d nementale,et'de Ic D de 1r intérim, UEsrre EYRA 1a République, du Gouvernement drEtat, chargé e l rAction Gouver- JIênsej- chgrgé 6 AUTRES MIN]STERES I J.O. '1 .- Le Ministre drEtat" chp-rgé de la Coordlnation de l rAc-cion Gcit'rernementa]-e et de 1a Défense, l, Désiré- \ÆEYFA Le Mlnistre de 1 | ECucation Nationale, Le ttlini "1"" du Travail et des Affaires Sociales, eronl_q YO Le et M des Fi nances, inistre du Plan, de lrEconomie Pau}in HOUNTON DJI AD]ÀHO n S e n rl.ma.1re IT1 6,{N 4 CS 1 SGG 4 }11AS-MEN-MPEF 2 DCOF-DI-TNS,\E 6 UNB-FASJEP-EN./T-DB A-urpllations 12 DGPE/MTAS \
