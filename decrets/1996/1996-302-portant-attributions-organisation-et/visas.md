@@ -1,0 +1,10 @@
+# Visas
+
+ItPUBr.rOUt DU Bffilil DECRET l\o 96-302 du 22 Juillel t996 PRESIDENCE DE LA REPUBLIQUE portant ettributions, oryanisation et fonctionncment du Ministère des lllines, tlc l'Energie et de I'Ilytlraulique LE PRESIDENT DE LA REPUBLIQUE, CHEF DU GOUVERNEMENT La Loi No 90432 du I I Décembre 1990. portant Constitution de la Républiquc du Bénin ;
+La Proclamation du I er Avril I 996 par la Cour Constitutionnelle des Résultats définitit's des Elections I'résidentielles tlu l8 lüars 1996 : Le Décret No 96- l 28 du 9 Avril I 996, ponunt conrp,osition du (lour emelncnt : Le Décret No 9246 du 3 lvlars 1992 ponant anributions, organisation et fonctionnement du Ministère de l'Energie. des lVlines ot de l'Hydraulique : VU W W VU W CHEF DE L'ETAT, Le Décret No 9l -218 du 25 Septembre l99l, ,ixant la composition des cabincts du PrésiJent de la République et des lvlitristres Sur proposition du Ministre des Mines. dc I'Encrgie et de I'Hytlruulique : Le Conseil des Ministres entendu en sa séruce du 0i Juillet 1996 :
+DECRETE TITRE PREMTER Article ler : Le Ministère des Mines, de l'Energie ct de l'Hydrauliquc a Oour Inission de concevoir, d'appliquer et de contrôler la politique du Gouvernement diurs les donraines des Mines, de I'Energie et des Ressources en Eau.
+A ce titre :
+en matière d'énergie, il assure, en collaboration avec tous les acteurs du secteur , le développement du secteur de l'énergie par la valorisation des ressources énergétiques. Il propose et exécute le Plan Energétique National ;
+en matière d'hydraulique, il initie, anime, coordonne et règlenente les activités relatives aux ressources en eau.
+II exerce un contrôle p€rrnanent sur toutes les Entreprises à caractère minier, énergétique et hydraulique et veille à l'application de tous les textcs législatilb et règlenrentaires les concernant en vuc d'accroître lcur ellicacité.
+Enfin, il constitue et gère une Banque de données devant contribuer à une bonne gestion des ressources naturelles et à I'orientation de la Politique nationale de développement.
