@@ -1,0 +1,9 @@
+# Visas
+
+I a REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQT]E DECRETNo 99-151 DU. 11 MARS 1999 poftaut approbation du bilan et des comptes alrlexes du Bureau béninois du droit d'auteur (BUBEDRA) pour l' exercice clos au 3l décernbre 1997 LE PRESIDENT D[ LA REPLTBLIQUE, CHtrF DE L'ETAT, CHEF DU GOUVERNEMENT, Vu la loi n" 90-032 du 11 décernbre 1990 portant Constitution de la République du Bénin ;
+Vu la loi n' 94-009 du 28.1uillet 1994 portant création, organisarion er Ibnctionnement des offices à caractères social, culturel et scientifique ; Vu la Proclamation le ler awil 1996 par la Cour constitutionnelle des résultats définitifs de l'élection présidentielle du l8 rnars 1996 ;
+Vu le décret n" 98-280 du l2 juillet I 998 portant composition du gouvemement , Vu le décret n' 97 -170 du 07 avril 1997 portant attributions, organisation et fonctionnement du ministère de la Culture et de la communication , Vu le décret f 97-166 du 07 awil 1997 portant attributions, organisation et fonctionnement du ministère du Plan, de la restructuration économique et de la prornotion de l'ernploi ;
+Vu le décret no 93-114 du25 mai 1993 poftant attributiols, organisation et fonotiomement du Bureau béninois du droit d'auteur (BUBEDRA) , a a t Sur rapport conjoint du ministre de la Culture et de la communication et dr"t rninistre du Plan, de la restructnration économique et de la promolion dc l'emploi ;
+Le conseil des ministres entendu en sa séancc du 24 février 1999 .
+DITCRETE Article ler.- Sont approuvés le bilan et les cornptes annexes de l'exercice clos au 3l décembre 1997 dLr Bureau bénurois du droit auteur (BUBEDRA) tels qu'ils tigurent en aunexe à ce décret.
+Fait à Cotolou, le f 1 Mars 1999 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Mathicu KEREKOII Le rninistre du Plan. de la restructuration éconornicluc ct dc la prornotion clc l"ernploi, Le rninistre de la Culture et del unlcatlon- Albert TEVOEDJRtr.- Sévérin AD.I I
