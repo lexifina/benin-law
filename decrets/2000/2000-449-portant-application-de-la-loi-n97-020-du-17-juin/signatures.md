@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, Ie 'l 1 septembre 2000 Par le Présidenl de la République, Chcf de l'Etat, Chcf du Gouverncmcnt, athieu KEREKOU.- Le Ministre d'Etat, ChargédelaC lllatlon de I'action Go uvernementale, d Plan. dr.r t-t Développernent et de la Prornotion de l'limploi.
+Bruno AMOUSSOU.- l Le Minis des Finances, e [.e Ministrc de la Fonction PubliqLr u Tra et de la Ré Adrn tratr ve erd co llolr le, i ) A 0u lavc IO-TCHANE.- Ousmane BATOKO.- Le Ministre de la Santé Publique, Lc Ministre Délégue auprès du Président de la République, Chargcdc Défènse Nati Nl arin r d'AL['lEIDA I]IASSOtI(;BOD.l I - rc OSHO Le Ministre de l'lntérieur, de la Sécurité et de l'Administration Territoriale, DanielTAWENIA - AMPLIATIONS .PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 MECCA(i-PDPE 4 MISAT 4 MFPTRA 4 MFE 4 MDN 4 AUTRLS MINISTERES 13 SGG 4 DGBM-DCF-DGTCP-DGID-DGDDI 5 BN-DAN-DLC 3 GCONB-DCCT- INSAh 3 tsCP-CSM-ICAA 3 UNB-ENA-I.ASJEP 3 JO I a t o I LL \
