@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à COTONOU, le 19 NOVE!{BRE 1997 Par le hésident de la RéPublique, Chef de l'Etat, Chef du Gouvemement, Mathieu KEREKOU.- Le premier Ministre, de la Coordination de I'action e et des Relations avec les Institutions, Porte-Parole du Gouvernement, ,"/* L l^ Le garde des sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, Adrien HOUNGBEDJI.- tection Le Ministre de I'Intérieur, de la Sécurité et de I'Administration Territoriale, Th hile N'DA.- Le Ministre la de la Sociale et de Condition F Marina d'ALMEIDA MASSOUGBODJI Ampliations:PR6 AN4 CS 2 CC 2CF;SZHAAC 2PM4MSPSCF 4'MILDH4 I,IîAT q AUTRES MINISTERES 14 SGG 4 DGBM-DCF-DGTCP-DGID-DGDDI JïN-nnu-olc 3 ccoNB-DCCT-INSAE 3 BCP-cSM-IGAA 3 IrNB-ENA- FASJEP 3 JO 1.-
