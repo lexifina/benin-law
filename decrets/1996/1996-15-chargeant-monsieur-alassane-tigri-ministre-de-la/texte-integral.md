@@ -1,0 +1,8 @@
+# Décret n° 1996-15 du 11 janvier 1996 Chargeant Monsieur Alassane TIGRI, Ministre de la Jeunesse et des Sports de I'intérim de Madame Félicienne Sophie GUINIKOUKOU, Ministre de la Culture et des Communications pour compter du 15 Janvier 1996
+
+/w,- RæUBIJOUE DU BENIN W 1a Loi No 90-052 du 11 Décenbre 1990 portant Constitutlon de 1a Républlque du Bénin ;
+W la Décision No 91-CÉ2/HCR/PT du j0 l4ars 1991 portant pr,r.;claroation des résuLtats définltifs du deuxiène toui des élections présldentiel1es du 24 l4ars 1991 i W Ie Décret No 95-rSl du 22 Novenrbre 1995 portant composition du Gouvernement i PFIESIDET{CE D8 LÀ REzuBLIAUE A]'IPLIATIONS ! PR 6 AN 4 C DECR]IT No 96-1 5 du 11 Janvier 1996 Chargeant Mons j.eur Alassane l[GRt, Minlstre de 1a ileurrâ sse êt cle§ Sports de Ir lntérin de l.radame Félicleruee Sophie clltlüKoJKOU, Minlstre de Ia Culture et des Connrüications pour c oûrpter du 15 Janvier 1996.
+I.E PRESIDENT DE LA REPUBIJQUE, CI{IIF DE LIETÀ?, CHEF' DU GOU'fER.NEI,,IS{T, DEC E TE Artiqle 'Î_el. - P otr conpter du 15 Janvier 1996, Monsieur Àlassane ITGRI, Mlnistre de 1a Jeunesse et des Sports est chargé de lrintérln du Minlstre de Ia Cullure et des Communications pendant lrabsence de l.ladane Féliclerure Sophie GUINIKOIJKCIJ.
+Articl-e 2.- Le présent Décret sera publié au Journal 0ff1cie1.
+FIAT à COTONOU, le 11 Janvier 1996 Pour Ie Président de l-a République, Chef de ltEtat, Chef du Gouvernenent et par déIégatloÀ, le l,Ilnistre drEtat, chargé de 1a 'Coordination de lrAction Gouvernenentas2 6D 1e et de 1a Défense ona1e, Désiré WEYRA..
+cc 2 cEs 2 HAAC 2 MEÆN 2 I.üS-tÿrCC 6 æARIEi,JANTS 6 JORB 1.- ffi + trutnrs IvüNrsrERES l
