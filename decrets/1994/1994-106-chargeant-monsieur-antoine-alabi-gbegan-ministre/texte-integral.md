@@ -1,0 +1,9 @@
+# Décret n° 1994-106 du 14 avril 1994 chargeant Monsieur Antoine Alabi GBEGAN, Ministre de l'Intérieur, de la Sécurité et de l'Administration Territoriale de l'intérim de Monsieur Robert M. DOSSOU, Ministre des Affaires Etrangères et de la Coopération pour compter du Lundi 14 Mars 1994
+
+PRESIDENCE DE L;\ REPUBLIQUE LE PRES]DENT DE LA REzuBLIQUE, C}MF DE LIETAT, Cr{EF DU GOUVERI.{EI\/IEIÙT' VU Ia Loi hlogO-Of2 du 11 Décembre 1990 portant Constitution de 1a République du Elénin ;
+TT...
+REzuBLIOUE DU BENII{ VU l-e Décret No9 Gouvernement DECRET 94-106 du 14 Àvril 1994 charseant Monsieur Antoine Alabi GBEGÀ}], t"liniétre de l-tIntérieur, de Ia Sécuritj et de ltAdministrati-on Territoriale de 1?intérim de Monsieur Robert M. DOSSOU, Ministre des Affaires Etrangères et de la Coopération pour compter du Lundi 14 l4ars 1994.
+Iru la Décislon No91 -042,/HCR/pt au Jo Mars 1991 po des résultats définj-tifs du deuxième tour des tielles du 24 Mars 1991 ;
+rtant Proclamation élections présidendu OB Septembre 199f portant composition du Octobre 1991 portant déIégatlon -de pou- Ministre àiutât, Secrétaire Général- à la VU 1e Décret No91-244 du voirs et de signature Prési,lence de Ia RéPub ,l DOSSOU.
+Arti c1e t7 auliq Article 1êr.- Pour compter du Lundi 14 F EGb-ÏTffiN, Ivlinistre de lrfntérieur, d tration Territoriale est chargé de ltint Etiangères et de Ia Coopération en ]rabs ECRETE 2.- Le présent Décret sera publié au Journal Officiel' Fait à CO'IîNOU, 1e 14 Avril 1994 évrier '1 994 Monsieur Antoine e 1a Sécurité et de l r.A.dminisérim du Ivtinistre des Affaires ence de Monsieur Robert 11.
+e 1a RéPubli6ue , f d.u Gouvernément, et l4ini stre drEtat, Pour Ie Président d Chef de ltEtatr Che par dé1égation, -1e l iations PR 6 ÀN 4 CS 2 ME 4 SGG 4 MÀEC-MISAI 4 ÂUTRES IVI]NISTEREI] PÀR TS 6 JORB 1.- IT
