@@ -1,0 +1,7 @@
+# Décret n° 1985-324 du 15 août 1985 Chargeant le Camarade André ATCHADE, Ministre de la Santé Publique de l'intérim du Camarade Zul- Kifl SALAMI, Ministre du Plan et de la Statistique, pour compter du 15 août 1985
+
+REPUBLIOUE POPULAIRE DU BENTN PRESTDEX\ÏCE DE LA REPUBLIOUE DECRET No 85-)2t+ du 15 ,\ott 1985 chargeant fe Camarade André ÀTCHADE, Ministre de l-a Santé Publique, de I I intérim du Camarade ZuI-Kifl SALAMI , Min j.stre du Plan et de Ia Statistique, pour compter du 15 aott 1985.
+LE PRESIDENT DE LA REzuBLIQUE, CHEF DE LIETAT, PRESIDENî DJ CONSEIL EXECUTIF NATfONA]., VU ltordonnance No 77-12 du 9 septembre 1977 portant promulgation de 1a Loi Fondamentale de 1a République Populaire du Bénln et 1es Lois Con stitutionnelle s qui lront modifiée ;
+W le décret No 8t+-122 du J aott 1ÿ84 portant composition du Conseil Exécutif National et de son Comité Permanent ; DE C R E T E Artlcle 'l er.- Pour compter du 15 aott 1985, le Camarade André est chargé de f intérim ÀleHA-DE, MJnistre de la Santé Publique, du Minlstre du PIan et de Ia Statistique, pendant lrabsence du Camàrade Zul-Kifl SAIAMI.
+Artlcle 2.- Le présent décret sera publié au Journal Officiel.- Fait à Cotonou, 1s 15 Aott 1 Président de 1a République, ltEtat, Président du Conseil Exécutif National, 1e de par Chef Àrnpl-lations : PR 6 SA,/cc4 4 SGCEIJ 4 MSP 6 Autres Minist DPE.DLC-INSAE ONEPI-Gde Chanc. J Mathieu KEREKQU PPC2CPC6},PS.
+4 BN-DAN 4 DCCT- 6 JORPB ,1 . - SPD 2 6 ]GE é fets ere FASJEP4BCPIPr
