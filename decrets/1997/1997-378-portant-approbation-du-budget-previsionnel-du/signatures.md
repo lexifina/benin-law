@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à COTONOU, le 31 JUILLET 1ee7 Par le Président de la RéPublique, Chef de I'Etat, Chef du Gouvemement, Mathieu KEREKOU.- Le Premier Ministre, c de Ia Coordination de l'Action Gouvernementale et des Relations avec les Institutions, Porte-Parole du Gouvemement, Adrien HOUNGBEDJI Le Ministre des Finances, Le Ministre du Développement Rural, Jérôme SÀCCA KINA.- Æ.%.ÿ+- Le Ministre du Plan, dc la Restructtrratiot't Economique et de la Promotion de l'EmPloi, AIbert TEVOEDJRE .- Amnliations : PR6 AN4 CS 2 CO 2 CES 2 FIAAC zPM4MF 4MDR4 ffiPEAUTRES MINISTERES 14 SGG 4 DGBM.DCF-DGTCP.DGID- DGDDI5BN-DAN-DLC3GCONB-DCCT-INSAE3BCP.CSM-IGAA3 TINB-ENA-FASJEP 3 JO 1.-
