@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à COTONOU, le 24 juin 1997 Par le Président de la République, Chefde l'Etat, Chefdu Gouvernement, Mathieu KEREKOU.- Le Premier Ministr ,chargé de la Coordination de l'Action Gouvernementale et des Relations avec les Institutions, Porte-Parole du Gouvernement, Adrien HOUNGBEDJI.- Le Ministre de l'Intérieur, de la Sécurité et de l'Administration Territoriale, Théophile N'DA.- Le Ministre de l'Environnement, de l'Habitat et de l'Urbanisme, AmpHations : PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 PM 4 MEHU 4 MISAT 4 AUTRES MINISTERES 15 SGG 4 OGBM-OCF-OGTCP- DGID-DGDOI5 BN-OAN-DLC 3 GCONB-OCCT-INSAE 3 BCP-CSM- IGAA 3 UNB-FASJEP-ENA 3 JO 1.-
