@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 20 février 2001 Par le Président de la République Chef de l’Etat, Chef du Gouvernement, Mathieu KEREKOU Le Ministre d’Etat, chargé de la Coordination de l’Action Gouvernementale, du Plan, du Développement et de la Promotion de l’Emploi Bruno AMOUSSOU Le Ministre de l’Intérieur, de la Sécurité et de l’Administration Territoriale, Daniel TAWEMA Signatures Le Ministre de l’Environnement, de l’Habitat et de l’Urbanisme Luc-Marie Contant GNANCADJA Le Ministre des Finances et de l’Economie Abdoulaye BIO TCHANE AMPLIATIONS PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 MECCAG-PDPE 4 MEHU 4 MISAT 4 MFE 4 Autres Ministères 16 SGG 4 DGBM-DCF-DGTCP-DGID-DGDDI 5 BN-DAN-DLC 3 GCONB-DCCT- INSAE 3 BCP-CSM-IGAA 3 UNB-ENA-FASJEP 3 JO 1

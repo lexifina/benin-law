@@ -1,0 +1,8 @@
+# Visas
+
+DECRET N°2001-095 DU 20 FEVRIER 2001 PORTANT CREATION, ATTRIBUTIONS, ORGANISATION ET FONCTIONNEMENT DES CELLULES ENVIRONNEMENTALES EN REPUBLIQUE DU BENIN LE PRESIDENT DE LA REPUBLIQUE ; CHEF DE L'ETAT ; CHEF DU GOUVERNEMENT ; Vu la Loi N° 90-032 du 11 décembre 1990 portant Constitution de la République du Bénin ; Vu la proclamation le 1ER avril 1996 par la Cour Constitutionnelle des résultats définitifs de l’élection présidentielle du 18 mars 1996 ;
+Vu la loi N° 98-030 du 12 février 1999 portant Loi-Cadre sur l’environnement en République du Bénin ;
+Vu le Décret N°99-309 du 22 juin 1999 portant composition du Gouvernement ; Vu le Décret N° 96-402 du 18 septembre 1996 fixant les structures de la Présidence de la République et des Ministères ;
+Vu le Décret N°97-194 du 24 avril 1997 portant attributions, organisation et fonctionnement du Ministère de l’Environnement, de l’Habitat et de l’Urbanisme ;
+Vu le Décret N°97-176 du 21 avril 1997 portant attributions, organisation et fonctionnement du Ministère de l’Intérieur, de la Sécurité et de l’Administration Territoriale ; Sur proposition conjointe du Ministre de l’Intérieur, de la Sécurité et de l’Administration Territoriale et du Ministre de l’Environnement, de l’Habitat et de l’Urbanisme ; Le Conseil des Ministres entendu en sa séance du 07 février 2001 DECRETE :
+CHAPITRE I : De la Création et des attributions de la Cellule Environnementale. CHAPITRE II : De l’organisation et du fonctionnement de la cellule environnementale CHAPITRE III : Des Dispositions diverses Création et Attributions de la Cellule Environnementale CHAPITRE I : De la Création et des attributions de la Cellule Environnementale.
