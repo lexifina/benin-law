@@ -1,0 +1,5 @@
+# Visas
+
+PREMIER MINISTR.E CHEF DU GOWERNEMENT !g-/ HEPUBL]OLIE DU BENIN VU 1r ordcnnance l- I ordonnan ce Fondanen tale DECRET No90-1 1f du 21 juin 1990 chargeant Mons j.eur Jean F1ôrentln FELIHO, Ministre de 1 Publique et d rlale de 1r in du Piinlstre d compter .lu 22 rfntérieur, de la Sécurlté e l- tAdoinistrat ion Territotérlm du Premier Ministre el e l-a Défense Nationale pour juln 199O.
+LE PREMIER MINISTRE, CHEF DU GOUIERNEMENT no no du 90-001 du '1 er mars 1990 portant abrogation de 77-12 du 9 septembre 1977 proEulguant Ia Loi 26 août 1977 de 1a Républlque Popul-aire du Bénln, VU lrordonnance no 9O-OOJ du 1er mars '1 99O portant nouvelle dénomlnation de lrEtât, \rtj Ie Décret no 90-43 Min is tre , du 1er mars 199O portant nomination du Premler VU Ie Décret no 9O-r1 du 14 mars 1990 portant corposltion du Gouvernement de-. Traasttion ;
+DECRETE Artlcle 1er,- Pendant la durée Ce la mission à ltextérieur du Territoire National- de Monsieur l-e Premier Ministre et Ministre de la Défense Nationale, Monsleur Jean Florentin FELIHO, Ministre de l- t Intérleur, de 1a Sécurlté Publique et de 1 rAdminis tratlcn Terrltorlal-e est chargé drassurer f rintérira.
