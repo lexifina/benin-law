@@ -1,0 +1,7 @@
+# Visas
+
+I I ntrPUS LrQIlE DÜ uÂ110r,IEÏ mxs1DDl{cE Dll I4, RXPUE LIQUI! 0nD0ll{liCE }r"?ts59 du 22 Aott 1975 1:ortant approbation rles Statuts de Ia Caisse ltrationale do Crédit Àg:rico1e.
+( c. N. c. À. ) i,E PRES]DEiIT !E L\ lTE PI]I] IIqUE CHE ])E II ]ITAT, C]]I]I DU GOWIII]. ]I.IEIIT, YU 1a Proclamation d.u 26 octobre 1tJ2 ;
+W l r ordoruranrco Ne? 5-5f du 22 Aott 19?5r instituarrt ur:o taxo d-c crérlit a8ricolet VII tr t onlonna.lrcc No?5-58 du 22 Août 19?5r port ant organisation alu Cnécllt -ûgridole su Dahomey 3 lTU Ie Décret rL"I 4-2'].7 du 21 octobro 1974t portant forr,ri,tion du Gouvorrreüent et 1es clécrets nodificatifs subséquents I vu l_e Décret n"74-289 du 4 novcnbr e.' 1974t détcrninant les services rattachés à 1a Pr6sidence de l-a Iiépurrlique ct fixant Lcs attrlbutj-ons d.os neltbros d.u Gouvcrnenent I SIJR proposition tlu l&inistre rlu néveloppenent Ru-ral trt cle l-t.iction Coopérative ; J L,e Conseil des Ministres cntcnd.u, 0R IJ 0l:,I 1{E :
+Articlc 1e!.- Sont approuvés lcs Statuts de Ia Caissc ]ilationalc de reÏT.aJ;iels qur i1s sont armoxés à 1a pr'Jsonte orcoima"frce.
+onn:.,nc e qui abtoge toutos dispositions antérieures c or.u,re Loi de ltXtat. /- Crétl it Àgr ic o 1e Articlo 2.- Ic iiinistre du Dévelo ppctrcnt Rura] ct t', e 1rÀctior.r Coopérative, .ot le Ministre dont clcipenclet.rt 1os Firlencesr sont chârêés, chac r.rn en co qui 1o concerne, do ltexécution dc fa présento Ord.onnancc.
