@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le '1 9 Octobre 2ooo Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, athieu KEREKOU.- Le Ministre d'Etat, Char e la Coordination de l'Action Gouv entale, du Plan, du Développement et de la Promotion de l'Emploi, Bruno AMOUSSOU.- Le Mi des Finances Le Ministre délégué auprès du, Président de la République, chargé et de 1' onomle, de la Défense National t .IYUr\^- \ Abdoulayc B TCHANE.- reOSHO.- r AMPLIATIONS : PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 MECCAG-PDPE 4 MDN 4 MFE 4 AUTRES MINISTERES 16 SGG 4 DGBM-DCF-DGTCP- DGID-DGDDI 5 BN-DAN-DLC 3 GCONB-DCCT-INSAE 3 BCP-CSM-IGAA 3 LINB-ENA-FASJEP 3 INTERESSE O1 JO I.
