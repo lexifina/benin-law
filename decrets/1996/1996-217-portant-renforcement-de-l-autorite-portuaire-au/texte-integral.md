@@ -1,0 +1,19 @@
+# Décret n° 1996-217 du 31 mai 1996 portant renforcement de l'autorité portuaire au Port de Cotonou
+
+/ot REPUBLTOUE DU BENIN ERESIDM{CE DE LA REPUBLIOUE VU La Loi No 9O-Or2 atu 11 République du Bénin ;
+DEC.FET No 96-217 du 11 Mai '1 996 portant renforcement de lrautorité portuaire au Port de Cotonou LE PRESIDU\Iî DE LA, REPUBLI,IUE, . CHEF DE L'ETAT, CHEF DU GOLMETNEM'NT, Décer:nbre 1990 portant Consti-tution de 1a \frJ LrOrdonnance No 75-55 du 1'1 Octobre 197 nement de 1r Etabl-i s Sement Public - charg Cotonôu ;
+VU La Proclamation 1e ler Avril -1 996 par 1a Cour Consti,tutionnelJ-e des résultats définitifs de ]-tElection Présidentielle du 18 Mars .r ooÂ .
+, | )-,v , 6r éd éorganisant 1e fonctione la Gestion du Port de les pou- 'VLt: Le Déaret N" 89-106 du 28 Juillet.1 989 portant appiobation des statu;s du Port Autonome de. Cotono-u..i., ll, Conself des Ministres entendu en sa séance du 08 Mai 1996 Article '1 e6.- Le Port Autonome de Cotonou (PnC) est inve sti âaa r iraprérogàtivès de 1 rAutorité portuai-re.
+A ce titre, il- assure_dans le domalne portuaire, voirs dévolus à l4 pui€€arqÊ Puhlique.
+Articlq 2.- LrAutorité portuaire est chargée :
+- de eJncevoir etdlappliquer une politique de gestion et du domaine portuai.re, de 1a mise en pface et de ltexploit Equipenents permettant 1e passage du trafic au port I deat prcmo ti on lon des I VU Le Décret 11o ÿ6-1 28 du 09 Avril 1996 portant composition du Gouvernement ;
+\/lJ Le Décret No 92-18 d.u Of Février 1992 portant attrjbutions, organisatlon et fonctionnement du Ministère des Travaux Publics et des îransports ;
+d F r, p ri r E
+- drencouragqr, de faciliter et drorganiser sur le plan commercial )-a communauté portuaire pour mieux répondre aux exigences rlu marché afln de faire du Port de Cotonou un centre logistigue de commerce I approfondie et .après avis d,r:n Comité adthoc Opérateurs portuaires désireux drexercer ses ur 1a base drun contrat dragrément défini par -d des act des e donner, après étude autorlsations à tous ivités dans le Port s cahiers de charges I e veiller à ce que 1es activités s et règlements.
+se dérouler.t dans 1e respect des -d 1ol Article f.- Les Serviceo publi.cs intervenant au Port de Cotonou sont -p1acés sous Ia tutelle fonctiorurelle de lrAutorité portuaire, tout en demeurant sous Ia tutelle admini stratj.ve de leurs départements respectifs. Arti-c1e 4.- ôontiaire s, Le présent Décret abroge toutes dispositi-ons antérieures notamment celles du Décret No 96-1 1f du 02 Àvr.iI 1996.
+Artlcle 5.- Le Ministre des Travaux Publics et des Transports, Le M:-:rTlîe-Oe1égué auprès du Président d.e 1a République, Chàrgé âe 1a Défense Nationale, r-e Mini stre de lrIntérieur, de 1a Sécuriié et de 1 rAdmini stration lerritoriale et l-e Ministre des Finances sont chargés chacun gr ce. qui le concerne de ltapplication du présent Décret quiprend .effet à compte-r de 1a date de Èignature et qui sera putr}1é èt coouuniqué partoùt oir bqeoiu sera.
+Par 1 Chef de Fait àCotonou, 1e ,1 ÿ1aL-1996 e Président de 1a République, lrEtat, Chef du Gouvernement, ,-1 I Mathi eu KEREKOU. - Le Premier Ministre, Chargé de 1a Coordination de ltAction Gouvernementale et des Relations avec 1es Institutlons, ,/, L_ -'' Maltre Adrien HOUNGBEDJI Le.Ministre Détégué auprès du Président de l-a àépublique, Chargé de Ia Défenie Na{ionale Le Ministre des Travaux publics etù des Transports, "t ,",t-''.
+/ .r' .- -.
+l ..-- (..
+évéri ADJOVT Kamarou FASSASSE Le Mi-ni stre des Finances, t.,lr, I ,4* Théophile T\T I T't^ - lvlol se A liations PR 6 A}I 4 CC 2 CS 2 CES ZHAAC 2 ,Pfi PG 4 AMBASSADES '4 AUTRES ItrN]STtrRES 1 DGBM-2o EMGFÂB ] DP!]-DAJL-INSAE ] TGF 6 PREFETS 6 sou DGTCP.CF 2 DCCî-ONDPI -GCONB' UNB-FASJ]1P-BN ] BCP 1 J -t.
+I \ 4 MISAT 4 IUDN 6 ct\B/trLrL/pR Z S PRtrFETS 79 (\a - Le l{ini stre de ltIntérieur, de la Sécurité et de 1,Administration Territoriale, ..( )
