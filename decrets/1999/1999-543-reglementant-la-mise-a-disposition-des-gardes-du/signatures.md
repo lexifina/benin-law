@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 22 novembre 1999 I ieu KEREKOU.- DES DISPOSITIONS DIVERSES Par le Président de la République, Chef de L'Etat, Chef du Gouvernement, ) Le Ministre d'Etat, chargé de la Coordination de l'Action Gouvernementale, du Plan, du Développement et de la Promotion de l'Emploi, Bruno AMOUSSOU.- T a Le Ministre délégué auprès du Président de la République, chargé de la Défense Nationale, erre 0SHO.- Le Ministre de l'Intérieur, de la Sécurité et de 1'Administration Tenitoriale, Le Ministre des Finances, et de l'Ec e, Abdoulaye BIO-TCHANE.- le garde des sceaux, Mnistre de la Justice, de la Législation et de Droits de l'Homme, elT EMA.- J SE h H. GNONLONFOUN.- AMPLIATIONS.- : PR 6 AN4 CS 2 CC 2 CES 2 HAAC 2 MECCAG-PDPE 4 MFE 4 MJLDH 4 MISAT 4 MDN 4 AUTRES MINISTERES 14 SGG 4 DGBM-DCF-DGTCP-DGID-DGDDI 5 BN-DAN-DLC 3 GCONB-DCCT- INSAE 3 BCP-CSM-IGAA 3 BN-DAN-FASJEP 3 JO 1.
+\
