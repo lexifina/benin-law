@@ -1,0 +1,6 @@
+# Signatures
+
+Fait à Cotonou, le 4 Octobre I996 Mathieu KERÈKoU Réforme Admi rative rgédela Coordination de I'Actio ouvernementale c les lnstitutions -1^.
+Adrien HOUNGBEDJI Amoliations : PR 6 AN 4 CS Z CC Z CES Z HAAC ZpM 4MFPTRA4 MF 4 Autres Ministères 1 S SGG 4 DGBM-DCF-DGTCP-DGIB_DGDDI 5 BN_ DAN-DLC3 GCONG.DCCT.INSAE 3 BCP.CSM.IGAA 3 UNB.ENA-FASJEP 3 JO 1.- Le Ministre de la Fonction Publique, du Travail et de la Par le Président de la République, Chef de I'Etat, Chef du Gouvernement Le Premier Ministre et des Relations .t 5.0 SccréttlrE Prrllculler 1.6 DirEcleur u Journrl Off ct de l'lmpriür, 3.1,,t Chef rtrvlcc dcr Archlvor 3.4.1 Chef, rcrvlcc rdElnltlrlllon el 8crtlon J.4,2 Chef, rervlcc budgel ct complebllllé 3.4.3 Chef, rervlce rtlourcer humalncr !,4.4 Chc( rcnlct lnforurdqua
+- MÂoro-é.c.nomio cl adjoiot
+- A6.ir!r Extériourcr ct {djôiît -ÂffÀiro. lntério{.oe ol rdjoiot Conroillcrr S 5.1 Aldc dc CrDrp 6.0 Organismes Rattachés 2.01 Dlrccteur rdJolnt de Crùbct 3.5 Direcacur de! Archlvcr Nrtlolaler 3.7 SGG Adjolüt IlgLlrtlon, RégleEcrlrtloD Gt 3.3 SGG AdlolDl Orgrtrltrtlo! cl mplolr supérlcun 3_,1 Dtrccioür de l'Adml[hlmtlotr meDcltâlet 3.1 SCG ÂdJolnt Réullolll lquer 2.7 Cônieillert 2.4 Chof du holocolo 2.5 Chêf de Prctte ct Rclrtlo!! Publlqlcr 2.t Chefde CrblEel 2.3 Mkrlor do t I I .l(t l,ltl.sll)1.\ I
