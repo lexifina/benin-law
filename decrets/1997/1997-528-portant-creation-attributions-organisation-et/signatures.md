@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le z4 ocrosRg tggz U par le Président de la RéPublique, Chef de I'Etat, Chef du Gouvernement, ,1 Le Premier Ministre, chargé de la Coordination de 1'Action Gouvernementale et des Relations avec les Institutions, Porte- Parole du Gouvernement, Le Minishe du Plan, de la Restructuration Economique et de la Promotion de l'Emploi, Le Ministre des F'inances, TRE MENSAH Le Ministre de la Santé, de la Protection Sociale et de la Condition Féminine, Am hations : PR 6 AN 4 CS 2 CC 2 CES 2 I{AAC 2 PM4 MPREPE 4 MSPSCF 4 MF 4 AUTRES MINISTERES 14 SGG 4 DGBM-DCF-DGTCP- DGID-DGDDI 5 BN-DAN-DLC 3 GCONB-DCCT-INSAE 3 BCP.CSM-IGAA 3 UNB-ENA-FASJEP 3 JO I.- d{X"t É:b19 Adrien HOUNGBEDJI Mar ina d' A LM EIDA-MASS O U G BODJI
