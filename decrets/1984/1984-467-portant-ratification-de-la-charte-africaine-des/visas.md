@@ -1,0 +1,6 @@
+# Visas
+
+'.
+/BA REPUBL]OUE POPULAIRE DU BENIN t PRESTDENCE DE LA REPUBLIQUE VU 1e décre Permanen tion de et des P VU ortant compôsition dü. Conseilermanent ;
+Décembre 1 984 autorisant la des Droits de f rHomme et des ae / lJecembrP 'l q.i4 VU vtJ DECP€T N. B4-4dA du 7 Décembre .1 984 portant iatification de la Charte Afrlcain des Droits de lrHomme et des peuples LE PRESIDENT DE LA REPUBLTOUE,, ,, -I CHEF DE LIETAT, PRES]DENT DU' COIISETL EXECUTIF I\,IAT]ONAL, L?ordonhance N, 7T-32 du 9 Sentembre 197T portant promufeation de la Lot Fondamentate de Ia République eâputâiru-à; ËÈ;î;-E;-i"" Lois'ConstitùÈionne].1esquii'ont,modiiià;;_- 1e décrét No B4-j22 du I Aott 1Ç84 n Exécutif National et de son Comité É " ?!-Zl S du _21 Ivlr i 1984 Dortant transmission au Comité e l-rAssembléé Nationale Révol-uti onnaire , pour autorisaification, de la Clarte Africaj,ne aes Dioits ae fiÈàmÀe Ia décision N" B4-28/AI,IR/Cp/p du h ratification de 1a Charte Africaine Peuples;
+tN td rat eup DECRET E Aft+cl€Jer-. - Est ratifiée la Charte Africaine des Droits de f rHomrne el des-feuples issue de fa décision i{" 115 (XVI ) de Ia conférence des clefs drEtat et de Gouvernement en sa r6ame'seiÉià" ô"ai"âi"e tenue à Monrovia (fi,uéria), du jT ""-âO Jüiiiet-1glg et dont Ie textese trouve v4 uvrJrv.
