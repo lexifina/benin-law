@@ -1,0 +1,7 @@
+# Visas
+
+r)ECREI t{" 95-390 du ll Décembre 1995 Fixant Ie 14 Décembre 1995 corme date Exceptionnelle de nominations dans les Ordres du t{érite Social et du }lérite Agricole de .la Rêpublique du Bénin PRESIOET{CE DE LA REPUBLIQUE DECRETE Article ler: En appl ication de l'article 34, al'inéa ler de.la Loi n' 86-0.l0 du 26 Fêvrier 1986 portant création de l'0rdre National du Bénin, modifiée par la Loi n" 87-0'17 du 21 Septembre 1987, le 14 Décembre 1995 est déclaré date exceptionnelle de nominations dans Ies 0rdres du Mérite Social et du Mérite Agricole de 1a Républ.ique du Bênin.
+SAA. - *'o:::19y:_9y_:'n'n LE PRESIDT]IT DE LA RIPUBLIQUE CHEF DE L'ETAT, CHEF DU GOUVERI{EI,IEiIT, GRAI{0.'.IAITRE DE L'ORORE I{AÏIOi{AL DU BEI{IN.
+VU la Loi no 90-32 du l'l Décembre 1990 portant Constitution de la République du Bênin ;
+VU la Dêcision n' 9l-042/HCR/PT du 30 Mars l99l portant proclamation des résultats définitifs du deuxième tour des êlections présidentiel1es du 24 Mars l99l ; VU la Loi n" 86-010 du 26 FÉvrier i986 portant création de l'0rdre National du Bénin, modifiée par la Loi n' 87-017 du 21 Septembre 1987, notamment en son arti cl e 34, alinéa Ier;
+VU le Décret n" 95-381 du 22 Novembre I995 portant composition du Gouvernement ; VU 1e Relevé n' Z4ISGG/REL du 2l Juin 1995 des Décisions Administratives du Consei i des Ministres i SUR proposition du Président de la Rëpublique, Grand-Maître de l'Ordre National du Béni n, Le Conseil de l'Ordre National du Bénin entendu, ?
