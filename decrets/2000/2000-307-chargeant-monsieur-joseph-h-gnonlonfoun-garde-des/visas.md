@@ -1,0 +1,6 @@
+# Visas
+
+REPUBLIQUL DU BENIN PRESIDENCÉ DE I,A REPUBLIQUE VU VU VU DECRET NO 2OOO.'07 DU ' JUTLLEÎ 2OOO Chargeant Monsieur Joseph H. GNONLONFOUN Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme de I'intérim de Monsieur Kolawoté A. IDJI, Ministre des Affaires Etrangères et de la Coopération, pour compter du 02 juillet 2000.
+VU LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT, la loi n'90-032 du I I Décembre 1990 portant Constitution de la République du Bénin ;
+la proclamation le I er Avril 1996 par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du l8 Mars 1996 ;
+le décret n" 99-309 du 22 juin 1999 portant composition du Gouvemement ; le décret n'2000-305 du 30 juin 2000 chargeant Monsieur Bruno AMOUSSOU, Ministre d'Etat, Chargé de la Coordination de I'Action Gouvemementale, du Plan, du Développement et de la Promotion de'l'Emploi. de I'intérim du Président de la République, Chefde I'Etat, Chefdu Gouvernement pour compter du 30 juin 2000' DECRETE Article ler : Pour compter du 02 juillet 2000, Monsieur Joseph H. GNONLONFOUN, Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme cst chargé de I'intérim du Ministre des Affaires Etrangàes et de la Coopération pendant I'absence de Monsieur Kolawolé A. IDJI;
