@@ -1,0 +1,9 @@
+# Visas
+
+a t-.
+/ REPUBLIOUE DU BENIN PRESIDENCE DE LÀ REPUBLIQUE DECRET N" e3-111 au 1e t{ai 1ee3 portant attributions, organisation et fonctionnement alu Ministère ale I'Education Nationale LE PRESIDENT DE LA REPI]BLIQI]E, CTIEF DB L'ETAT, CHEF DU GOIIVERNEMENT, VU la Loi N" 90-32 du 11 Décembre 1990 portant Constitution de la République du Bénin;
+VU Ia Décision lI: 9L-042/HCR/PT du 30 Mars 1991 portant proclamation des résultats définltifs du Deuxième Tour des Electlons Présidentielfes du 24 Mars 79971, VU Ie Décret N" 91-176 du 29 JuiIl-et compôsition du Gouvernement ,' 1991 portant VU VU le Décret N" 90-146 du 29 Juin 1990 portant création, attributions, organisâtion et fonctj-onnement du Ministère de l'Education Nationale ;
+VU .l- e Décret N" 91-267 du 21 Décemb.re 1991 portant création et attrlbutions des Cellules de Programmation et de Coordination;
+SUR Propositj-on du Minist.re de I'Education Nationale LE Conseil des Mlnist-res entendu en sa séance du 31 },ta.rs L993, Ie Déc.ret N' 91-218 du 25 Septembre 1991 composition des Cabinets du Président de et des }4lnistres ;
+fixant Ia Ia Républ ique z( +-1ls ,i,,'i. I t'F; ) ?h U- ., DIiCREI'E:
+TITRE : ùIISSIONS ET ^TTRIBUTIONS DU IlTINISTERE Ârlicle lcr: I-e Mini stère rlc I'Erlucation Nationalc a pour rnission la conccption, la rnisc en oeuvre et le suivi de la politique générale de I'Etat en matière d'éducation, d'enseignement, de formation et de recherche, conformément à la Loi d'orientation de I'Education Nationale, aux Lois et Règlernents en vigueur en République du Bénin. Ârticle 2 : Le Ministre de l'Education Nationale est le premier responsable de I'exécution dcs politiqucs, décisions et instructions rles HaLrtes Institutions de I'Etat, en matière d'Education et de Recherche Scientifrque et Technique. ll rcnd compte «le ses activités au Chef du Gouvcrnernent.
