@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 04 mal 2oo4 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Mathieu KEREKOU.- Le Ministre d'Etat chargé du Plan, de la Prospective et du Développement I __+h_d* f) Bruno AMOUSSOU Le Ministre des Finances et de I'Economie, Gréqoire LAOUROU.- Le Ministre de la Fonction Publique, du ïravail et de la Réforme Administrative, Le Ministre de l'lndustrie, du Commerce et de la Promolio de l'Emploi, Le Ministre de l'Agriculture, de l'Elevage et de la Pêche, a o AMPLIATIONS: PR 6AN4 CC2 CS 2 HAAC2 CES 2 MCPPD 4 MFPTRA4 MICPE 4 MFE 4AUTRES MINISTERES 18 DGBM-DCF- DGTCP- DGID- DGDDI 5 BN-DAN-DLC 3 GCONB.DCCT.INSAE 3 BCP-CSN -IGAA 3 UAC- ENAM-FADESP 3 UNIPAR-FDSP 02 JO 1.
