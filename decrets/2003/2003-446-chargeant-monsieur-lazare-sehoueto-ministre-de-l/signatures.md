@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 5 novembre 200J PAR LE PRESIDENT DE LA REPUBLIQUE CHEF DE L'ETAT, CHEF DU GOUVERNEMENT athieu KEREKOU Ampliations : PR 6 AN 4 CS 2 CC 2 CES} HA-ÂC 24 MF 4 AUTRESMINISTERES 19 DEPARTEMENTS6 SGG4 JORP I.
+BP 967 Té1. (229)31 51 45 FAX : 31 3448 E-mail : mildh@intnet.bj ; dsossa@yahoo.fi
