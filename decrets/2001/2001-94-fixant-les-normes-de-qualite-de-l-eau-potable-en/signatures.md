@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 20 février 2001 Le Président de la République, Chef de l'Etat, Chef du Gouvernement Mathieu KEREKOU Le Ministre d’Etat, Chargé de la Coordination de l’Action Gouvernementale, du Plan, du Développement et de la Promotion de l’Emploi Bruno AMOUSSOU Le Ministre de l'Environnement, l'Habitat et de l'Urbanisme Luc-Marie Constant GNACADJA Signatures Le Ministre des Mines, de l’Energie et de l’Hydraulique Félix ESSOU DANSOU La Ministre de la Santé Publique Marina d'ALMEIDA MASSOUGBODJI AMPLIATIONS PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 MECCAG-PDPE 4 MEHU 4 MMEH 4 MSP 4 Autres Ministères 15 SGG 4 DGBM-DCF-DGTCP-DGDDI-DGID 5 BN-DAN-DLC 3 GCONB-DCCT- INSAE 3 BCP-CSM-IGAA 3 UNB- FASJEP-ENA 3 JO 1
