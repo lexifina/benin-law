@@ -1,0 +1,8 @@
+# Visas
+
+/BA REPUBLIQUE DU BENIN DECRETN' 97J+8 du 14 Février 19! Portant ratification de I'Accord de Prêt signé le 13 Septembre 1996 entre la République du Bénin et le Fonds Intemational de Développement Agricole (FIDA) relatif au Projet d'Activités Génératrices de Revenus (PAGER).
+VU la Loi N" 90-032 du I I Décembre 1990 portant Constitution de la République du Bénin ;
+VU la Proclamation le ler Avril 1996 par la Cour Constitutionnelie des résultats définitifs de l'élection présidentielle du l8 Mars 1996 ;
+DECRETE Article ler.- Est ratifié, I'Accord de Prêt signé le 13 septembre 1996 avec le Fonds International de Développement Agricole dans le.cadre de la réalisation du Projet d'Activités Génératrices de Revenus pour un montânt de huit miüions cinquante mill (g.050.000) Droirs de Tirages Spéciaux, soit environ six milliards (6.000.000.000) dr francs CFA et dont le texte se trouve ci-joint.
+tÉ.
+PRESIDENCE DE LA REPUBLIQUE LE PRESIDENT DE LA REPUBLIQUE, C}MF DEL'ETAT, CHEF DU GOWERNEMENT, VU le Décret N" 96-128 du 09 avril 1996 portant composition du Gouvemement. a, -f I Fait à Cotonou, le 14 Févri-er 1997 par le Président de Ia République, Chef de I'Etat, Chef du Gouvernement, I É) Z Adrien I{OUNGBEDJI.- Le Ministre du Dévelcppement Rural / r-è Le Ministre des Finances /- Jérôme SACCA-KI|;A.- Le Ministre des Affaires Etrangères et de la Coopération, Le Ministre du Plan, de la Restructuration Economique et de la Promotion de I'Emploi D Pierre OSHO.- Ampliations : PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 PM 4 MDR 4 IvIAEC 4 MPRE 4 MF 4 autres Ministères 13 SGG 4 DGBM-DCF-DGTCP-DGID- DCDDI5 BN-DAN-DLC 3 GCONB-DCCT-INSAE 3 BCP-CSM-IGAA 3 T]NB-ENA-FASJEP 3 JO 1-
