@@ -1,0 +1,8 @@
+# Décret n° 1980-330 du 17 novembre 1980 Chargeant le camarade Gratien Tonakpon CAPO-CHICHI, Ministre de l'Alphabétisation et de la Culture Populaire de l'intérim du camarade Simon Ifèdé OGOUMA, Ministre des Affaires Etrangères et de la Coopération pour compter du 17 novembre 1980
+
+REPTIBLIOUE POPULAIRE DU BEN]N PRESfDENCE DE LA REPUBLIOUE VU 1r ordonnance no gation de Ia Loi du Bénin ;
+DECRET N'AO-J30 du 1? Novembre 1980 chargeant 1e Camarade Gratien Tonakpon CÀPOiOHICHI , Ministre de ltAlphabétisation et de l-a Culture Populaire de lrintérim du Camarado Eimon Tfèdé 0COUMA, ilinistre des Affaires Etrangères et de Ia Coopération pour compter du 1/ novepbre 198O.
+LE PRESIDENT DE LA REPUBLIAUE, CHEF DE LIEIAT, PRESIDENT DU CONSEIL EXECUTIF NATIONÀL, 77-32 du 9 septembre 1977 portant promul- Fondamentale de 1a République Populaire VU le décret no BO-J9 du 12 février 198O portant composition du Consell Exécutif National et de son Comité Permanent ;
+D E C R E TE A.rtlcl-e 19r. - Pour compter du 17 novembre 1ÿ8o, 1e Camarade fonakpon-fratien CAPO-CHICHI , Ivlinistre de 1 , Alphabéti sati on et de la Culture Populaire assure 1r intérim du Ministre des Affaires Etrangères et de ]a Coopération pendant lrabsence du Canarade Simon ffèdé OGOIJMA.
+Artlcle 2 Le présent décret sera pubJ.ié au Journal Officiel .
+Fait à COîONOU, 1e 17 liove111bïe 1 par 1e Président de 1a Répub11que, Chef de ltEtat, Présldent du Conseil Exécutif National , IUathieu KEREKOU Ampliatlons:PR6CPC5C PRPB 4 ANR 4 SGG 4 MACP-MAEC 6 UNB-FASJEP 4 DPE-DAJL-INrr,E 6 A tFes Eln:Istères 20 SPD BN2 II E et ses sections 4 CT-O}ùEPI-Gde Chanc. , BCP 1 JORPB '1 .
