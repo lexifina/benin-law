@@ -1,0 +1,6 @@
+# Signatures
+
+Fait à Cotonou, le 22 mai 2000 Pm le Président de la République, Chef de l'Etat, Chef du Gouvernement, .. ./...
+Le Ministre d'Etat, Chargé de la Coordination de l'Action Gouvernementale, du Plan, du Développement et de la Promotion de l'Emploi, Bruno Al\10USSOU.- Le Ministre des Finances et de l'Econom' , ~ Abdoulaye 810-TCHANE.- Le Ministre du Commerce, de l'artisanat et du tourisme.
+\ ...
+\ '~'./ ~ " ..-.---'''' Sévérin ADJOVI Ampliations : PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 MECCAG-PDPE 4 MeAT 4 MFE 4 Autres ministères 16 SGO 4 DOI3M-DCF~DOTCP-DOIO DODDI 5 BN -DAN- DLC 3 GCONB- DCCT INSAE 3 BCP- CSM- IGAA 3 UNB - FASJEB 3 JO 1
