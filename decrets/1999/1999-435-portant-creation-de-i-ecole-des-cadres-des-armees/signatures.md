@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 1f septenbre 1999 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Mathieu KEREKOU.- Le Ministre d'Etat, Chargé de la Coordination de l'Action Gouvernementale, du Plan, du Développement et de la Promotion de l'Emploi, Bruno AMOUSSOU.- Le Ministre de l'Intérieur, de la Sécurité et de l'Administration Territoriale, Daniel T A EMA.- Le Ministre a"Jrffi""r, et I'Economie, Abdoulave O-TCHANE AMPLIATIONS :PR 6 AN 4 CS 2 CC 2CES2 HAAC 2 MECCAG-PDPE 4 MSAT 4 MF 4 AUTRES MIMSTERES 16 SGG 4 DGBM-DCF.DGTCP- DGID-DGDDI 5 BN-DAN-DLC 3 GCONB-DCCT-INSAE 3 BCP.CSM- IGAA 3 UNB-ENA-FASJEP 3 JO I,
