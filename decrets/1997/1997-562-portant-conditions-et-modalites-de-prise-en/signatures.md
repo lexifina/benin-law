@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à cotonou, le 11 NOVEITBRE 1997 Par le Président de la République, Chef de I'Etat, Chef du Gouvemement, ieu KEREK u.- les Institutions, Porte-parole du Gouvernement, A Mini nati I'Action lations avec Le Ministre de la Fonction Publique du Travail et de la Réforme Admini Assouma YAâ<oUBiIl:
+Le Premier Chargé de Ia Coordi Gouvernementale et Le Ministre des Finances, T Après succès aux concours directs prévus à l'alinéa ci-dessus et au moment de leur titularisation dans leurcorps respectifs, la durée des services qu'ils auront accomplben qualité d'agents publics conlractuels leur 'sera prise en compte pour le tiers (l/3) de sa valeur. Adrien HOUNGBEDJL- Le Ministre de et de la Ampliations : PR 6 AN 4 CS 2 -CC 2 - CES 2 -HAA 2-PM4-MFPTRA4-MF4- MENRS 4 - Autres Ministères 14 - DGBM - DCF - -DGDDI4 -BN.DAN.DLC 3 DGID 1 ,. GCONB. DCCT. INSAE 3 - CSM - IGAA. IGSEP - IGF 4 - UNB. ENA. FASJEP 3. JO l.
