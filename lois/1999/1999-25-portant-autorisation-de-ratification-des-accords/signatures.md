@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à COTONOU, le 02 août 1999 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, athieu KEREKOU.- Le Ministre d'Etat, Chargé de la Coordination de l'Action Gouvernementale, du Plan, du Développement et de la Promotion de l'Emploi, Bruno AMOUSSOU.- Le Ministre de la Jeunesse, des Sports et Loisirs, Valentin Aditi HOUDE.- Le Ministre des Finances et de l'Economie, Pierre John IGUE.- Ministre intérimaire AMPLIATIONS .- PR 6 AN 4 CC 2 CS 2 CES 2 HAAC 2 MECCAG-PDPE 4 MFE 4 MJSL 4 AUTRES MINISTRES 16 SGG 4 DEPARTEMENTS 6 DGBM-DCf-DSDV-DTCP-DI 5 EN-DAN-INSAE 3 UNB- FASJEP-ENA 3 IGAA 1 JO 1.-
