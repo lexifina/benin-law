@@ -1,0 +1,37 @@
+# Visas
+
+û -JS- REPUBLIQUE DU BENIN PRESTDENCE DE LA REPUBLIQUE DécretNo 98-57 DL 9 PEVRTBR 1998 portant Eansmission à l'Assemblée Nationale pour autorisation de ratification de l'Accord de Prêt sigrré le 26 novembre 1997 entre la République du Bénin et la Banque Islamique de Développement (BID) dans le cadre du financement du Projet « Contribution à l'Amélioration de la Qualité de Vie en Milieu Rural par l'Electrification Solaire ».
+LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT, \r[J la Loi N" 90-032 du I I décembre 1990, portant Constitution de la République du Bénin ;
+VU la proclamation le ler avril 1996 par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du l8 mars 1996 ;
+\.r[J l'Accord de prêt sipé le 26 novembre 1997 enre la République du Bénin et la Banque Islami[ue de Développement (BID) dans le cadre du financement du Projet « Contibution à l'Amélioration de la qualité de üe en milieu nral par l'Electrification Solaire » ;
+SUR proposition du Mnistre des Finances ;
+Le Conseil des Minisfres entendu en sa séance du i d janüer 1998 ;
+VU le Décret N' 96-128 du 09 avril 1996 portant composition du Gouvernement, L'Accord de prêt sipé le 26 novembre 1997 à Damas @épublique Arabe Syrienne) sera présente à I'Assemblée Nationale pour autorisation de ratification pL t" n..i"r irti.rr., chargé de la Coordination de l'Action Gouvernementale àt des Relations avec les lnstitutions, le Minisre des Finances, le Ministre du Plan, de la Restructuration Economique et de la homotion de l'Emploi, et le Ministre des Mines, de l'Energie et l'Hydraulique qui sont chargés d'en exposer les motifs et d'en soutenir la discussion.
+EXPO E DES TIFS Monsieur le Président de l'Assemblée Nationale, Mesdames et Messieurs les DéPutés, Dans les conditions actuelles, l'électrification par les moyens faditionnels telle que pratiquée par la Société Béninoise d'Electricité et d'Eau, ne peut prendre en compte à moyen terme les localités réculées de note pays. C'est pourquoi le Gowernement Béninois a pensé à d'auEes sources d'énergre. La plus iacile à mette en o€uvre est I'énergie solaire dans sa version photovoltaïque, c'est-à-dire la transforrnation de la lumière solaire en électricité' L'énergie solùe générée par les équipements à mettre en place suffira pour la satisdction des besoins les plus élémentaires de nos populations à savoir : * L'exhaure de l'eau pour l'alimentation des hommes et du bétail ;
+* L'éclairage des cenEes de santé locaux et la conservation des vaccins , * L'alimentation de l'équipement destiné aux activités éducatives et sociocultruelles (cassettes vidéo, télévision, cours du soir etc...) ; * L'éclairage communautaire ;
+* Et l'éclairage indiüduel.
+La satisfaction de ces besoins contribuera à atténuer l'exode rural ainsi que les inégalités entre les ülles et les campapes. Elle renforcera aussi Ia solidarité nationale.
+C'est compte tenu de tout ce qü précède qu'il a été décidé en décembre 1993, lors de f inauguration du premier üllage solaire de SEDJE-DENOU dans la Sous-Préfecture de Zê, de lancer un vaste programme d'é ectrification de 36 üllages à raison de 6 par département.
+q DECRETE Le coût préüsionnel total de ce programme est estimé à 3742 millions de Francs CFA dott2742 sont à rechercher et 1000 millions à mette progressivement en place par I'Etat béninois.
+Aujourd'hui, sept (07) auües villages ont vu lejour. Il s'agit des villages de Béroubouay dans le Borgou, Ouassa Tobré dans l'Atacora, Soclogbo dans le Zou, Dèdèkpoé dans le Mono, Towé dens l'Ouémé, Houédogbadji et Ganüé dans l'Atlantique.
+La réalisation de ces hüt (08) premiers villages solates a nécessité la mise en place de 400 millions de Francs cfa par le Budget National et de 60.909.932 Francs cfa par les sources suivantes :
+* GROUPEMENT EDF-ADEME-FRANCE-TELECOM-TOTAL ENERGIE :45.909.932 Francs cfa.
++ ONG SOLIDARITE FRANCE TIERS MONDE : 15.000.000 Francs cfa.
+Par ailleurs, tois aubes üllages, Djotto et Ayomi dans le Département du Mono et Kpataba dans le département du Zou seront bientôt dotés d'installations solaires.
+L'éqüpement d'Ayomi sera installé grâce à l'appui financier de la Commission Economique des Nations-Unies pour l'Afrique (CEA) Ceux de Djotto et Kpataba seront financés par le Budget National.
+Les localités devant bénéficier d'éqüpements solaires dans le cadre de ce prêt, seront choisies après une étude d'identification et de faisabilité sur la base des critères ci-après :
+l- population de 1000 à 1500 habitants ;
+2- existence d'infrastructures socio-adminishatives (forage avec un niveau statique acceptable, école, cente de santé, maison de loisirs, mairie etc...) 3- existence d'institutions financières ;
+4- bonne situation géographique et position hors réseau électrique ;
+5- revenu et niveau d'actiütés économiques des har itants ;
+6- volonté et capacité des üllageois à s'organiser 1 tur la maintenance. ) Dans le même ordre d'idées et en vue de réaliser la suite du programme (24 üllages), la République du Bénin a obtenu de la BID un prêt de 3.100.000 Dinars Islamiques soit environ 2.500.000.000 de Francs cfa.
+læs caractéristiques principales du prêt de la BID sont les suivantes ; Montant Durée Char ges administratives Amortissement Elément don : 3.100.000 DI soit 2.500.000.000 Francs CFA : 30 ans dont 10 ans de diftré.
+'.0,75 o/ol'at : 40 semestrialités.
+:76,78 Yo.
+L'enfrée en ügueur de l'Accord de Prêt est subordonnée à l'accomplissement des formalités habituelles : autorisation du Parlement, ratification par le Chef de l'Etat, publication au jouraal officiel, obtention de l'aüs juridique de la Cour Suprême.
+Compte tenu de ce qü précède et afin de pelmetre l'accomplissement des différentes formalités d'enfiée en ügueu, nous avons l'honneur, Monsieur le Président de l'Assemblée Nationale, Mesdâmes et Messieurs les Députés, de soumette à l'approbation de vote Auguste Assemblée le présent accord de prêt en vue d'en obtenir l'autorisation de ratification.
+Fait à Cotonou, le 9 Février 1998 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Mathieu KEREKOU.- Le Premier Minis delaC de l'Action Gouvernemental eet des Relations avec les lnstitutions, Porte-Parole du Gouvemement ' "/n" l^.
+Adrien HOUNGBEDJI.- ta ,l Le Ministre du Plan, de la Restruchuation Economique Le Ministre des Mines, de l'Energie et de l'Hy et de la Promotion l'Emploi, Emmanuel GOLOU.- Le Ministe des Finance Amnliations:PR6-AN8 CS 2.
+2 - CES 2 - HAAC 2 - PM 4 - lvIF 4 - MPREPE4-MMEH4-JO1.- REPUBLIQUE DU BENIN Loi No portant autorisation de ratification de l'Accord de prêt sipé le 26 novembre 1997 ente la République du Bénin et la Banque Islamique de Développement @ID) dans le cadre du financement du Projet de contribution à l'amélioration de la qualité de üe en milieu rural par l' électrifi cation solaire.
+L'Assemblée Nationale a déübéré et adopté en sa séance du la Loi dont la teneur suit :
+Article ler : Est autorisé la ratification par le Président de la République, Chef de l'Etat, Chef du Gouvernement de l'Accord de prêt, sigré le 26 novembre 1997 à Damas (République Arabe Syrienne) enfie la République du Bénin et la Banque Islamique de Développement dans le cadre du financement du Projet de contribution à I'amélioration de la qualité de üe en milieu rural par l'électrification solaire pour un montant de 3.100.000 Dinars Islamiques soit environ 2.500.000.000 F CFA.
