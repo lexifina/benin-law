@@ -1,0 +1,7 @@
+# Décret n° 1980-156 du 9 juin 1980 chargeant le Camarade Michel ALLADAYE, Ministre de la Justice Populaire de l'intérim du camarade GUEZODJE Vincent, Ministre de l'Intérieur et de la Sécurité Publique pour compter du 07 juin 1980
+
+REPIIBIIQIJE POPUIÀIRE DU BD[,IT1iI PR,ESIDENCE DN I,A REPI]BLIQIJE DECRET No 80-1 56 du 9 Juin 1980 chargeant Ie Camarade trllichel ÀïrI"ADA}E, L,llnistre de Ia Justice Populaire de lrintérirn du Camarade GUEZODJE Vlncent I\linistre de 1r Intérieur et de Ia Séourité Publique pour compter du 7 Juln I,D PRESIDENT DE IA RNPIJBITQTIE, CIIEI, DE lrErAl , PRESIDEIIî DU CONSEÏL EXNCUîIF NAÎTOltrAI, V-[J Lfôrdonnance no 77-32 du 9 Septembzre 19?7 portant promuLgatlon de Ia loi Fondamentale de 1a Répub11que Populaire du Bénin ;
+YU 1e décret No BO-39 tlu 12 Février 1980 portant composition du ConselL Exécutif National et de son Comité ?e rmanË:nt i DECRETE :
+Àrticle 2.- Lc présent décret sere publié au Journal Offictel.
+Fait à C0îO1tr0U, Ie 9 Juin 19BO Artlcle 1e_r.- Pour compter du 7 Juln 19BOr 1e Carnarade Iüiohel EÏffi-âTfiTinistire de ia Justice populâiré est crre.rÀa ae-ii:.ntgrirn du Mi-nistre de ltIntérieur et de la-Sécurlté Publlque pendant lrabsence du Camarade GIIEZ ODJE Vincent.
+par Ie Présldent da 1a République, Chef de lrEtat, Président du Conseil Exécutif Nationa1, Matlr-leu I(ERIKOU : lR. 6 cqly".YB 4 ANR 4 cPc 5 scc 4 sPD 2 M,IP'MISP 6 trèreo 2o'DPE-DAJIFINSAI 6 IGE et ses Sections 4 DCCî 1 l-lations êu re§ OIfEPI-Gde Chanc. 2 IINE-FASJEP-BN 5 BCP 1 JORPB 1.-
