@@ -1,0 +1,9 @@
+# Visas
+
+I ^A - PEPUB]-IOUE POPULAIRE DU BE}I]N '- -' .s--------- rlIfN.tr1'lER-E DES FIN-AIICES ET DE L'ECOTIOI..]]E Arti c 1e Docnrr fiog5-353 ctu 4 Septembrê .l9g5 Portant approbation des statuts de la Caisse Nationale de Crédit ,Â.gricole ( cuca) LE PRNS]DENT DE LA REPUBLTOUE, C}IEF DE LIETAT, PRNSIDENT DU CONSEÏL E}GCUTIF NÂTTONAL, \4J 1? or,lonnanc e llo77-32 du ! Septembre .192T portant promulgation de Ia Loi Fondamentale de la République pôpuIair.e- du Béàin et les lois constj-tutionnelles qu J. lton{ modiiiée ;
+VU 1e Décret No84-254 du 17 Juin '1985 portant composltion du Conseil- Exécutif National et de son Comité Èermanent ;- \r(J lrordonnance \to75-1g du 1O Jui11 et j9T5 portant règlementation bancaire ;
+\[J 1r ordonnance No76-f0 _du 11 Juin 1976c portant organisation du Crédtt Agricole en République populairè du Bénin';
+Str^proposi-tion du }linistre des Finances et LrEconomie, 1e comité Permanent du conseil Exécutif Natlonal entendu en sa séance du 21 Aott 1985 E) ECRETE 1er : Sont a ri.core (CNCAï prouvés les Statuts de la Caisse Nationale, de , tels qu?i1s sont annexés au présent Decret.
+re Artlcle 2 contrâIres, Le présent décret clui abroge toutes dispositions antérieure sera publié au Journal Officiel.
+Fait à COTOI\OU, fe 4 Septembre Par Ie Président de 1a RépubJ.ique, Chef de ltEltat, Président du Consell Exécutif National_ Mathie I REKOU I t Pour Ie Mlnlstre des Finances et de IrEconomic absent, le ltlinj.stre de la Justice, Chargé de bl-1ques et Seni- Itlnspectlon des Entrepriscs Pu Publiques Chargé de 1? intérlm, Didier DÀSSI Ampl iati ons PR 6 - SAICCIPRPB 4 . CPIA}JR 4 - CPC 4 - PPC 1 - MFE 4 - Autres I'linistères 21 - SGCEN 4 - SPD 2 - DPE-DLC-INSAE 6 - BCP 2 - IGE et ses Sections 4 - DCCT-ONEPI-GDE Chanc. I - UNB-FASJEP 4 - CCIB 2 - CNCA B - Préfet 6 - JORPB 1 -.
+AA*- RNPUBLIQTIE. POPULAIRE DU BtrN]N I\ÎIN]STERE DES FINAI,]CES ET DE L I ECONOMTE CAISSE NATIOI'IALE DE CRXDTT ÂGRICOLE
