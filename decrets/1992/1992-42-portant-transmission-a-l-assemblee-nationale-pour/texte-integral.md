@@ -1,0 +1,25 @@
+# Décret n° 1992-42 du 24 février 1992 portant transmission à l'Assemblée Nationale pour autorisation de ratification de l'Accord de Crédit N° F/BEN/PAS/91/25 signé le 27 décembre 1991 à ABIDJAN entre Ia République du Bénin et Le Fonds Africain de Développement
+
+/îa RBPUBLIOUE DU BENIIY PRES]DENCtr DE LA REPUBLIAUE DtrCRlr-T llo 92-42 du 24 Février I ! ,3 portant transmlsslon à 1r Assemblée Nationale pour autorisation de fatification de lrAccord de Crédit N. F/BEN/PAs/St/zl sisné Ie 27 Décerobre 1991 à ABIDJAN entre Ia République du Bénin et Le Fonds Africai.n de Développement.
+I,E PRXSIDENî DE LA REPUBLfQI]E, CHEF DE LIETÀT, CHEF DU GOUVERNEi;ENT, VU La Loi No 9O-0f2 du 11 République du Bénin ;
+Décembre 1990 portant Constitution de 1a VU La Décision N" 9'l -O42/HCR/PT du JO Mars 1991 portanû proclamation des Résultats définitifs du deuxième tour des élections présidentielles du 24 Mars 1991 î w Le Décret No 91-1 76 du 29 Juillet 1991 Gouvernement I portant composition Ju zl ds VU LrAccord de Prêt I{" F/BEN/PAS 11/91 i25 signé 1e à ABIDJAII entre 1a République d.u Bénln et Ie Fon Dével oppemen t Décenbre 19J1 Africaln de SUR Proposition du Ministre des Finances ;
+LE Conseil des Llinistres entendu en sa séance du 05 Février 1992 DECRE .L E uenln et _Le à 1r Assembl HLan et de Etrangère s motifs et d Le présent Accord Ce Èrêt signé entre 1a République du Fonds Africaj-n de Développement ci-joint sera présent.:
+ée Nationale par Ie Ministre des Finances, 1e l{inistr-e rlu Ia Restructuration Economique et 1e ltinistre des Affaires et de fa Coopération, qul sont chargés dren ex;:oser res ren soutenir l-a discusci.on.
+Dans le cadre de 1a mise en applicatlon du deuxième Programme drÂjustement Structurel (PÂS) de liEconomie Béninoise, Ie Fonds Africain de Développement a consenti à notre pays un Prêt dont ftAccord a été signé 1e 2/ Décembre 1991 à ABIDJAN aux fins du fj-nancement dudit Programme aux conditions et roodalités suivantes :
+E)POSE DES MOTfFS .
+Monsieur 1e Président de IrAssenbfée Nationale, Mesdames et Messieurs les Députés, Les r:essources du Prêt ne seront utilisées fins assignées à chaque montant décaissé.
+2. / Çqèlliorrs SBécifi-ry.9é Effes se résument entre A-fricaine de Développement (BrlD) 3 autres, à fournir à 1a Banque 1" / Modalités Durée : 5O ans dont '10 ans de différé Taux dtintérêt : Néant Commission de Service : O,75 % ltan sur l-e montant décaissé et non encore remboursé .
+Renbours ernen t : 1 % du Principal par an de Ia onziène à 1a vingtième année et 3 % du principal par an par la suite.
+Date de clôture J1 Décembre 1995.
+que pour 1es
+- 1a preuve d National-e de Suivi Structurel , suite à ela de1 révislon de Ia composition de la Commission I Appllcation du Programme drAjustement réorganisation administrative I
+- 1a preuve de J.rouverture drtrn compte spécial auprès de ).rAgence Nationale de fa Banque des Etats de lrAfrioue de t rOuest (BCEAO) pour recevoir 1es ressources du Frêt.
+En or-ttrc, 'l e Bénin devra s I engager à :
+- exécuter le programme de pri.vatisation par 1a vente ou pÊr 1a passation de contrat de focation-géranc e des entreprlses publiques suivantes:
+"../...
+) J.rUsine de noix d t aca jou la Malserie de Bohicon J.a Socié'bé des Engrais du Bénin lrUsine de conëentré de toroate la Société des Ciments du Béntn (SCe) 1a SociÉté des Clments d'Onigbolo (SCO) fa Société Suctière de Savè (SSS) l-a Société National-e pour ftlndustrie des Coprs Gras ( soNrcoc) 1a Brasserie .Ia rt BENfI,IOISE" lrUsine de jus de fruit dtAJ-lahè.
+- Souuettre au Fonds Àlrlcaln cle Développement l_e projet d.u progranme d t investissenent public 199j - 199j et du budget unique de l rexercice 199) selon la nouvell_e nomenclature.
+Outre ces mesures dt accompagnement tefles que mentionnées dans lrarticle 4 de J.rAccord de prêt, sa mise en vigueur est subordon;iée aux conditions habituerres de ratification de publication et de consuftatlon juridique de 1a Cour Suprêne.
+La mise en place du présent prêt vise, entre autres obJectifs, le flnanceroent partiel du redrèssement économique d.e notre fgys dans 1e cadre d. deuxième pro65ra,me d ? 1{justement de irEconomie .Ben1nor-se conclu avec 1e Fonds lrionéteire Intérnational_ et 1a Banque Mondlale.
+Eu égard à tout ce par 1e Programme ;
+qui préuède, et aux objectifs visés Nous avons lrhonneur, Monsieur 1e président d.e ltAssemblée Nationale, Mesdames et MessieurÀ 1es Députés, de sournetire-à votre approbation, 1e présent Accord de prèt èn vr-rê d.ren obtenir irautorisation de ratification. Fait à COTONOU, 1e 24 Février 1992 Par l-e Président de 1a République, Chef de lrEtat, Chef du Gouverrieruent, ,.-/..,,/ §icétrrlqore SOGLO Le llinistre d?Etat, Secrétaile Général à ]-a Présidence de Ia Répu QUê r Désiré VIEYRA Le l[inlstre des Finances, b Le l4inistre du Plan et de'Ia Restructuration Economique, ç) ,9t- \t/l TAGNON t! Paul DOSSOU Le l,linistre des Affaires Btrangères et de Ia Coopératlon, \ I t Théodore HOLO :!\ i_a!loJlg : PR 6 AN 70 CS 1 IUE/SGPR 4 pIF-iWRE-M1.E;C 12 SGG 4 CAÂ 1 \J JO 1.-
