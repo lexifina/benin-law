@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 1er décembre 2OOj Par le Président de la Répr"rblique, Chef de I'Etat, Chef du Gouvernement, athieu KEREKOU mission pour {t . t Le Ministre des Finances et de l'Economie , Grégoire LAOUROU.- AMPLIATIONS : PR 6 MCPTN 4 MJLDH 4 Le Ministre d'Etat chargé du Plan, de la Prospective et du Développement, Bruno ANIOUSSOII l1 Le Ministre de la Communication et de la Promotion des technologies Nouvelles., @,, lsrh., Gaston ZOSSOU Le Garde des Sceaux, Ministre de la Justice, de la Législation et dês Droits de lrHornme, g*r{r'>- Dorothé SOSSA AN 4 CC 2 CS 2 HAAC 2 CES 2 MECPPD 4 MFE 4 AUTRES MINISTERES I7 DGBM-DCF. DGTCP- DGID- DGDDI 5 BN-DAN-DLC 3 GCONB-DCCT-INSAE 3 BCP-CSN - IGAA 3 UAC-ENAM-FADESP 3 UNIPAR-FDSP 02 JO I.
