@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à COTONOU, le 2o SEPTEMBRE 1997 par le Président de la République, Chef de I'Etat, Chef du Gouvemement, Le Premier Ministre, de la Coordination de Âfi./*-,ln--' /_L? Adrien HOUNGBEDJI Le Ministre du Plan, de la Restructuration Le Ministre des Travaux Publics Economiq ue et de la Promotion de I'Emploi, et des Transpo 4tÇ_u Albert TEVOEDJRE Ampliations : PR 6 PM 4CS 2 CC 2CES2 HAAC 2 MTPT 4 MPREPE 4 AUTRES MINISTERES I6 SGG 4 CNCB 1O DB-DCOF-DSDV-DGTCP DI5 BN-DAN-DLC 3 GCONB.DCCT-INSAE 3 UNB-FASJEP-ENA 3 JORB 1.- MothieuKEREKOU l'Action Gouvemementale et des Relations avec les Institutions, Porte-Parole du Gouvernement, \ ^-f-- -- '.'...
