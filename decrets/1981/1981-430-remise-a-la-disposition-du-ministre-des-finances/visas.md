@@ -1,0 +1,4 @@
+# Visas
+
+VU REPUBLIOUE POPULAIFE DU BEN]N PRESIDENCE DE LÀ REPUBLTOUE DECRET I,Io 81_430 du .,1 7 Décembre 1gB1 portant remise à la disposltion du Mi,nistre des Finances du Camarade KILANYoSSf Isaac.
+LE PRESIDENT DE LA REPUBLISUB, C}IEF DE LIETAT, PRESÎDBNT DU CoNSEIL EXECUIrF NATIoNAL, VU l t ordonnarlce No77-J2 du 9 Septembre -1977 portant promulgation de 1a Loi Fondamentale de la République Populai-re, du Bénin, VU le décret N'8O-59 du 12 Février 198O portant composition du Conseil Exécutif Nationaf et de son Comité Permanent, décret N"78-166 du J0 Décembre 1978 portant nomination Directeurs Administratifs, de Directeurs Finalciers et un Directeur Commercial auprès des Sociétés, §ur-.rapport du Mj.nistre du Développement Rural et de frAction Coopérâtlve, Le Conseil Exécutlf National entendu en sa séance du 9 Décembre 1981 , le Président de 1a R5pub11que, de lrEtat, Président du Conseif Exécutif National, 1e de dr

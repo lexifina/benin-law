@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à COTONOU, 1e 17 Décernbre 1981 ar p Chef I{athieu KEREKOU z Pr Le Ministre des Finances absent, le Ministre de l rlnformation et de 1a Propagande , é de I I intérim, Pour 1e Ministre du Développemenb Rural et de 1rÀction Coopérative t, 1e Ministre des Enseignements Moyens G5néra1, lechnique ::-t Professi onne , chargé de 1 I intéri::,, Martil--p-llQu_rjz.qNIII_FIO Bdouard ZODEHOUGAN ffipfrmt+'e"^,1*lE"n,,TIÎ. f ui! "'i rïfË:irË:{f,3Tr' e'$$ra"S%Îr'Tn' - ,DB-DCI'-DSDV-6 îrésor 4 DI 4 IGE et ses Sections 4 LIIIB-IASJD?- ffSJA 6 DâN-Btit 4 DCCî-Gde Chanc 2 BC? i Inté:.essé 1 JoRpB 1..
