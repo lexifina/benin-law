@@ -1,0 +1,8 @@
+# Loi n° 1993-03 du 22 mars 1993 portant autorisation de ratification de l'Accord de Prêt N° F/BEN/AI-MIN/92/26 signé le 8 Octobre 1992 entre la République du Bénin et le Fonds Africain de Développement relatif au financement du Projet d'Appui Institutionnel aux Ministères des Finances, du Plan et de la Restructuration Economique pour un montant de 1 .365.OOO.OOO Frs
+
+/FE.- REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE LOI N°93:»OQ3 DU MARS autorisation de ratification de l'Accord de Prêt N° F/BEN/AI-MIN/ 92/26 signé le Octobre entre la République du Bénin et le Fonds ■*Xf' Africain de'Développement relatif au financement du Projet d'Appui Insti tutionnel aux Ministères des Finances, du Plan et de la Restructuration Economique pour un montant'de 1 .-365.OOO.OOO Frs.
+L'ASSEMBLEE NATIONALE a délibéré, LE PRESIDENT DE LA REPUBLIQUE promulgue la Loi dont la teneur suit :
+Article 1er.- Est autorisée la ratification par le Président de la République, Chef de l'Etat, Chef du Gouvernement de l'Accord de Prêt N° F/BEN/AI-MIN/92/26 entre la République du Bénin et le Fonds Africain de Développement en vue du financement du Projet d'Appui Institutionnel aux Ministères des Finances, du Plan et de la Restructuration Economique pour un montant de 1.365.000*000 Frs Article 2.- La présente Loi sera exécutée comme Loi de l'Etat.
+Fait à COTONOU, le Mars Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Nicéphore SOGLO Le Ministre d'Etat, Secrétaire Général à la Présidence de la République, Désiré VlEYRA Le Ministre des Finances, le Ministre du Plan et de la Restructuration Economique, Ampliations :
+PR AN CS I1ESGPR MF MPRE AUTRES MINISTE RES SGG DB-DCF-DSDV-DFCP-DI BN-DAN-DLC INSAE-CAA-GCONB UNB-FASJEP-ENA.
+1.-
