@@ -1,0 +1,7 @@
+# Visas
+
+!- lBA REPUBLIOUË POPULAIRE' DU BENIN PRESIDENCE DE LA REPUBLIOUE . DECRET No 86-98 du 21 Mars 1986 portant ratlfication de lrAccord de Prêt No CAT,/CS/BN/S/85/OOB sisné le 'l 7 llécembre 1985 à Abidjan (C8te'-dt Ivoire) entre 1a République Populaire du Bénin et 1e Forrds Africain de Développement pour 1e Financement partiel drun projet drétude dans 1e secteur de Ia santé.
+VU VU I.E PRESIDENT DE LA REPUBLIQUE, CHEF DE LIETAT. PRESIDENT DU, CONSEIL EXECUTIF NATIONAL, , lrordonnance No 7'/ -32 du 9 Septembre 1977 , $-e. 19 l,oi_fondamentale de J-a République P6i les Lols Censtituti onnelles qul lron{ moOi? ortant promulgation uÏâire du Bénin et iée ;
+1e décret N' 85-254 du 17 Juln 1985 portant compo.sition du Censeil Exécutif National et de son ôomité permànent I Janvier 1986 portant transmisslon au ssemblée Nationale Révolutionnalre tifj-cation de lrAccord de Prêt No é le 17 Décembre 1985 à AbidJan a République Pspulaire du Bénin et 1e oppement pour 1e financement partiel s le secteur de santé ;
+Ia décision No 86-19,/ANR,/Cp au 1J Mars 'l 986 autorisant 1a ratification de l_,Accord de prêt No CAT/CS/BI,]/S,/85,/OOB sisné 1g 17 oécembre 1985 à Abidjan (côte o,rïo:,i-e)' ei:tr'e ia Répub11que Populaire du Béiin èt tè Ëonos Africâin dÀ Déve1oppem ent.
+ÿU fe décret No 86-6 du 1f Comité Permanent de ltA pour autorlsation de ra çATlcs/BN/s / a5 / OOe sien (Côte drlvoire) entre-l Fonds Africain de déve1 drun projet drétude dan VU
