@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à COTONOU, le zg spprrüsRr 1997 par le Président de la République, Chef de I'Etat, Chef du Gouvernement, Le Premier Ministre, chargé a Coordination de l'Action Gouvemementale et des Relations avec les Institutions, Porte-Parole du Gouvemement, /- .I ") 'rf a Le Ministre des T et des Transports, ravaux Pubiics Adrien HOUNGBEDJI Le Ministre du Plan, de la Restructuration Economique et de la Promotion de l'Emploi, ,k L"* Albert TEVOEDIRE Ampliation : PR 6 PM 2 CC 2 AN 2 SGG 2 CES 2 HAAC 2 MPREPE 4 MTPT 4 AUTRES MIMSTERES I5 DB-DCF-DSDV-DGTCP-DGID 5 CENERTP 4 BN- DAN-DLC 3 GCONB-INSAE 2 LiNB-FASJEP-ENA 3 JORB 1.- L
