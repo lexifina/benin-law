@@ -1,0 +1,19 @@
+# Décret n° 1994-137 du 11 mai 1994 portant transmission à l'Assemblée Nationale du projet de Loi portant autorisation de perception des impôts et taxes et d'exécution des dépenses de I'Etat par douzièmes provisoires pour le mois de Juin 1994
+
+,t.J." REPUBLIQUE DU BENIN PRESIDENCE DE LÀ REPUBLIQUE DECRET rlo 94-137 du lt r.{ai 1994 LE PRÉ§IDENT DE IÀ RÉPUBLIQUE, CHEF DE L'ETÀT, CHEF DU GOUVERNEMENT, vu la Loi no 90-32 du 1L Décembre 1990 portant ConstiÈution de la République du Bénin ;
+VU Ia Loi n" 93-001 du 1er février 1993 portant Loi de Finances pour Ia Gestion 1993 i VU La Décision no 042 /HCR/PT du 30 nars 199j. portant proclamation des résultats définitifs du deuxiène tour des éIections présidentielles du 24 mars 1991i VU Ie Décret no 94-134 du 05 Mai 1994 portant cornposition du Gouvernement ,' Sur proposition du Ministre des Finances ;
+Le Conseil des Mlnistres entendu en sa séance du 11 Mai 7994 , portant transmiss j"on à 1,Àssenblée Nationale du projeÈ de Loi portant autorisation de perception des inpôts et taxes et d,exécutj,on des dépenses de I,Etat par douziènes provisoires pour Ie mois de Juin 1994.
+Le projet de Loi portant autorisation de perception des inpôts et taxes et d,exécution des dépenses de 1,Etat par douzièrnes provisoires pour Ie noj,s de Juin 1994 sera présenté à 1'Àssenblée Nationale par Le Ministre des Finances, le Ministre du PIan et de La Restructuratj-on Econornique et le Irtinistre Chargé des Relations avec le Parlement, porte-parole du Gouvernement gui sônt chargés . d,en exposer 1es motifs et d,en soutenir Ia discussion.
+EXPOSE DES MOTIFS
+- Monsieur Ie Président de 1,Àssemblée Nationale, Mesdames et Messieurs 1es Députés, Le projet de Lôi pottant autorisation de perception des inpôts et taxes et d,exécution des dépenses de I,Etat par douzièmes provisoires pour le mois de Juin 1-gg4 que le Gouverneloent sounet à 1,Àssembtée l{ationale pour adoption conformément aux dispositions de L,article 111 de la Loi n. 90-32 du 11 Décembre 1990 portant Constitution de Ia Républigue du Bénin vise à permettre pendant le rnois de Juin Lg94, le fonctionnement de l,appareil de l,Etat en attendant le vote de Ia Loi de Finances Gestion 1994.
+D E C R E T.E Feit à Cotorou. le 11 r{AI 1994 Pâr Le Président de Ia RépublLque, Chef de I,Etat, Chef du CouvernetreDt, _(ruL Le llinistre des Finatrces, Rigobcrt LÀDrxPO. - Mini.stre Intérinaire.
+Le Hinistre d,Etat à la présidence de la République, Chargé de la Coordination de IrÀction Gouveraenentale, t{icéphore SOGI,O. - Le ltiDistre du Plan et de Ia Restructuration Ecouoroigue, À t'linistre Intérinaire.
+Le Uiaistre Chargé des Relations avec le Parlement, Porte-Parolê du Gouvern trt, ÀMPLIÀTIONS: PR 6 - ÀN ?5 - CS 1- MEPR-DN 2 - MF 4-SGG 4-JoRB I..
+TeI est, Mesdames et Messieurs les Députés, le fondenent du projet de Loi portant autorlsatj.on de perception des impôts et taxes, et d,exécution des dépenses de 1,Etât, par douziènes provisoires, pour Ie mois de Juin 1994.
+)r REPUBL]OUE DU BENÏN PRESIDENCE DE LÀ REPUBLIOUE LOI lIO du portant autorisation de perception des inpôts et taxes et d'exécution des dépenses de I'Etat par douzièmes provisoi-res pour le mois Juin 1994.
+L'Àssemblée Nationale a dé]ibéré et adopté en sa séance du la Loi dont la teneur suit :
+Àrticle 1er.- En attendant 1'adoption de fa Loi de Gestion 1994, sont autorisées pendant 1e mois de Juin conformément à l-'article 111 de la Constitution du 11 1990 de Ia République du Bénin :
+F inanc es 19 94 et Décembre
+- 1a perception, sur 1a base des dispositions législatives et réglementaires en vigueur en 1993, des impôts, taxes, produits et revenus applicables au Budget Général de I'Etat ;
+- I'exécution des dépenses du Budget Général de I'Etat dans ta limite du douzième des crédits ouverts dans 1a Loi de Finances de 1'année 1993.
+Àrticle 2,- La présente Loi sera exécutée conme IJoi de 1'Etat.{ Fait à Porto-Novo, fe LE PRESIDENT DE I..,'ASSEMBLEE NÀTIONÀLE Àdrien HOUNGBEDJI
