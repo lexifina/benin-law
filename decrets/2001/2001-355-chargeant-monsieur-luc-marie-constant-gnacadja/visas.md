@@ -1,0 +1,5 @@
+# Visas
+
+I REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE DECRETNO 2OO1455 DU 11 SEPTE}IBRE 2OO1 Chargeant Monsieur Luc Marie Constant GNACADJÂ Ministre de l'Environnement, de l'Habitat et de I'Urbanisme, de I'intérim de Monsieur Ousmane BATOKO, Ministre de la Fonction Publique, du Travail et de Ia Réforme Administrative LE PRE§IDENI DE tA REPUBTIQUE CHEF DE T'EIAT, CHEF DU GOUVERNEAAENT VU la tni N"90-032 du ll décembre 1990, portant Constitution de la République du Bénin ;
+W la proclamation le 03 awil 2001 par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du 22 mars 2001 ;
+VU le décretN"2001-170 du 07 mai 2001 portant composition du Gouvemement ; DECRETE Article I"': Pour compter du lundi l0 septembre 2001, Monsieur Luc Marie Constant GNACADJA, Ministre de I'Environnement, de I'Habitat et de l'Urbanisme, est chargé de I'intérim du Ministre de la Fonction Publique, du Travail et de la Réforme Administrative pendant I'absence de Monsieur Ousmane BATOKO.
