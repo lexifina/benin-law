@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, te 04 août 2oo4 AMPLIATIONS : PR 6 AN 4 CS 2 CC 2 I SGG 4 AUTRES MINISTERES 16 JO LE PRESIDENT DE LA REPUBLIqUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT, DECRETE Le Président de la République, Chef de l'Etat, Chef du Gouvernement, Mathieu KEREKOU 2 HAAC 2 MECCAG-PDPE 4 MFE 4 MIPME 4
