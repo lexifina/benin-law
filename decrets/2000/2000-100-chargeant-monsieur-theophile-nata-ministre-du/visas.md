@@ -1,0 +1,4 @@
+# Visas
+
+REPUBLIQUE DU BENIN DECRET PITESIDENCE DE LA REPUBLIQUE DECRET NO 2OOO.1 OO DU 06 MARS 2OOO Chargeant Monsieur Théophile NATA, Ministre du Développement Rural de l'intérim de Monsieur Abdoulaye BIO TCHANE, Ministre des Finances et de l'Economie à compter du 04 mars 2000 LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT, .VU La Loi No 90-032 du 11 Décembre 1990, portant Constitution de la République du Bénin La Proclamation 1e l"'Avril 1996 par la Cour Constitutionnelle des Résultats déhnitifs de l'élection Présidentielle du l8 Mars 1996 ;
+Le Décret N' 99-309 du 22 Juin 1999, portant composition du Gouvemement ; ARTICLE lER: Pour compter du 04 mars 2000, Monsieur Théophile NATA, Ministre du Développement Rurals est chargé de f intérim du Ministre des Finances et de J'Economie pendant I'absence de Monsieur Abdoulaye BIO TCHANE.
