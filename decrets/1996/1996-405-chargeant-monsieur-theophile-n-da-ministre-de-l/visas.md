@@ -1,0 +1,4 @@
+# Visas
+
+REPUBLIQUE DU BENII{ PR-ESIDENCE DE LA REPUBLIQUE DECRET No 96*405 DII 19 sEErrilBBE 1996 Chargeant Monsieur Théophile N'DA Ministre de l'Intérieur, de la §écurité et de I'Administration Territoriale de I'intérim de Monsieur MoTse MENSAH Ministre des Finances pour compter du 20 Septembre 1996 LE PRESIDENT DE I,A REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOTIYERNEMENT, VU la Proclamation le ler Avril 1996 par Ia Cour Constitutionnelle des résultats définitifs de l'élecüon présidentielle du 18 Mars 1996 ;
+YLJ le Decret N'9G12E du 09 Avril 1996 portant composition du Gouvernement I NECRETE Article ler.- Pour compter du 20 Septembre 1996 Monsieur Theophile N'DA' Ministre de l'Intérieur, de Ia Sécurité et de I'Administration Territoriale est chargé de I'intérim du Ministre des Finances pendant I'absence de Monsieur Moise MENSAH.
