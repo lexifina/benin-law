@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à COTONOU, le 5 nars Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, u.- Mathieu KEREKO Le premier Ministre, chargé de la Coordination de l'action Gouvernementale et des Relations avec les Institutions, porte-parole du Gouvemement, {"vL Adrien HOUNGBEDJI.- Le Minisüe du Plan, de la Restructuration Economique et de la Promotion de l'Emploi, Le Minisfre des Finances, M ME Albert TEVOEDJRE.- Ampliations : PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 PM 4 MPREPE 4 MF 4 MISAT 4 AUTRES MIMSTERES 1t-SGG 4 DGBM-DCF-DGTCP-DGID-D GDDI 5 BN-DAN.DLC 3 GCONB-DCCT-INSAE 3 BCP-CSM-IGAA 3 UNB-ENA- FASJEP 3 JO 1,- SAH.-
