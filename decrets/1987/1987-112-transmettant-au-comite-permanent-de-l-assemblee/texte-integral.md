@@ -1,0 +1,29 @@
+# Décret n° 1987-112 du 4 mai 1987 transmettant au Comité Permanent de l'Assemblée Nationale Révolutionnaire, pour autorisation de ratification du Protocole additionnel portant amendement de l'Article 4 du Traité de la Communauté Economique des Etats de l'Afrique de l'Ouest relatif aux institutions de la Communauté
+
+:
+transmettant au Comité Permanent de lrAssemblée Nationale Révolution ' na1re, pour autori§atLon de ratlfi-c;r.' tion àu- Frotocole additionnel pôrtaat amendement de ltArtlcle 4 du lrai'5 5 de 1a Communauté Econonlque des E-tabs de ltAfrique de ltOuest relatif au.;
+instltuti.ons de 1a Communauté .
+iÆ FRESIDENT DE LA REzuBLIQUE, CHEF DE L'ETAT. PP,ESIDENT DU CONSEIL E}ECÛTIF NATIONAL, 1ru lrordonnance No 77-12 du 9 Septembre i977 portant promulgat{., ' de Ia Loi Fendamentale de la République Populalre du Bénin '' Ies Lols Constltutionnelles qui lront modlflée ;
+W le décret No B7-rB du 1f Fév:'ler 19A7 portant compositlon CL.
+Conseil Exécutif Natlonal et de son Comité Permanent ;
+W 1e Traité Constitutif de la coûununauté Economlque des Etats de lrÀfrique de lrouest ;
+W 1e Protocole addit'ionnel portant amendenent de ltarticle 4 '*:r Traité de la Communarrté Eôonomlque des Etats de t'Afrlque d-e ' ltOuest relatif aux Instltutlons de 1a Communauté ;
+TM]..
+REzuBLIOUE POPULAIRE DU BENIN PR.ESIDENTE DE LA REzuBLIOUE DECF§T N" 87-112 du 4 Mal 1987 LE Conité Permanent du Consell Exécutlf National entendu en sa séance du 18 Février 1987, DECRETE :
+I " L" protocole addltionnêI portatxt amendement de ltarticle 4 du Traité de l-a Corununauté Eèonomique des Dtpt' 4'' l-tAf;iq;; de itouest relatif aux institutions de la Corununauté dont 1â teneur suit sera présenté au Conité Permanent de lrAssemi:iée Nationale Révolut ioniraire par Ie Ministre de la Défense et des Forces Armées Populaires, 1ê Ministre des Fi-nances et de iiu"o"ôÀi" et Ie Ministre deé Affaires Etrangères et-de 1a coopl-' ration qul sont chargés dren ex;:oser Ies motifs et dlen soutenj':
+t , 1a discussion.
+Le 29 }4ai 1981 à Freeto'..,Y] au Llbéria, 1es Chefs d.tEtat et de Gouvernement de_la Communaut é Economique'd.es Etâts de 1rr\frlque de ltOuest (CEDEAO) ont signé un Frotocole Additionnel portant amendement du paragraphe I Cè lrartlcle 4 clu Traité Constitutif de 1a Corununauté rètatif à ses Institutions.
+Ledit artlcle lntègre désormais un ConseiL de Défense.
+Le but poursulvl par 1es Chefs drEtat et de Gouvernerent est d I r"ule plrt de créer '_in organe de concertatlon en raatière de défense^et drautre part de jeter les bases susceptibles de contribuer effLcacenent au renforôement de 1a sécurité- des Etats membres cle la Communauté .
+EXPOSE DES MOTIPS C.AMARADES MEI"tsRES DU COMI1E PERMANENT DE LIASSEI\tsLEE NAIÏOT]ÂI.N REVOLUT]ONNAIR.E.
+10 - Le Conseit de Déf se comme o ane de concertatlon 20-LeC onseir d: Déf ens e comme or ane pouvart contrliJuer _ Ies années 1970 ont, été marquées par des agressions ermées de reconquête coloniale de touies soites a frËnaroii- oes Etats-Africains .en généra1 et de certains Etats en parti;ulier, actuellement membres de 1a Comrirunauté Economlque dei Etats de ltAfrlque de lrOuest. Ce fut Ie cas de Ia GuiriÀÀ cànamy àn- Novembre 1970 et de notre pays Ie 16 J anv1.er 1977.
+Par aj.11eurs, aujoirthul encore, entre 1es Etats Àfricalns eux-mêmes suiviennent parfois dés conflits armÈi et autres incidents frontaliers essêntiellement dts à la nôn-déIimitation des frontlères héritées de 1a colonisation. Face à ces faits,énumérés plus haut qul sont de nature à compromettre Ia stabiltté politiquè de ces Etats et à perturoer leur développement
+- socio-écoàouriqué, 11 étalt impérleux àe mettre sur pled r-ur cadre de-réflexion, et dt6çhange dreiçériences ét de concertation en matlère de défense au niveàu des Ètats membres.
+Dans 1a mesure où dans lrimmédlat 1e Conseil_ de DéfànÀe nïimplique pas nécessalrement une intégration des Forces armàài--Nàtionâr"".
+1l- serait souhaltable que cè cadre soit raaintenu et ar:iné-ôô"iô".rement à 1a volonté des Chefs d.rEtat et de Gouvertenent. au renforce ment de 1a sécurité des Etats nerrbres de 1a Cummunaut é Le Conseil de défen renforcernent de la sécurité d dans la nesure où les échange permettront aux uns et aux au existant et par voie de consé té, condition sine qua non du pays de Ia sous-région.
+se peut efficacement contrribuer ar.r es Etats nembres de Ia C omrTrunaut é s dre>çériences dans ce dcmaine précis tres draméliorer 1e système de d.éfense quence drassurer.la pà1x et la séc,:ridéveloppenent socioléconomique dcs , 11 est à noter également constitue sans conteste un facteur des Etats membres de 1a Communauté tribuer au renforcenent du capj.tal ces Etats .
+que 1e Conseil de Défense de rapprochement slgnificatif et par conséquent pouma con- Ce conflance existant entre La créatlon du Conseil de Défense au sein de 1a Cgmmunaut é Economique des Etats de ltAfrlque d.e ltQrest Àrinscrit parfaitement dans Ie cadre du renforcemenf de lresprlt communautalre qui anime 1es Chefs drEtat et de Gouvernement des payJ membres.
+Ltentrée en vigueur déflnitive du protocole Dortant amendement de lrarticle 4 de la Communauté Economique àes Etats de LrAfrique de lr0uest et relatif aux Instltutions de 1a Conmunauté .1e sera effectlve que si ledlt Protocole est ratlfié. CIest_pourquoi,
+- conformément à lrartj.cle 41 de 1a Lol Fondamentale, Jral lrhonneur de vous Ie soumettre pour autorisation d.e ratiflca-' tion.
+CAMARADES IIEMBRES DU COMIIE PERMANENT DE LIASSEI,tsLEE NAîI ONAI,E REVOLUÎ IONNAIRE Fait à COTONOU Ie 4 L[a1 1987 p Cftar e1 sid tio ef 1e Président d de lrEtat, Pré Exécutif Na a République, ent du Conseil na1 , Mathieu IGREKOU Le Mlnistre des Fln l,e Ministre des Affaires Etrangères et de 1a Coopérationr on B abé BIDOUZO Anpliations:
+t^/ I CPC 2 PPC 1.- pR 6 sL/cc/pRpB 4 sccEN 4 cplANR 20 MFE-MAEC 8 , et r- Guÿ Lanclrÿ L#,ZOLJiUE. -
