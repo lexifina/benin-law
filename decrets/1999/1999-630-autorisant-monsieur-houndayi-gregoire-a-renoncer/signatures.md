@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou,le 27 décembre 'l 999 I)ar le Président de la RépubliqLLe- Chcf clc l'Etat, Chel'du Gouvernentent, r\la eu KEREKOU.- Le Ministrc cl'Ltat . chargé de la Coordination de l'Action Gouvernernentale, du Plan, du Développement et de la Prornotion de l'Emploi, Bruno,.\NIOLjSSOLI - Le Ministre des Affaires Etrangères et de la Coopération, Sylvain Adékrrédiou,\l\lNl)l-S - Le garde des sceaux, Minisüe de la Jr-rstice, de 1a Législation et des Droits de I'Homme, @)t,-ln-"*t1., \ Gaston ZOSSOU.- _! Ministre intérirnaire Ministre intérimaire ANIPLIATIONS : PR 6 AN-1 CS 2 CC 2 CES 2 IIAAC 2 MECCAG-PDPE 4 I MAEC 4 MJLDII4 AUTRES MINISTERES 16 SGG 4 DGBM-DCF-DGTCP- DGDDI-DGID 5 BN.DAN-DLC 3 CCONB-DCCT-INSAE 3 BCP-CSM- IGAA 3 UNB-ENA-FASJEP 3 .Io I
