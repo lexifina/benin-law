@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 16 ocroBRE Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, Mathieu KEREKOU.- Le Premier tre, chargé de la Coordination de l'Action Gouvernementale et des Relations avec les Institutions, f o Adrien HOUNGBEDJI.- Le Ministre du Plan, de Ia Restruturation Economique et de la Promotion de l'Emploi, i tt\"'' \ Le Ministre des Travaux Publics et des Transports, --'t Karâarou E{SSASST.- z ,À Amnliations : PR 6 AN 4 CS 2 CC 2CES2 HAAC 2 PM 4 MTPT 4 MPREPE 4 AUTRES MiNISTERES 14 SGG 4 DGBM.DCF-DGTCP- DGID.DGDDI5 BN.DAN-DLC 3 GCONB-DCCT-INSAE 3 BCP-CSM- IGAA 3 TINB-FASJEP-ENA 3 JO 1.-
