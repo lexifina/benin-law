@@ -1,0 +1,3 @@
+# Signatures
+
+Fait àCotonou,le 27 NovEl,tBRE 1997 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Mathieu KEREKOU Le Premier Minis[e char la coordination de l'Action Gouvernementale et elations avec les Institutions Porte-Parole du Gouvernement, Le Ministre du Plan, de la Restructuration Economique et de la Promotion el' loi, Albert TEVOEDJRE Ampliations : PR 6 AN 4 CS 2 CC 2 CES 2 IIAAC 2 PM 4 MDR 4 MPREPE 4 Autres Ministères 15 SGG 4 DGBM-DCF-DGTCP-DGID-DGDDI 5 BN-DAN- DLC 3 GCONB.DCCT-INSAE 3 BCP.CSM-IGAA 3 UNB-ENA-FASJEP 3 JO 1.- DECRETE t, I I Adrten HOUNGBEDJI Le Minisfe du Développement Rural, 2l,t .4 ( t-- Jérôme SACCA-KINA
