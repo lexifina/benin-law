@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 22 octobre 2OOJ \Iathicu KEIIE KOU.- Le Ministre d'Etat chargé du plan, de la Prospective et du Développement Bruno AItOUSSOtI Le Ministre des Finances et de I'Economie, Le Ministre de l'Industrie, du Commerce et de la Promoti de I'Emploi, Grégo re ou.- LOGAN.- ,;;* Le Ministre de la Fonction Publique, du Travail et de la Réforme Admini strative, Le Ministre de l'Agriculture, de 1'Elevage et de la Pêche, AA Bou OUETO AMPLIATIONS: PR6 AN 4CC 2 CS 2 HAAC 2 CES 2 MCPPD 4 MFPTRA 4 MICPE 4 MFE 4AUTRES MINISTERES 18 DGBM-DCF- DGTCP- DGID- DCDDI 5 BN-DAN-DLC 3 GCONB-DCCT-INSAE 3 BCP-CSN -IGAA 3 UAC-ENAM-FADESP 3 TÎ{IPAR-FDSP 02 JO I ar .-\l{OL \
