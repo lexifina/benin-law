@@ -1,0 +1,6 @@
+# Visas
+
+REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUDLIQUE /r)ECRET No 97-241 DU 12 ltÀr 1997 Chargeant Monsieur Kamarou FASSASSI Ministre des Travaux Publics et des TransPorts de l'1ntérlm de Monsieur IsmaêI TiDJANI-SERP0S Garde des Sceaux Ministre de 1a Justice de Ia Législation et des Droits de I'Homme.
+Monsieur Kamarou FASSASSi' ts est chargé de I'intérim de 1a Législation et des eUr ISMAêI TiDJANI-SERPOS.
+! LE PRESIDENT DE LA REPUBLIQUE CHEF DE L'ETAT CHEF DU GOUVERNEMENT ' VU La Loi N" 90-012 du 11 Décembre 1990 Dortant constitution de Ia RéPubllque du BENIN' vu La procLamation le 1er AvriI 1996 par la cour constitutionnelle cjesrésultatsdéfinitifscel.électionprésidentleIle du 18 Mars 1996' VULeDécretN"96-128du09Avril1995portantcompositlon du Gouvernement ' DE CRETE I 1C1e l-- Pour comoter du 28 Avril 1997' Ar Ministre des Travaux Publics et des 'Iranspor du Garde des Sceaux, Mlnistre de Ia Justice' Droits de I'Homme pendant l'absence de Monsi Par 1e Président. de la RéPublique' Chef de I'Etat, Chef du Gouvernement' Le présent Décret sera publié au Journal 0lficiel' FAiT A COTONOU, LE MAI ].
+I t ERE A[4P L IATiûNS:PR6 AN4 CS2 CC2 C 2 HAAC 2 PM 4 MTPT 4 JORB '1 . - MJLDH 4 SGG 4 AUTRES M]NISTERES 16 EPARTEMENTS 6
