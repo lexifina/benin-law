@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, "1 ," ~.. ; ...- ~ ."-;, /' Le Ministre d'Etat, Chargé de la Coordination de l'Action Gouvemcmental eO) de la Prospcctive ct du Développemcnt, f· ~~--- --_..- .-===--- .- Brul10 AMOUSSOU Le Ministre des Enseignements primaire et secondairc J!ean ~io CHAn! OROU • n Le Ministre des Finances et de l'Economie, / ' ) 1 (fJvr~ .
+, . ' j \" \ Abdouiaye Il.fO TCHANE Le Ministre des Enseignements techniques et de la formation professionnelle Dominique Codjo Koko SOHOUNHLOUE Le Ministre de la Santé publique Yvctte Célinc SEIGNON née KANDISSOUNON AMPLIATIONS: PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 MECCAO-PD4 MFE4 Autres Ministères 19 SOG 4 DGBM-DCF-DGTCP-DGDDI 5 BN-DAN- DLC 3 GCONB-DCCT-INSAE 3 BCP-CSM-IGAA 3 UNB-ENA-FASJEP 3 JO 1.-
