@@ -1,0 +1,8 @@
+# Signatures
+
+Fait à Cotonou, le 11 Avril 1991.
+Par le Pré s i. den t Chef de I'Etat de 1a Êépub1i quc Chef du Gouvernemenr.
+MINTSTRE DU PLAN, ET DES FIi{ DE CE L I ECONOIqIE NICEPHORE SOGLO.
+rvlINISTlrE D I ETAT CHARGa L'i LA COORDINATIO}i DE L I ACTIOIi GOUVERNE- MENTALE ET DE LA DEFÊNSE, PAUL D ssou.
+DESIRE VIEYRA.
+AMPLTAT]ONS : PR 6 SGG 4 CS 2 IIIECAGD.MPEF 4 DCIMIL-PR 2 EMG-F;iB 4 JORB 1.- l.*
