@@ -1,0 +1,5 @@
+# Visas
+
+/BA REPUBLIQUE POPULAIRE DU BENIN PRESIDENCE DE LA FEPUBLÏOUE DECRET N' 84-332 du 2l Août 1984 portant agrdment de 1'Unité 'Industriel- 1e de boiésons gazeuses non alcôo1isées, les Boissons du Renouveau rrAranse ofuvüâfr (BRAO) au régj-me Bn du Code des Investissernents.
+LE PRISTDEI'IT DE L.ê, REPURLIQUE, CHEF DE L,:.ETAT-.-PRE§IDENT DU1...,-.', ..1r.
+CONSE]L EXECUTIF NATIONAL, ',;, , -'\ I:'!.1 VU ....1 t Ordonnance No 77 -32 du 9 septembre 1977 portant àe 1. toi Fondamentâle de Ia République Populaire et 1es Loi.s Constitutionnelles qui 1'ont modifiée, prolulgat i on du Benan VU 1e Décret No"A4-322 du J Aott 1ÿ81+ portant composition du Conseil Exécutif et de son Comité Permanent, VU Ia Loi No B2-OO5 du 20 Mai 1ÿ82 portant Code des lnvestissements, SUR proposition du Ministre DéIégué auprès du Président de Ia République, chargé du Plan et. de 1a Statistique, après _avis de fa Commission Technique oe§ .inve st i ss ements en sa séance du 12 Juin 1ÿ81r, u1 uonse].l !.;xecutai National entendu en sa séance du 'l 6 Aott 4l-\oJ, r :,(-)T, DECRETE
