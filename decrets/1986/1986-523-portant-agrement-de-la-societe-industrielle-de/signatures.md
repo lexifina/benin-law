@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, fe 19 Décembre 19q6 Pour -Le rr ésident de 1a RéPub11 1e Préslde b1ée Natio 1i intérimt nt du Comite Perm nafe Révolutio oue absent, t de lrAssemchargé de tl ll) Roma i-n V LON-G ZO a I.^ Ministre DéléCué auPrès du FiéslOent de 1a RéPublique, ôrr"reé du P1ân et de la Stat ist ique t L. I'{inistre du Travail -et des Affaires Sociales r A rt Z 1- SALAIViI NathanaË 1 MENS.AH ) Le 1r Mini str Arti sana ommerce , eduC tetd de trêr Le Ministre des Flnances et de 1r Eçonomi llosDl-c e /" ANTONlO .i/ biaier DÀssr (min=ffiaire) ffiËÈ1ftÉÈ:t8^i-dB 3 Î14ffi fr ,it(3E*3,'ÎÎi't"E:,Ê"iiry"rÎigË.,üfii*2., iôiË-î ëü:ôilDDDr-o"oi-oicp 4 ncp-rNs.sE-Drc-DpE I srscAR-BENTN 4 JORPB 1.-
