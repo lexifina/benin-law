@@ -1,0 +1,9 @@
+# Visas
+
+REPUBLIQUE DU BENIN DECRETNO2OOO.5fS DU 6 NOVM,IBRE 2OOO Portant Reclassement dans I'Ordre du Mérite Social de certaines Personnalités Béninoises précédemment Membres de I'OMS du Dahomev PRESIDENCE DE LA REPUBLIQUE LE PRESIDENT DE LA REPT]BLIQUE CHEF DE L'ETAT CIIEF'DU GOIryERNEMENT GRAND-MAITRE DE L'ORDRE NATIONAL DU BENIN ou' VLI VU VU VU VU Ovu VU VU La Loi N' 90-32 du 1l Décembre 1990 portant constitution de la République du Bénin ;
+la Proclamation le l"'Avril 1996 par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du l8 Mars 1996 ;
+la Loi N' 94-029 du 03 Juin 1996 portant réorganisation de l'ordre National du Bénin ; la Loi N" 87-019 du 21 Septembre l9B7 portant création de I'ordre du Mérite social ; le Décret No 99-309 du 22 Juin 1999 portant composition du Gouvemement ; le Déoet N' 91-76 du 10 Mai 1991 portant nomination de Monsieur Grégoire-Gilbert GBENOU en qualité de Grand chancelier de l'ordre National du Bénin par Interi- ; les Décrets Nos 88-337 du 19 Août 1988 et 99-243 du 14 Mai 1999 portant nominations des membres du Conseil de I'Ordre National du Bénin ;
+les Décrets N's 69-229 du 04 septembre 1969,70-194 du 29 Juillet 1970, 7l-179 et 197 ü 22 septembre 197 | , 72-04 et 204 du 3 I Juillet 1972 portant Nominations ou Promotions respectives dans l'Ordre du Mérite Social du Dahomey ;
+les Différentes demandes de reclassement dans l'ordre du Mérite social formulées par Monsieur HOTINCANRIN ODON Brice et consorts ;
+DEC RETE:
+ârticle ler : En application des dispositions de l'article 64 alinéa 2 de la Loi N" 94-029 dl 03 Juin 1996 portant réorganisation de l'Ordre National du Bénin, les personnalités Béninoises dont les norns suivent, précédemment nommées ou promues à titre civil dans l'Ordre du Mérite Social du Dahomey sont reclassées dans l'Ordre du Mérite Social du Bénin à concordance de grade.
