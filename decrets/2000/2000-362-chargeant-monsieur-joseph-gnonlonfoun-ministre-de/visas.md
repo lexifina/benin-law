@@ -1,0 +1,4 @@
+# Visas
+
+PRESIDENCE DE LA REPUBLIQUE DECRET N" 2OOO.f62 DU 2 AOUT 2OOO Chargeant Monsieur Joseph GNONLONFOUN, Ministre de la Justice de la Législation et des Droits de l'Homme de l'intérim Monsieur Séverin ADJOVI, Ministre du Commerce, de I'Artisanat et du Tourisme.
+LE PRESIDENT DE LA REPIJBLIQUE, CHEF DE L'ETAT CHEF DU GOUWRNEMENT, Vu LaLoi 90-32 du 1l Décembre 1990, portant Constitution de la République du Bénin, Vu La Proclamation le l" Awi[ 1996 par la Cour Constitutionnelle des résultats dé{initifs de l'élection présidentielle du l8 Mars 1996, Vu Le Décret no 99-309 dt 22 Juin 1999, portant Composition du Gouvemement, Article lt': Pour compter du 30 Juillet au 03 Août 2000, Monsieur Joseph GNONLONFOUN, Ministre de la Justice de la Législation et des Droits de l'Homme est chargé de l'intérim du Ministre du Commerce, de l'Artisanat et du Tourisme absent.
