@@ -1,0 +1,16 @@
+# Décret n° 1977-180 du 5 août 1977 portant création d'une commission ad hoc pour le rachat des maisons privées sises dans le périmètre du Camp Guézo, du Centre Nationale Hospitalier et Universitaire, du Boulevard de France et de l'Immeuble dit Bâtiment des 8 étages de l'Office béninois de Sécurité Sociale
+
+REPUBLIOUE POPUL,IIRE DU BE]T{TN PRESIDENCE DE I,Ji REPUBLIQUE DECRET No77-180 du 5 LoOt 1977 portant création drune conmission ad hoc pour' 1e rachat des maisons privées sises dans le périmètre du Camp Guézo, du Centre National Hospitalier et Universitaire, du Eoulevard de France et de lrlmmeuble dit Bâtiment des B étages de lr0ffice Bénlnois de Sécurité Sociale.
+LE PRESIDENT DE LA REPUBLTOUE, CHEF IIE LrET.,iT, CHEF DU GOWERNEIIU]{NT, VU 1a Procl VU 1e décreamation du est créé une sl ses dans l-e t No76-26 d26 octobre 1972 ;
+u 30 janvier 1976, portant formation du Gouu 19 février 1976, déterminant les services idence de la République et fixarit les attridu Gouvernement , DEC ETE ! i\RTfCLE 1er - I] mar-sons prlvee§ vernement ;
+VU Ie décret No76-46 d rattachés à la prés butions des membres -d dt d rachat des ement des différents responsables du parti et commission ad hoc pour le périrnètre ci-après défj.ni l-eur défense et leur sécurlté Jeur interveotion, en cas
+- è 1:Est, depuis le carrefour de 1rHôte1 du port jusqurau passage à niveau de 1a Bourse du Travaii, ' à rrouest, par le centre $atiorral Hospltalier et unlversitaire, r au sudr par Ie Boulevard êq France depulE re carrefour de 1rHôte1 9y lo"l jusqufau carrefour. formé par ie gouievàrà-àÀ rrarrce et ra roure longeant ]e c6té ouest du Mi..:nistère des ,,,.ffalres Etiangères et de 1a Coopération, r .3y I?"d.p"Llrimmeuble dl.E Bâtiment des B étages de 1'Office Béni'nois de sécurlté sociale et lrespace compiis entie éàt immeubIe et La Dlrection Cénérale de k SôNAGRI . ' ÀUJ-CLL2. - La c,ommission aurl égalemont pour tâches
+- de règlementer lroccupation de l-rimmeuble dlt Bâtinent des B étagee de Lt0.B.S.S. et e procéder au rcloa e I rEtat de façon à out en améliorant 1 t alerte .
+mieu,( as I efflCacl er de §ur rd ÀRTICLE f - La composition de ]adlte commlssion est 1a suivante :
+- 1es Membres de 1a Commission de Défense et de Sécurité du Comité Central du Parti de 1a Révol-ution Populaire du Bénln, les Directeurs Généraux de la Banque Cornmerciale du Bénin et de 1a Banque Béninoise pour 1e Développement et leurs adjoints, 1e Directeur Généra1 de }a Caisse r\utonome d t âmortissement, Directeur Général, de 1a Société Nationale des Industrles des r1r s Gras ,
+- Ie Directeur du Trésor et de Ia Comptabilité ,Publique,
+- le Canarade KOUSSE Alidou, Expert-Comptabl e,
+- un Conselller Technique Juridique du Président de }a Répub1lque,
+- un Conseiller Technique à .l-?Economie du Présideht de 1a République. ,/rltTI CLE 4 - La commission devra commencer càtion Eü présent décret et ses conclusion Chef de lrBtat le JO septenbre 1977 au plu 1e Co ÀB!f,iel_l,on_s CAB-MIL. 6 S.\ du C.C. 2 ADC travaux, dès notifloivent parwenir au ard.
+sd ^-llfiLIgLE 5 - Le prelsent décret besoin sera. - sera publié et c ommi:ni qué partout où par Chef 1e de Président de la République, lrEtat, Chef du Gouvernement, MembrèÈ rie la commission 25.
+dUPR2 SGG4 Fait à COT0NOU, \e 5 iioût 1977 Mathieu KEHEKOU
