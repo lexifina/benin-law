@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à COTONOU, le 06 février I Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, ATHIEU KEREKOU Le Premier Ministre, c de la Coordination de l'Action Gouvem tale et des Relations avec les Institutio orte-Parole du Gouvernemen /, Le Ministre des Finances, Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, M NSAH IsmaëIT ERPO AMPLIATIONS: PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 PM4 MJLDH4 AUTRES MINISTERES 15 SGG 4 DGBM-DGTCP-DCF-DGID-DGDDI5 BN- DAN-DLC 3 GCONB-DCCT-INSAE 3 BCP-CSM-IGAA 3 UNB-ENA-FASJEP 3 MF4 JO l.- ANI Adrien HOUNGBEDJI
