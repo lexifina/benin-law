@@ -1,0 +1,10 @@
+# Visas
+
+/oa REPUBLÏOUE POzuLAIRE DU BENII,I PRESTDENCE DE LA REPUBLTQUE DticRET N' e7-q3 du 27 Févri er 19t.7 portant licencleoent de leurs emplois des Camarades Evariste FIOGBE et I,laurice.AHQLCIJ précédei;rment en service à lrEx-Société Générale de Commerce du Bénin (socECoB) IE PRESIDENT DE LA FTNPUBLIO CTIEF DE LIETAT. PR]SIDENT CONSEIL E}GCUf]F ii^IIONAL IIE, DU t W VIJ Lt ordonnance sltlons en vu raents de denl par Les Agent Locales;
+VU VU Le décret No B 1a Cornmission chés aux Camar ment en servic (socecoa) ;
+i VU Le ra f9 au LE Consell Exécutif National 4 Févrler 19BT 3 19 du 1'1 Février 1985 portant création de hoc chargée de connaltre des faits reproes Evariste FIOÇBE et consorts, précédemà la Société Généra1e de Commeicè du Bénin L,ordonnance No 77-32 du 9 Septembre 1977 portant promulgatlon de la Loi Fondamentale de 1a République Populaire du Bénin et les Lois Constltutionnelles.'qui 1!on!-modifiée, No 80-6 du .1 1 Février 198O édlctant 1es dispoe de 1a répressj-on disciplinaire des détourneers publios et certaines infractlons cornmLs s de J.rEtat et 1es Enployés des Collectivités Le du décret No B7-rB du 1J Févri er 19AT portant composition Con,sel1 Exécutif Natj.onal et de son Comité Permanent r ad ad pp I de Ia vrier ort Fé I Commission ad hoc créée par décret No 85- 1985 i entendu en sa séance du Mercredi DECRElE:
+Article '1 er Les Camarades Evariste FïOGBE et Mar.ri.ce AHOLOU pour détournement de d.eniers sont.Ifcenci es. de leurs emD-Lô1s publics.
+IIs sont déclarés à jamais incapables dr.exercer un emplol public ou seml;-pub1ic.
+I3.s pourront, toutefois, prétendue au remboursement des retenues pour pension opérées sur leurs saLaires.
+Artlcle J.- Les Camarades Evariste PIOGBE et Maurlce AHOLOU en débet par Ie llinistre des Flnances et de lrEssevront rembourser, à la Soclété Généra1e de Cormercc SOCECOB). respectivement 1es sommes de Vingt trois uit cent- soixante quinze mi1le quatre cent soixante dix sept (25.a75.477) francs et Un millioÀ cinq cent trente s1::
+mi11e (1.516.000) francs, montants des valeurs détournées.
