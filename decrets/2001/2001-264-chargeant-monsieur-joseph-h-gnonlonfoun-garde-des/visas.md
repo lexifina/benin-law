@@ -1,0 +1,5 @@
+# Visas
+
+REPUBLIOUE DU BENIN PRESIDENCE DE LA REPUBLIQUE DECRET NP 2OO1 .264 DU 2] JUTLLET 2OO1 CS 2 - CES 2 - HAAC 2 - MTPT 4 - SGG 4 AUTRES , Chargeant Monsieur Joseph H. GNONLONFOUN Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme de l'intérim de Monsieur Joseph Sourou ATTIN, Ministre des Travaux Publics et des Transports le 21 Juillet 2001 LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAÏ, CHEF DU GOUVERNEMENT, VU La |oi n" 90-032 du 1 1 Décembre 1990 portant Constitution de la République du Bénin , VU La Proclamation le 03 Avril 2001 par la Cour Constitutionnelle des résultats définitifs du second tour des élections présidentielles du 22 Mars 2001 ;
+VU le Décret n" 2001-170 du 07 Mai 2001 portant composition du Gouvernement de la République du Bénin.
+DECRETE Article ler : Pour compter du 21 Juillet 2001, Monsieur Joseph H. GNONLONFOUN, Garde des Sceaux, Mrnistre de Ia Justice, de la Législation et des Droits de l'Homme est chargé de l'intérim du Ministre des Travaux Publics et des Transports pendant l'absence de Monsieur Joseph Sourou ATTIN.
