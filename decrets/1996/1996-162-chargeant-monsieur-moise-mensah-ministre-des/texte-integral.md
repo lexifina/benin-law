@@ -1,0 +1,7 @@
+# Décret n° 1996-162 du 6 mai 1996 Chargeant Monsieur Moïse MENSAH, Ministre des Finances de l'intérim de Monsieur Albert TEVOEDJRE, Ministre du Plan, de la Restructuration Economique et de la Promotion de l’Emploi pour compter du 07 Mai 1996
+
+/BA REPUBLIOIJE DU BENIII PI]OSID]]NCB DE LA .iEPUBLIOUE DECRET N" 96-162 du O6 i.tai 1996 Chargeant Mongleur Malse ltlENSÆi, Ministre des Finances de ltintérin de Ivlonsleur Albert TEVODJRE, Mlnistre du P1an, de Ia Restrscturatlon Economlque et de 1a Promotlon de lrEmplol paur compter du O7 Mal 1996.
+LE TRESIDENT DE LA REPUBLIQUE, CIIEF DE LIETAT, CHEF DU GOUVERNEMENI, VU 1a Lol No 9O-Of2 du 11 Décembre '1990 poftalt Constltutlon de 1e Républlque du Bénln ;
+fo reclamatlon Ie 1er Aw'11 1996 par Ia Cour Cons tltutj.onnelle sultats déflnltifs de 1'élection présldentielle du 18 l4ars 1ru 1e Décret X1o p6-1 28 du 09 Avrll 1996 portant composltion du Gouvernement, W laP des Fait à coroNou, Ie 06 l.iai 1996 par 1e Président de Ia Répub11que, Chef dé ltEtat, Chef du Gouverllement, ?'Èfr J( 6 JORD Ampliations : llll 6 AN 4 cE 2 cES T4TNTST.ITES 15 SGG 4 DEFA}U]ti.'X1NTS ïla KEREKOU.,- M4J@fiSIE*llf*4}1RÈ& ËÈ* DECRETE Article 1e!.- Pour compter du 07 Mal 1996, Iltonsieur Molse MENSÆI, mîI sTie--ââs Flnances èst chargé de ltintérlm du Mlnlstre du Plan;
+de la Restructuratlon Economique et de Ia Prrmotlon de 1tEuplol pendant 1t absence de l{onsieur Albert TEVOEDJRE..
+Artlcte 2.- Le présent Décret sera publié au Journal- Offlclel.
