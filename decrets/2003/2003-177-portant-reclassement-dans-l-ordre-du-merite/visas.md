@@ -1,0 +1,9 @@
+# Visas
+
+r-- .1 'l o REPT]BLIQUE DU BENIN DECRET No zooS-j77 DU 22 MAr zooS Portant Reclassement dans l'Ordre du Mérite Social de Monsieur ASSOGBA Théophile précédemment membre de l'Ordre du Mérite Social de la République Populaire du Bénin PRESIDENCE DE LA REPUBLIQT]E LE PRESIDENT DE LA REPT]BLIQUE CHEF DE L'ETAT CIIEF DU GOIryERNEMENT GRAND-MAITR.E DE L'ORDRE NATIONAL DU BENIN VU La Loi N' 90-32 du I I Décembre 1990 portant Constitution de la République du Bénin W la Proclamation le 03 Avril 2001 par la Cour Constitutionnelle des résultats déf,rnitifs de l'élection présidentielle du 22 Mars 2001;
+\/tJ la Loi No 94-029 du 03 Juin 1996 portant réorganisation de I'Ordre National du Bénin;
+la Loi No 87-019 du 21 Septembre 1987 portant création de I'Ordre du Mérite Social ; le Décret N" 2001-170 du 7 Mai 2001 portant composition du Gouvemement et le Décret No 2002-082 du 20 Février 2002 qui I'a modifié ;
+VU le Décret N" 91-76 du 10 Mai l99l portant nomination de Monsieur Grégoire-Gilbert GBENOU en qualité de Grand Chancelier de l'Ordre National du Bénin par intérim ; VU les Décrets N's 88-337 du 29 Août 1988 et 99-243 du 14 Mai 1999 portant nominations des membres du Conseil de I'Ordre National du Bénin ;
+W le Décret N" 72-204 du3117ll972 portant nomination de Monsieur ASSOGBA Théophile dans I'Ordre du Mérite Social de la République Populaire du Bénin ; W la Lettre de demande de Reclassement dans l'Ordre du Mérite Social de la République du Bénin formulée par Monsieur ASSOGBA Théophile le 13 Novembre2002;
+VI., vI-I a DECRETE:
+Article ler : En application des dispositions de I'article 64, alinéa 2 de la Loi no 94-029 du 03 Juin 1996 portant réorganisation de I'Ordre National du Bénin, Monsieur ASSOGBA Théophile, Employé retraité de la S.NA.H.DA, précédemment officier de l'Ordre du Mérite Social de la République Populaire du Bénin est reclassé dans I'Ordre du Mérite Social de la République du Bénin à concordance de Grade.
