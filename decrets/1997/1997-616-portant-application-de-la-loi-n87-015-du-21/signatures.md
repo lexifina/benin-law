@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à COTONOU, le 18 DECE!,IBRE 1997 Par le Président de la République, Chef de l'Etat, Chef du Gouvemement, athieu KEREKOII - Le premier Ministre, c ge de la Coordination de l'Action Gouvernementale et des Relations avec les Institutions, Porte-Parole du Gouvemement Adrien HOUNGBEDJI. - En pareille circonstance, lesdits agents devront conduire le délinquant devant l'agent du service d'hygiène compétent ou l'offrcier de police judiciaire le plus proche.
+Titre X ÿ a Le Ministre des Finances Le Minisfre de la Santé, de la Protection Sociale et de la Condition Féminine Marina d'ALMEIDA MASSOUGBODJI Ampliations:PR6AN4CS2 CC2 HAAC 2 CES 2 PM 4 MF 4 MSPSCF 4 Autres Ministères ; 1$SGG 4 DGBM-DCF-DGTCP- DGID- DGDDI5 BN-DAN-DLC 3 GCOMB-DCCT-INSAE 3 BCP-CSM.IGAA 3 UNB FASJEP-ENA 3 JO 1.
