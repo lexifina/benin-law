@@ -1,0 +1,64 @@
+# Signatures
+
+Fait à Cotonou, te 'l 9 août eoo4 Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, KEREKOTI Le Ministre des Finances et de l'Economie, Le Ministre des Mines, de l'Energie et de l'H que, ) o a Grésoire LAOtIROII.- Kama u F'ASS AMPLIATIONS:PR6 AN 4 CS 2 CC2 CES 2 HAAC2 MMEH4 MFE4 AUTRES MINISTERES 18 SGG 4 DGBM-DCF-DGTCP-DGID-DGDDI 5 BN-DAN-DLC 3 GCONB-DCCT-INSAE 3 BCP-CSN-IGAA 3 UAC-ENAM- FASJEP3 UNIPAR-FDSP02 JO 1.
+I ( oÉ\, tN oY ACCORD DE PRET ENTRE LA REPUBLIQIJE DU BENIN ET LE FONDS ATRrcAIN DE DEYELOPPEMENT (DEIIXIEME PRO.IET D'ELECTRIFICATION RTJRALE) ACCORD DE PRET ENTRE LA REPUBLIQT]E DU BENIN ET LE FONDS AFRICAIN DE DEYELOPPEMENT (DEU)flEME PROJET D'ELECTRIFICATION RITRALE) N" DU PROJET : P-BI-FA0{102 li"»upnnr: 2100150007186 Le présent ACCORD DE PRET (ci-après dénommé {1"'Accord") ./^ est conclu le )7 {o-",,t.e) entre LA REPUBLIQUE DU BENIN (ci-après dénommée l"'Emprunteur") et le FONDS AFzuCAIN DE DEVELOPPEMENT (ci-après dénommé le "Fonds").
+1. ATTENDU QUE I'Emprunteur a demandé au Fonds de financer la totalite des coûts en devises et rure partie des coûts en monnaie locale du deuxième Projet d'électrif,rcation rurale (ci-après dénommé le "Projet"), en lui accordant un prêt jusqu'à conclurence du montant stipulé ciaprcs;
+2. ATTENDU QI.IE le Projet est teohniquement realisable et économiquement üable ;
+3. ATTENDU QUE la Société Béninoise d'Electricité et d'Eau (ci-après dénommée la "SBEE") sera l'organe d'exécution du hojet ;
+4. ATTENDU QIJE le Fonds a accepté d'octroyer ledit prêt à I'Emprunteur conformément aux clauses et conditions stipulées ci-après ;
+EN FOI DE QUOI, les parties au présent Accord sont convenues de ce qui suit :
+( J ARTICLE I CONDITIONS GENERAIES - DEF'IN]TIONS Section 1.01. Conditions Générales. Les parties au present Accord conviennent que toutes les dispositions des Conditions Générales applicables arx Accords de prêt et arx Accords de garanüe conclus par le Fonds, portant la date du 23 novembre 1989 (ci-après dénommées les " Conditions Générales") ont la même portee et produiront les mêmes effets que si elles étaient insérées integralement dans le pÉsent Accord.
+Section 1.02. Définitions. A moins qtre le contexte ne s'y oppose, chaque fois qu'ils seront utilises dans le present Accord, les diftrents termes définis dans les Conditions Générales ont la signification qx y a été indiquée.
+t ARTICLE II PRET Section 2.01. Montant. Le Fonds consent à I'Emprunteur sur ses ressourees, un prêt en diverses momaies convertibles d'un montant maximum équivalant à douze millions trois cent vingt mille unites de compte (12.320.000 UC) (ltnité de compte étant définie à l'article l, alinéa I de lAccord porüant creation du Fonds).
+Section 2.02. Objet. Le prêt servira à financer la totalite des coûts en devises et une partie des coûts en monnaie locale du Projet défmi à I'Annexe I du presant Accord.
+Section 2.03. Affectation. Le prêt sera affecté aux diverses catégories de dépenses du Projet, conformément à I'Annexe II de I'Accord.
+t.
+ARTICLE TII REMBOURSEMENT DU PRINCIPAL, COMMISSION DE SERVICE. COM1VtrSSION D'ENGAGEMENT ET ECIIEAI\CES Section 3.01. Remboursement du Principal. a) L'Emprunteur remboursera le principal du prêt, apres un différé d'arnortissement de dix (10) ans à compter de la date de signature de I'Accord, sur une periode de quarante (40) ans, à raison de un pour cent (1%o) par an entre les onzième et vingtième années de ladite periode et de trois pour cent (3%o) par an, les armées suivantes.
+b) Le prêt sera remboursé par des versements semeskiels, égêux et consécutifs, dont le premier sera effectué le l* arril ou le l"' octobre, selon celle des detx dates qui suirna immédiatement la fin du différé d'amortissement.
+Section 3.02. Commission de service. L'Emprunteur paiera une commission de service de trois quarts de un pour cent (0,75%) I'an, sur le montant du prêt décaissé et non encore remboursé, conformément aux stipulations de la Section 3.02 des Conditions Générales.
+Secüon 3.03. Commission d'ensasement. L'Empnurteur paiera une commission d'enga§ernent de un derni de un pou.r cent (0,507o) sur le montant du prêt non décaissé, commençant à courir cent vingt (120) joun apres la signature de I'Accord.
+Section 3.04. Echéances. Le principal du prêt, la commission de service et la commission d'engagement prevus cidessus devront être versés tous les (6) mois, le 1o awil ou le lo octobre de ohaque année.
+ÀRTICLE IV CONDITIONS PREALABLES À L'ENTREE EN VIGUEUR ET AU PREI\1IIER DECÀISSEMENT Section 4.01. Conditions orealables à l'entrée en visueur.
+L'entrée en ügueur du présent Accord est subordonnée à la réalisation par l'Emprunteur des conditions prévues à la { ( Section 5.01 des Conditions Générales applicables aux accords de prêt et aux accords de garanüe.
+Section 4.02. Conditions au er déoaiss Le Fonds ne procédera au premier décaissernent des ressources du prêt que si l'Emprunteur, outre I'enüÉe en ügueur du présent Accord, a réalisé à la satisfaction du Fonds, les conditions suivantes :
+(i) fournir au Fonds la preuve de la reconduction et du renforcement de la cellule d'exécution du Projet complètement degagée de toutes les autes contingences pour se consacrer pleinement à la réalisation du Projet. Les CV des nouveaux membres issus dudit renforcement devront êtoe jugés acceptables par le Fonds. Cette cellule sera composée d'un coordonnateur du Projet, de trois ingénieurs électrotechniciens, d'un environnementaliste et d'un comptable;
+(ii) fournir la preuve de la reconduction du comité de suiü dans lequel seront représentés les bénéficiaires du Projet ;
+(iii) fournir la preuve de l'ouverture du compte spécial destiné à recevoir les fonds de contrepartie locale ;
+(iv) foumir la preuve de l'ouverture, dans une banque commerciale acceptée par le Fonds, d'un compte destiné à recevoir les contribuüons de la SBEE et des bénéficiaires du Projet ;
+(v) trarnmettre au Fonds, pour approbation, l'accord de rétrocession avec la SBEE aux conditions et modalités ci-apres : taux d'interêt 4% et duree de remboursement 25 ans, dont 5 ans de différé.
+Section 4.03.
+Autres conditions. L'Emprunteur dewa en outre ( ( o (i) fournir au Fonds, au plus tard le 31 décembre 2004,1a loi portant Code de l'électricite ;
+(il) fournir au Fonds, au plus tare le 31 décembre 2004, les textes portant créaüon de l'organe de regulation des secteurs de l'eau ei de l'electricite ;
+(iiD foumir au Fonds, au plus tard le 31 décembre 2004, les textes porüant création du Fonds National d'Electrification Rurale (FNER) ;
+(iv) foumir au Fonds, au plus tard le 3l décernbre 2004,la preuve de l'approvisionnement du compte special destiné à recevoir la contrepartie de I'Emprunteur et I'approüsionnement du compte commercial destiné à recevoir les contributions de la SBEE et des bénéficiaires du Proj et.
+(v) foumir au Fonds, au plus tard le 31 décembre 2004, les textes portant création de l'Agence d'Electrifi cation Rurale ;
+/-L-- l0 (vi) soumettre au Fonds, au plus tard le 31 décembre 2}}4,lapreuve du lancement de l'ap,pel d'offies pour la mise en concession du sectetu de l'électricité , et ARTICLE V CAISSEMENT DE CL Section 5.01. Décaissements. Le Fonds, conformément aux dispositions de I'Accord et des Conditions Générales, procédera à des décaissements en vue de couwir les dépenses afférentes aux biens et services requis pour l'exécution du Projet.
+Section 5.02. Date de clôture. La date du 31 décembre 2008 ou toute autre date ultérieure qui aura été convenue entre l'Emprunteur et le Fonds, est hxée atx fms de la Section 9.01, paragmphe a (iv) des Condiüons Générales.
+(üi) présenter au Fonds, au plus tard le 3l décembre 2004, un échéancier de règlement régulier des factures de I'ORTB et du CNHU échues et à échoir.
+\ 1l ARTICLE \rI ACOT]ISITION DES BIENS. TRAVAUX ET SERYICES Section 6.01. L'Emprunteur s'engage à ce que les sommes provenant du prêt ne soient utilisées que pour I'acquisition dars les territoires des Etats participants ou Etats membres, des biens qui y sont produits ou des services en provenant (les termes Etat "participant" et Etat "membre" étant défrnis à I'Article l, alinéa I de lAccord portant créaüon du Fonds).
+Section 6.02. Acquisition des biens et travaux. Les biens et travaur nécessaires à l'exécution du Projet seront acquis tel que stipulé ci-apres, conformément aux Règles de Procédure adoptées par le Fonds le 15 juillet 1996, telles qu'amendées le l0 novembre 1999 :
+(1) le marché de foumiture et d'installation des équipements électriques qui comprend I'acquisition, le transport des équipements et du matériel électriques nécessaires pour le projet, ainsi que le matériel ( t2 d'exploitation, .sera attribué conformément procédures d'appel d'offres intemationgl (êOfl ;
+aux (ii) le marché de fourniture et de montage de la centrale thermique, ainsi que le matériel d'exploitation, sera attribué conformément airx procédures d' I d'offres international (AOt) (iiD le marché de foumiture et de montage de l'uruté de traitement de bois y compris la formation du personnel et le matériel d'exploitation, sera attribué conformément aux pro intemational (êOfl;
+cédures d'appel d'offres (iv) les équipement informatiques, la bureautique et le matériel de gestion du Projet, seront acquis suivant la procédure d'appel d'oftes national.
+Section 6.03. Acq:isitron de services. Les services nécessaires à I'exécution du Projet seront acquis tel çe stipulé ci-après, conformément aux Règles de Procédure adoptées par le Fonds le 15 juillet 1996, telles qu'amendées le l0 novembre 1999 :
+t (r) l'acquisition de§ services de consultant pour le contrôle et la surveillance des travaux et pour la relue des études d'ingénierie, se fera par consultation sur la base d'une liste restreinte conformément aux règles de procédure de la Banque en matière d'utilisation des consultants ;
+(il) les services de l'audit, se feront également par voie de consultation sur la base d'une liste restreinte conformément aux règles de procédure de la Bançe en matière d'utilisation des consultants.
+ARTICLE VII DISPOSITIONSDTVERSES Section 7.0 L Affectation exceptionnelle du prêt. Au cas où, de I'avis de l'Emprunteur et du Fonds, l'exécution du Projet risquerait d'être compromise par une situation exceptionnelle et imprévisible, le Fonds peut imputer sur le prêt un montant maximum de un pour cent (l%o), soit cent vingt trois mille deux cent unités de compte (123.200 UC), afin de financer les coirts d'expertise ou de toutes mesures nécessaires pour { t4 remédier à ladite situation. Ces dépenses seront effectuées sans que I'Emprunteur ait à demander au préalable les versements correspondants, mais le Fonds notifiera instamment à I'Emprunteur le montant exact de cette affectaüon.
+Section 7.02. Représentant autarlsé. Le Ministre des Finances et de l'Economie ou toute personne qu'il désignera par écrit sera le représentant autorisé de I'Empmnteur aux fins de la Section 14.03 des Conditions Générales.
+Section 7.03. Date de I'Accord. Le présent Aooord sera considéré en toutes circonstances corrlme conclu à la date qü figure en première page.
+\ ( l5 Section 7.04. Adresses. Les adresses suivantes sont mentionnées aux fins de la Section 14.01 des Conditions Générales.
+Por.u I'Emprunteur: Adresse postale :
+Ministère des Firrances et de l'Economie B.P 302 Cotonou, Bénin Télex: 5009 Fax :
+(229) 30 18 5l / Q29)31 53 56 Tél :
+(229) 30 12 47 t (22e) 30 13 37 Pour le Fonds :
+Adresse postale :
+Fonds A-fricain de Développement 0l BP 1387 ABIDJAN 01, Côte d'Ivoire Adresse telégraphique :
+AFDEV /ABIDJAN Télex : 23717.23498 Fax : (ZZ5)20 20 59 0l Tél: (225)20204444 a EN FOI DE QUOI, le Fonds et I'Empmnteur, agissant par I'entremise de leurs représentants autorisés respectifs, ont signé le present Accord en deux exemplaires faisant également foi, en français.
+POI'R LA REPIIBLIQI.IE DU BENIN GREGOIRE LAOUROU MIMSTRE DES FINANCES ET DE L'ECONOMIE POUR LE FONDS AT'RICAINDE DEVELOPPEMENT CERTIFIE PAR:
+CI{EIKH FALL SECR-ETAIRE GENERAL OLABISI O. OGUNJOBI VICE.PRESIDENT I t7 ANNEXE I DESCRIPTION DUPROJET Les principales composantes du Projet sont :
+A. Renforcement de la production et extension des réseaux électriques MT et BT;
+B. Réalisation des travaux de branchement ;
+C. Montage d'une unité de traitement de poteaux en bois ;
+et D. Gestion du Projet.
+AIYNEXE II AFFECTATION DES R-ESSOT]RCES DU PRET La présente Annexe indique les categories de dépenses à financer sur les ressources du prêt et I'affectation de ces ressources à chaque categorie :
+Catégorle de Dépenses Sur F inancement FAD Monnaie (millions d'UC) Catégories de dépeme Devises Monnaie Locale Total Biens (Fournitures et équipements) 7.06 0.61 7"67 Travaux 3.O2 o.26 3.28 Services (études, cont6le et audit) 0.60 0.05 o.65 Administration et gestion du proiet 0.66 0.06 0.72 Coût totrl du projet t 1.34 0.98 12.32 Pourcentage (o/o) 92o/" 8o/o 1007o
