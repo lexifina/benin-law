@@ -1,0 +1,10 @@
+# Décret n° 1993-237 du 13 octobre 1993 Portant création du Secrétariat Général de la Présidence de la République
+
+JD NEzuBLTOUE UJ PRESIDENCE DE LA BENIN REPI,IBLIOUE Portant création du Secrétariat Généra1 de Ia Présidence de Ia Répub1lque.
+LE PRESIDENT DE LI, REPUBLTQUE, CHEF DE LIETAT, C}IEF DU GOUVERNEMENT, VU la Loi No 9O-0f2 1a Répub1lque du du 11 Décembre Bénln ;
+1 ÿÿ0 portant Constitution de vI'J Ia Décision N' 91-j42/HCR/PT du tion des résultats définiti-fs du présldentiell-es du 24 ltar s 1991 VU le Décret No 9]-'l 99 du du Gouvernenent ;
+J0 Mars 1991 portant proclamadeuxi.ème tour. des électlons 08 Septembre 1993 portant corposltj.on LE Consell des l,llnlstres entenCu en sa séancc du 1j Octobre 199].
+Artlclc 1er.- f1 cst créé Se crétariat Général de Ia Ârtlcle 2"- Le Secrétarlat Généra1 de 1a à }a Présid.encê de 1a Républlque un Présldence de 1a Répub11que.
+Présldence de 1a Républiqur GénéraL de 1a présidencJ p ace sous l tautorlté drun Secrétalre de Ia Répub11que nommé par Décret pris en Conseil des Ministres " Ar"tlcle J.- Les attributions du Secrétajre Ger,arat de I dé fâ EéFublique seront préclsées ultérieurement par Dé Consell des lflnistres " a h'ésidenc e cret du Er attendant, iI exerce 1es fonctions de Directeur de Cabinet du Président de Ia République te11es que définies dans lrArrêté No 16/PR/CAB du 15 octobre-1968 flxant 1es attrlbuifon"-oàs-nembres du Cabinet du Président de Ia Répub1lque, Chef du Gouvernenent.
+DECRET No 93-21? du .,1 J gctobre 19gj SUR Proposition du Président de Ia République, Chef de lrEtat, Chef du Gouvernenant ;
+DECRETE ! Artlcle 4.- Le présent Décret sera pub1lé au Journal Offlclel" Fait à c010N0ur Ie 1J Octobre 1gg1 par 1e Présldent de 1a Républlque, Chef de l tEtat, Chef du Gouvernement, Nicéphore S0cL0 Le Ministre d I Etat, Le y.inistre des Finances, t/# Le Minlstre d Publique et d Admi-ni s tra ti v Foncti on Réfo rue e e la 1a u1 DOSSOU Tinothée AmpllAtiONS : PR 6 AN 4 CS 2 CC 4 I',IE 4 I'tr 4 AUTRES MINISTERES 17 ScC 4 Dt-DCP-DSDV-DTCP-DI 5 l)l-D.{ll'DlC I CCC}I}):CT':l:S;f I u}lI} PASIEP-ENA , JO 2 INTERESSE 1.- Désiré VIEYRA -- r tlto"lu -- ]-
