@@ -1,0 +1,9 @@
+# Décret n° 1995-328 du 27 octobre 1995 Chargeant Monsieur AuréIien HOUESSOU, Ministre de l’Énergie, des Mines et de l'Hydraulique de l'intérim de Monsieur Désiré VIEYRA, Ministre d'Etat, Chargé de Ia Coordination de l'Action Gouvernementale et de Ia Défense Nationale pour compter du 20 Octobre 1995
+
+TI'1J..
+REPIJBI QI,IE DU BIIN]N I'RFS.I I-)}T:N(;E DN T,A IlFI-UBI,lOTJR VI] DECRET No95-J2B du :tZ Cctobre j995 Chargeant Monsleur AuréIlen HOUESSOU, Mlnlstre de lrEnergle, des MLnes et de lrHydraullque de lrintérln de Monsieur Désiré VIEYRÂ, Mlnlstre drEtat, Chargé de Ia Coordinatlon de l-rAction Gouvernementale et de Ia Défense Natlonale pour compter du 20 Octobre 1995. 1,8 PRESIDENT DE LA REPIJBLIQUE, CIIEF DE LTETAT, CHEF DU GOUVERNEMENT, 1a 1a Lol. No 9O-0r2 du 1 Répubtlque du Bénl 1 Décembre 1990 portant Constltutlon de n YII VI-I la Décisir:n No 91-042/HCR/PT du J0 Mars 1991 portant proclama- 'bJon des résultats définltlfs du deuxlème toui des éIêctlons présidenti.elles du 24 Mars 199'l i l-e Décreb N" 95-1 8, du 2J Juin 1995 portant compositlon du Gouvernement ;
+Article_l_q1.- Pour compter du 20 Octobre 1995 t Monsieur Auré1len ïT(JriæLrq-fftnistre rie irEnergie, des l,Ilnes ét'a" irnvàrauiiàue ost chargé de I rintérin du Mlnlstre dtEtat, Chargé dé 1a Coo-rdinati-on de ,1. lAction G ouvernernentale et de 1a Défense Natlonale pendant l.rahsonce de l'Ionsleur Désiré V]EYRÂ.
+DECRETE :
+Àrticle 2"- 7,e présent Décret sera publié au Journal Officlel.
+Falt à COTONOU, le 2Z Cctobre .t 995 Pou Che et Cha rleP fdel par dé rgé de résident d rEtat, Che 1égatlon, ].a Coordi e 1a Républlque, f du Gouvernement 1e Ministre dtEtat, natlon de l rActLon de Ia Défense &mpllations:PR6AN4Cs Gouvernementale et Natlonale, Déslré VIEYNA 2 CC 2 CES 2 TIAÂC 2 ME.DN 4 MEMH 4 DEPARTEMENTS 6 JO..
+SCC 4IIIITI-ES MINISTERES 17
