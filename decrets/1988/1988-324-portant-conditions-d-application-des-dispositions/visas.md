@@ -1,0 +1,13 @@
+# Visas
+
+lbA REPUBL]OUE POPULAIRE DÙ BENIN PRBS TDEI{CE.DE.LA- REPI]B LTOUE DECRET No 8B-f24 du 12 Aott 19a8 portant condltions dr application des àispositions des articiès 97 à 1o5 et 1O6 du Code des Douanes relatifs aux persoruxes habilitées à déclarer Ies nrarchandlses en détail eÈ à llexerclce de Ia profession de commlssionnaire en douane.
+LE PRESIDENT DE LA REPUBLTQUE, C}IEF DE LIETAT, PRESIDENT DU CONSEIL E)(ECUTIF NAIÏONAT,, V].I 1r ordorunance No 77-12 du 9 Septembre 1977 portant promulgation de la Lol Fondanentale de 1a RépubJ.ique Popu1alre du Bénin et les Lois Constitutj.onnelles qul ltont modiflée ;
+vIJ ltordonnance N" 54/FB./MEAEP/DD du 21 Novembre 1966 portant Code des Douanes et Ies tertes nodlficatlfs subséquents I VU Ia déclsion-Loi No 85-OOr/AliR/CP du 11 Décembre 1985 portant abrogation des ordorutances No 75-01 du 17 Janviei 1971 et No 75-11 du 24 Juin 1975 ayarft institué respectivement wr monopol-e de transit au proflt des natlonaux béninois et wr monopole des opérations de conslgnation au profit de f rEtat Béninois ;
+YU le décret No 8B-f15 du 2p J,1i11et 1984 portant composttion du Consell Exécutif National et de son Comité Permanent ;
+lrtj 1e décret N" A7-276 du 51 Aott 1987 portant attribution, organisation et fonctionnement du Itfillstère des Finances et de l rEconomie ;
+VU 1e décret N" g+-479 du 17 Décembre 1984 portant attribution, organisation et fonctionnement du ivlinistère de ltEqulpement et des Tlansports ;
+VU l-e décret N" 85-5JZ du 18 Décembre 1985 portant conditlons drappLlcatlon des articles 97 à 1o5 et 1o6 du Code dee Douanes, relatifs âux personnes habllitées à déclarer les marchandlses en détalI et à ltexerclce de la profession de commisslonnaj-re en douane ;
+VU 1e décret No 88-61 du 15 Féwler 1988 portant création, drurre Conrmlssion Nationale chargée drétudier 1es demëurdes dt agrégent pour ltexercice des activités de transitalre, commissionlaire en douane ;
+VU 1e décret No 85-67 du 4 Mars 1985 portant création du Conité de sulvl de 1a Chatne de ?ransport et de l,exploitation portualre i .../...
+W le décret No 86J+O du 1J Février 1986 fixant l"es modalltés {' t àiapprication oe i.-âécision-Loi Nb B5-oo5lANR/cp au 11 Décembre - 1945 i SUR proposition du Ministre de ltEquiperfânï -éf,-des Transports LE Comité Permanent du Conseil Exécutif Nât'iônâi entendu en sa séance du 6 Jul11et 1988, DEC RETE Article Jer.- Les marc que par 1es personnes 1 ;: Le propiiétairer, défin1 au titre prenier ci-dessous 2 - les titulaires dtr:n agrénent de conroissionnaire en douane J - 1es entreprises visées au tltre III du présent décret' handises ne Peuvent physiques ou morales être décIarées en détaiI suivantes:
+service exercice et Le proprlétaife des marchandises
