@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 31 DECEUBRE 1997 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Mathieu KEREKOU Le Premier Ministre de la Coordination de l'Action Gouvernementale et des Relations avec les Institutions Porte-Parole du Gouvemement, Le Ministres des F Adrien HOUNGBEDJI Le Ministre du Développement Rural, s Jérôme SACCA KINA Le Ministre du PIan, Economique et de la de la Restruchration ri de l'Emploi, Albert VOED.IRE Ampliations : PR 6 AN 4 CS zCC 2 CES 2 IIAAC 2 PM 4 MDR 4 MPREPE 4 Autres Ministères 1 5 SGG 4 DGBM-DCF-DGTCP-DGID-DGDDI 5 BN-DAN- DLC 3 GCONB-DCCT-INSAE 3 BCP-CSM-IGAA 3 UNB-ENA.FASJEP 3 JO I I /W4+- Ë
