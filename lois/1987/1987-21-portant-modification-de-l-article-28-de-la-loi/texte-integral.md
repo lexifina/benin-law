@@ -1,0 +1,11 @@
+# Loi n° 1987-21 du 21 septembre 1987 portant modification de l'article 28 de la Loi N°83-005 du 17 mai 1983 portant Statut de la Magistrature Béninoise
+
+REPUBLIOUE POPULAIRE DU BENIN PRESTXENCE DE LA REPUBL]OUE srll LOI I{o e7-O21 du 2'1 Septenbre '1987 portant modiflcatlon de lrarticle 28 âe 1a Lol No 8r-O05 du 17 Mai 198f portant Statut de 1a Maglstrature Béninolse.
+LIASSIBIF'.E NATIONALE REVOLUTIOMIÂIRE a déI1béré et adopté séance"du. 22 Aott 1987, lE PRESIDENT DÈ'LA REzuBLIOUE promulgue La Loi dont 1a teneur sui-t en sa Arbicle 1er.
+Sg-æiE-ÉIa 4Etl drrë c1e 28.- Outre 1es anêiens Î'lagistrats, peuvent être lntég 6tËfiËfrt dans Ie corps de Ia llàglstrature, sur leur-demand s rempllssent 1es cônditions piév'res à l-iartlcIe 22 :
+- Lràrticle 28 de 1a Loi No 8l-OO5 du 17 l{a.l .1985 portant Maglstrature Béninoise, est modlflé comme sult :
+e, I - Les Agents Permanents de ltEtat et Officlers Minlstériels lLcenciés-en drolt que leur cornpétence et leur activité dans 1e domalne iuridlque ou social, quallfient pour lrexercice des fonctioné judlcialres et qui exercent leurs fonctions depuls p)-us de dlx ans .
+2 - Les Avocats, 1es Greffiers en Chef et 1es Greffiers ayant au moins dix anriées dtexercice de l.eur fonc!-lon et qui sont tltulalres de Ia llcence en droit (uattrisè).
+lo- Les Enselgnants des Facr.rltés de drolt ayant exercé leurs fonctions pendant deux ans au moins dans l.me Faculté de droit.
+Les intégrations et 1es rélntégrations au tltre du présent article ne péuvent l-ntervenir que sur proposltion de la èornmlsslon prévr-re à- lrarticle 35, laquelle détermlne_Ie grade conformément au statut Généra1 des Agents PermaÈents de 1tEtat et sur avls favorable du Conseil Supérleur de 1a Magistrature.
+icle 2.- La présente Loi sera exécuîée comme Loi de ItEtat' Fait à COTONOU, 1e 21 Septembre 19A7 Président de Ia République , 1 tEtat, Président du Conseil Exécutif National r 1e de par Chef Le Ministre de la Justice, Ch de 1r Inspection des EntrePris Pubtique s et Semi-Publiques r' t-r' l\ Mathteir IGREKOU SaIio ,/tt ,rr u ABOUDOU ##ffi;i":i ft ,:t(îlliiru.sTÉT:li,liîrÜelzlüçî-TlEÉ,, Gde chanc. 1 DPE-DIc:iü§iiÈIncp 4 DB-DCOF-DSDV-DTCP-DI 5 csm 4 B DAN 2 UIÙB-FASJEP-ENA 2 JORPB 1.- N- I
