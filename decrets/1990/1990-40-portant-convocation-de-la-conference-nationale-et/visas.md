@@ -1,0 +1,7 @@
+# Visas
+
+/BA REPTELIALE POPULÀIRE DU BENIN PRES]DET.ICE ]]E LA HXPUBLÏOI'E DECRET No 9O-4O du 2J Février 1990 portant convocation de 1a Conférence Nationale et détermination de sa mission ( Ré gular i sat i on ) LE PRESIDEI\XI DE LA REPUBLIOUE CHEF ]JE LIETAT, PRESIDENT DU CONSETL EXECUTIF IiATÏONAL, VU l-lordonnance No 77-12 du ÿ Septembre 1977 portant de Ia Lei Fonfamentale de fa République Populaire les Lois Const itutionnel]e s qui lront modifiée ;
+pr omulgati on dü Bénin et VU le décret No 89-f1 o du o5 Aott 1ÿ8ÿ portant composition du Conseil Exécutif lJational et de son Comité Permanent ;
+VU 1es décisions de la Session Conjointe du Cornité Central du Parti de 1a Révolution Pjpulaire du Bénin, du Comité Ferr:nanent de lrAssembl-ée I'.Iati onal- e Révolutionnaire et du Conseil Exécutif Nationaf tenue à COfoNoU ' 1es 6 et 7 Décembre 't 989;
+VU l-e décret N" 89-434 du 18 Décern6rs 1ÿ89 portant institution <lu Comité National Préparatoire de 1a Cenférence }lationafe SUR Proposition dudit Cor,rité, DECRETE Article 'l er.- Conformément à la décision de fa Session Conjointe ffidc*iffi'u Comité Csntral du Parti de fa Révolution Populaire du Bénin, du Comité Permanent de l tAssemblée Nationale Révolutionnaire et du Conseil Exécutif National tenue les 6 et 7 Décembre 1989, iI est convoqué une Conférence Nationale regroupant ]es Représentants de tottes les forces vives de la Nation quelles que soient leurs sensibilités politiques.
+Cette Conférence est convoquée pour se tenir du Lundl 19 au Samedi 24 Fevrier 199O.
