@@ -1,0 +1,8 @@
+# Décret n° 1996-164 du 9 mai 1996 chargeant Maître Adrien HOUNGBEDJI, Premier Ministre, chargé de la Coordination de l'Action Gouvernementale et des Relations avec les Institutions, de l’intérim du Président de la République pour compter du 09 Mai 1996
+
+rulrujiLJ. rdult llu d,I1NlN PRESTDENCE DE IA REP(,BLIOIJE DECRET No 96-'161+ du 09 Mai 1996 chargeant Maltre Adrlen HOUNGBEDJI, Prenier Mlnistre, chargé de 1a C oordination de 1rActlôn Gouvernenentale et des Relatlons avec les Instltutions, de lrintérlm du Présldent de'Ia Répub1lque pour compter du 09 Mal 1996.
+I"E PRESIDENT DE LA REPUBLIQUE, CIfiF DE L'ETAT, CHEF DU COII\IERNEMENT, VIJ }a l.ql No 90-Of2 du 11 Décenbre 1990 portant Constltutton de 1a République du Bénin i w 1a Proclarnatlon l.e '1 er Avril 1996 par la cour constitutlonnerle des résultats déflnltlfs de trérectron preÀià";iGil;ï; 18Mà;
+1996 , ÿU 1e Décret No 96-128 du 09 Avril 1ÿÿ6 portant conposLtion du Gouvernement, par 1e président Chef de lrEtat, C Palt à COTONOU, 1e 1a Républlgue, f du Gouvernement, 09 Mai 1996 de he eu KEREKOU"- :PR6AN4CS2CE,SZCC2 2 PTr 4 MISAT 2 Anoli ations TfiESMTrIs ?ERES 16 SGG 4 DEPARTEMEM DCIMIL 2 JO 1.- DECRETE :
+S!lÈ.-l-er.- Pendant lrabsence de Monsleur 1e président de Ia Lt:PSP*l-Sts9, .Chef -de -1lE!.!, Chef du-Gouvernenent, Maltre Ad.rlen iluuNGBlIUJI , Prenler Ministre, chargé de la Coordination de lrAction Gouvernementale et des Relations avec res -rnstltutions est chargé drassurer ttintérin dès Ie départ de Ia délégatrôn-prasiàÀnirerre pour Le Burkina-Faso.
+ArÏ*c1e 2.- 11 est dé1égué a Maitre Adrlen HOUNGBEDJI durant cette pérlode, 1es pouvolrs de Chef du Gouvernenent.
+Artlcle J.- Le présent Décret sera publié au Journal Offlciel.
