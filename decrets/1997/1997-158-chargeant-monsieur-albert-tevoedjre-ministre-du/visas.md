@@ -1,0 +1,6 @@
+# Visas
+
+REPUBLIQUE DU BENIN PRESIDf,NCE DE LA REPUBLIQUE -----o--- --------o-------- DBCRET N" gz-tsg Dr, 3 AvRrL 1997 chargeant Monsieur Albert TEVOEDJ RE Ministre du Plan, de la Restructuration Economique et de la Promotion de l'Ernploi de l'Intérim de Monsieur Pierre OSHO, Ministre des Affaires Etrangères et de la Coopération pour compter du 03 Awil 1997.
+LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT, VU la loi n' 90-032 du I I Décembre 1990 portant Constitution de la République du Bénin , vu la proclarnation le ler awil 1996 par la cour constitutionnelle des résultats définitifs de l'élection présidentielle du 18 mars 1996 ;
+VU le Décret n' 96- I 28 du 09 avril I 996 portant composition du Gouvemement ;
+DECRE TE Article ler : Pour cont pter du 03 awil 1997 Monsieur Albert TEVOEDJRE, Ministre du Plan, de la Restructuration Economique et de la Promotion de I'Ernploi, est chargé de l'intérim du Ministre des Affaires Etrangères et de la Coopération pendant l'absence de Monsieur Piene OSHO Par le Président de la République Chef de l'Etat, Chef du Gouvernement athieu KEREKOU . CES 2 - HAAC 2 - PM 4. MAEC 4 - MJLDH 4 - SGG 4 - Autres Ministères 16 - Départements 6 - JORB 1
