@@ -1,0 +1,4 @@
+# Visas
+
+/DA REPUBL]OÛE POPULAIRE DU BEN]N PRESIDENCE DE LA REPUBLIQUE DECRET N" 86-544 du 29 Décembre 1986 Dcrr-2.:rt créTtion du Comité des Statistiqr"* de Finllnces Publiques ' LE PRESIDENT DE ]TA,REPUBLIQUE' CHEF DE LIETAT. PRESIDENT DU COUSEIL EXECUfIF NATIONAL.
+Lf ordonnan ce No 77-12 du ÿ Septembre 1977 portant, plomulSatisn ;" i;-t-;ï-Ëàrraàr"tt"i" àà iu Àt'puuique.Peptlaire du Bénin et les iii"*cà;=tliJiionnel-:-es qui 1 ! ont modif iée' LtOrd.onnance No 74-1 2 du 12 F-Évrier 1974 portant ratiiicationdu tralté constituanî iiu"lo" yronJttii" Ouest Africaine sigrré à Paris 1e 24 Novenbre 1ÿl-J, Ie décret N' 85-254 du 17 Juin 1ÇB! portant composition du Conseil Ë"eà"iir Natlonal et de son Comlté Permanentr Proposition du Mlnlstre d'es Finances et d'e IrEconomie' Comité Permanènt d.u Conseil Exécutif Natlonal entendù en sa séatrce d.u 17 DécemtPe 1ÿ861 W lrt, vtj SUR LE D ECRETB
