@@ -1,0 +1,5 @@
+# Signatures
+
+Fait à COTONOU, le 7 ffie thieu KEREKOU AMPLIATIONS:PR4- . CS 2. CC 2 - CES 2 - HAAC 2. PMCAGRI 4 - MME
+- SGG 4 - MSP 6 . AUTRES MINISTERES 16 .
+I D TEMETS6.JO. 1..
