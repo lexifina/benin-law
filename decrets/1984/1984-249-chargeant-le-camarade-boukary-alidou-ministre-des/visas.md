@@ -1,0 +1,3 @@
+# Visas
+
+l;o REPUBLIO{IE POPULAIRE DU BENIN PRESIDENCE DE LA REPUBLIQUE LE PRESIDtrNT D1', I.ê. REPUBLIQUE, CHEF DE LIETAT, PRtrSlDtrNT DU CONSEIL EXECUTIF NATIOI\AL, DECRET N' 84-249 du 19 Juin 1984 chargeant fe Camarade Boukary ALIDOU, Ministre des F'ermes drEtat, de 1'Elevage et de l-a Pêche, de l r lntérim du Camarade Isidore AMOUSSOU, I'linlstre des Finances pour compter du 18 Juin 1984, VU lrordonnance No 77-12 du ÿ Septembre 1977 portant promulgation de la Loi Fondamgntale de Ia République Pepulaire du Béni-n et les Lois Const itut i onnefle s qui 1'ont modifiée, VU Le décret No 82-441 du J0 Décembre 1982 portant composition du Consell Exécutif National et de son Comité Permanent, DECRETE .
