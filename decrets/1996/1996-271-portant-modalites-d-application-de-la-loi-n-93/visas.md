@@ -1,0 +1,7 @@
+# Visas
+
+REPI.]BLIQI.]E DU BENIN PRESIDENCE DE LA REPUBLIQUE DECRET N" 96-271 dt 2 Juillet 1996 Portant modalités d'appücation de la Loi No 93-009 du 2 Juillet 1993 portant régime des Forêts en République du Benin.
+LE PRESIDENT DE LAREPUBLIQT]E, CHEF DE LETÀT, CHEF DU GOUVERNEMENT, VU la Loi no 90-032 du 1l Décembre 1990 portant Constitution de la République du Bérun ; VU la Loi no 87-012 du 2l Septembre 1987 portant Code Forestier de la République du Benin; VII la Loi no 93-009 du 02 Juillet portant regime des Forêts en République du Bénin ; VU la proclamation le ler Awil 1996 par la Cour Constitutionnelle des rézultats définitifs de l'élection présidentielle du 18 mars 1996 ;
+VU le Décret no 96-128 du 09 Awil 1996 portant composition du Gouvemement ; VU le Décret n' 89-385 du 24 octobre 1989 portant modalités d'application de la Loi no 87-012 du 21 septernbre 1987 relative au Code Forestier de la République du Bénin ; VU Ie Decret no 9l-301 du 3l décembre 1991 portant attributions, organisation et fonctionnement du Ministère du Développement Rural ;
+Sur proposition du Ministre du Développement Rural Le Conseil des Ministres entendu en sa séance du 29 I§dai 1996 DECRETE:
+, AIüÈ-ler : Dans le respect des dispositions de la Loi n"93-009 du 2 juillet 1993 portant régime des forêts en République du E!énin et des onentations de la politique forestière adoptée par le Gouvernement, la gestion, la protection, l'exploitation des forêts, le commerce et I'industrie des produits forestiers et connexes sont réglementés par le présent Décret.
