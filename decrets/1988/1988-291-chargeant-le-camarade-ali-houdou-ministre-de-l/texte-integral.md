@@ -1,0 +1,8 @@
+# Décret n° 1988-291 du 18 juillet 1988 Chargeant le Camarade Ali HOUDOU, Ministre de l'Information et de la Communications de l'intérim du Camarade Soulé DANKORO, Ministre de l'Equipement et des Transports pour compter du 19 Juillet 1988
+
+/liÈ'- hXPLELIOUE POPULAIR,E DU BEN]I.I -----a- --- PRESIDENCE DE LA REPUBLIOUE g DECRET No BB-291 du 18 Ju11let 1983 Chargeant le Camarade Ali HoilDoUr iÿli istre de lrlnformation et des éommunicat?ots de ]tintérim du Camarade Soulé DANliOtlO, Ministre de lrEquipernent et des Transports pour compter du 19 Juillet 1988" LE PRESTDENT DE LA REPUBLIQTJE, CHBF DE L'EÎÀT, PRXSIDENT DU CONSEIL EXLCUîIF NAT]ONAL, VU lt Ordoruranc e No 77-12 du 9 Septembre 1977 portant promufgation Ce L6 L6i Fondamentale de Ia RépùUlique Populàire du Bénin et fes Loi:;
+Const itut ionnelles qui 1t ont modiflée ;
+I \ru 1e Décret No E8-51 du 26 Janvier 19BB portant composition du Conseil E1écuti1 Natj-onaf et de son Comité Permanent ;
+ECRETE Article 'l er.- Pour compter d.u 19 Juiflet 1988, le Camarade AIi ilCU'OU, iiiffi'rtriiorÀàîion-et d.eê Comrnunications est chargé de l-tint4- rim du Minlstre de lrEquipement et des lransports pendant l-rabsence du Cama:.ade Soulé DANKORO.
+;irticle 2.- Le présent décret sera publié au Journal Officiel' Falt à COTONOU, le 18 Jul11et 1988 par 1e Présid.ent de Ia RéPublique, Cnef ae frEtat, Président- du Conseif Exécutif National, AI'IPLIAÎIONS : PR 6 SA/CC/ PRPB CPIANR 4 SGCEN 4 SPD 2 PPC ;! CPC 6 }1]C MET 6 AUTRES STERES 1f DPE DLC INSAE 6 IGE 4 Bi\i D].N / 4 DCCT ONBPI GdE CHANC.
+' UNB FASJEP 4 BCP 1 PREFEÎS 6 JORPB 1'- I{athieu KEI1EKOU
