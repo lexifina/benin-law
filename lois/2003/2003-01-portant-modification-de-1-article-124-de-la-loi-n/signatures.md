@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 08janvier 2003 Par le Président de la République, Chef de I'Etat, Chef du Gouvemement, Mathieu KEREKOU.- Le Ministre d'Etat, chargé de la Coordination de l'Action Gouvernementale, de la Prospective et du Déveioppement, Bruno AMOUSSOU Le Ministre chargé des Relations avec les Institutions, la Société Civile et les Béninois de I'Extérieur, Le Minisfie de I'Intérieur, de la Sécurité et de la Décentralisation, j\ Svlvain A. AKINDES Daniel WE,MA Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homrne .I h H. GNOIi'{LONFOUI,J Ampliations : PR 6 AN 4 CC 2CS 2 CES 2 HAAC 2 MECCAG-PD 4 MISD 4 I\4JLDH 4 MCRI-SCBE 4 AUTRES MN.IISTERES SGG 4 DGBM-DCF..
+DGTCP.DGID-DGDDI 5 BN.DAN-DLC 3 GC]ONB-DCCT.INSAE 3 BCP- CSM-IGAA 3 UAC-ENAM-FADESP 3 LINIPAR-AR.IDSP 2 JO 1.- I
