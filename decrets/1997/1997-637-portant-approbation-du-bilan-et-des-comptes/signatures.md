@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 3r DECETTIBRE l-99 par le Président de la RéPublique, Chef de l'Etat, Chef du Gouvemement, KEREKOU Le Premier Minisfre, e la Coordination de l' Action Gouvernemental des Relations avec les Institutions, Portele du Gouvemement, "1t" A HOUNGBEDJI ,"ÿ^ "i Le Ministre du Plan, de la Restructuration Economique et de on E Le Ministre du Développement Rural, TE Ampliations: PR6 AN4 CS 2CCZ CES2 [{AAC2PM4MDR4 MPREPE 4 AUTRES MINISTERES 15 SGG ' DGBM-DCF-DGID- DGTCP-DGDDI5 BN-DAN -DLC 3 GCONI .DCCT-INSAE 3 BCP- CSM-IGAA 3 UNB-ENA.FASJEP 3 JO I.- I de l'Emploi, Jérôme G. SACCA-KINA {) -,.
