@@ -1,0 +1,10 @@
+# Décret n° 1996-106 du 2 avril 1996 portant approbation des comptes prévisionnels de la Société Nationale pour l'Industrie des Corps Gras (SONICOG)
+
+REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE DBCREÎ Iqo 96-105 du 2 Awril 1996 portant approbatlo[ dea coûptes prévislonnela de 1a Soclété Natlonale pour 1r IndusÈrle des Corps Gra6 (SoNICoG) I,E PRESIDET{.T DE LÀ BE,PUBLIQÛE, CEEF DE LI EtrÀT, CEEF DII @IIVENNEUBIIT, vli vU 1a Lol No 9o-o32 du 11 de la Républlque du Bénla Décembre 1990 portant ConstLtutl-otr de 1a la Décislon N' 91-o42IHCR/PT des résulÈats définltlfs prés1dentlelles du 24 Mars 1991 1e Décret No Gouvernemetrt;
+30 Mars 1991 portant proclamatlon deuxiène tour des élections du du w vü 95-381 du 22 Novembre 1995 portânt composition du 1e Décret N' 92-62 du êt fonctLonnement du Moyennes Entreprlsês ;
+10 l,lars 1992 portant attrlbutlona, organlsation Mlnlstère de 1rInduatrLe et des Petite8 et w 1e Décret N' 89-151 du 17 de la Soclété Natlonale Àvrtl 1989 portant approbêÈlon des atatuts pour Itlndustrle des Corps Gras (SONICOG);
+VU Sur Propoaltlon Entreprlses Le Consell des Ministreg enÈetdu en sa séanee du 1er Avrll 1996 le Décret N' 90-395 du 31 Décernbre 1990 portant noolnatlon des membres du Cooseil d tAdnlntstratlon de la Soclété Natlonale pour ltlnduatrle des Corps Gras ;
+du ulnlstre de Lrlndustrie et des Petltes et Moyennes Àrt1c1e 1er.- Sont approuvés les coEPtes 1a Société Natlonale pour 1 prévislonnels exercicê Corps Gras tels qu I Lls 1996 de flgurent en annexe à ce Décret.
+I Industrle des DECRETE:
+) Artlcle 2 Le présent Décret sera pub]1é au Journal 0fftctel.
+. Fal t À. COToNOU, Ie 02 Avrll 199 6 Par le Présldent de Ia Répuü1lque, Chef de lrEtat, Chef du Couvernement, Niqêphore SOCLO . - Le MlniBtre des Petltes de et Mo l-'Industrle et ES Le l,!1n 1s tre dee Flnances, Entrepris allts ZOUüABOU. - uI DOSSOU. - 6AN 4 Anpliatlon§ : PR MINISTERES 17 SCC FASJEP-ENA, 3 BCP JO 1. - 2 CES 2 HAAC 4 DGBM-DCF-DGTCP-DSDV-DI 5 l IGAA 2 DCCT l GCONB l CSM 2It{IPIttE-MF B AUTRES DPE-DLC-INSAE 3 UN B- 1 BN-DAN 2 SONICOC 8 I
