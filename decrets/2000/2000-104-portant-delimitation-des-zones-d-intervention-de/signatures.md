@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 9 Mars 2000 Par le Président de la RéPublique, Clie i de l'Etat, Chef dtt Gouvernement, \IAthieu KEREKOLT.- Le Ministre d'Etat, Chargé de la Coordination de l'Action Gouvernementale, du Plan, du Développement et de la Promotion de l'Emploi, Bruno AIIOUSSOLI - Le Ministre délégué auPrès du Président de la République, char é de la Défense ationale- Le Ministre etdel onolrle, ces, ) I)ierreOSIIO.- ;\ hdou lave BIO-TCHANE.- \ l Le garde des sceaux, Ministre de la Justice" de la Législation et des Droits de l'Hornme, Jose NONLONFOUN..
+le Ministre de l'lntérieur, de la Sécurité et de l'Administration Territoriale, i_/ Daniel WEMA- AMPLIATION PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 MECCAG-PDPE 4 MDN 4 MFE 4 MISAT 4 MJLDH 4 AUTRES MINISTERES 16 SGG 4 DGBM-DCF-DGTCP-DGID-DGDDI 5 BN-DAN-DLC 3 GCONB-DCCT- INSAE 3 BCP-CSM-IGAA 3 UNB-ENA-FASJEP 3 JO I.
