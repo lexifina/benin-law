@@ -1,0 +1,10 @@
+# Décret n° 1996-107 du 2 avril 1996 Portant approbation du Budget prévisionnel exercice 1996 de la Société Nationale de Commercialisation des Produits pétroliers (SONACOP)
+
+RSPÜBLIQUE DII BEITIX PRESIDETCE DE Iâ NEPIIBLIQIJE 1a Loi No 88-005 du 26 Avrl1 1988 lrorganlsatlon et au fonctlonneoeût et SeEl-Publlques ;
+DBgnm I{" 96-107 du 2 avrll 1996 Portant approbatlon du Budget prévlslonne1 exerclce 1996 de 1a Soclété Natlonale de Conuerc iaLlsatlon des Prodult8 pétro- 11ers (SONACOP).
+relaÈlve à la création, à des Entreprlsee Publ,lques I,E PRESIDEIT DE LA REPI'BLIQIIE, CEEE DE LIETÀT, CEEF DII @IIVEBNE}IEI{"T, 1a Lol No 9o-o32 du 1l Décenbre 1990 portâtrt Constltutlotr de la RépublLque du Béaln ;
+Vu 1,I] v(, 1a Décislon N' 91-042/HCR/PT du 30 Mars 1991 portant proclamatlon des résultâts déflnltlfs du deuxLème tour dee él-ections prés1dentle11es du 24 Mare 1991 ;
+vtJ vl, le Décret No Gouveroeoent 95-381 du 22 Novernbre 1995 portant compositlon du le Décret 92-6L du 10 Mars L99Z porÈant aÈtributlons, organisatlon et fonctloonement du ülnlstère du Comerce et du Tourlsme;
+VtJ le Décret Stâtuts de Pétro1lers N"89-64 du 17 }'évrier 1989 portant approbâtlon des la Soclété Natlonâ1e de Comerclallsatlon des Produits SIIR Rapport du MinlsÈre du Comerce et du TourisEe, DECRETE Artlcle ler.- Est approuvé 1e Budget Prévislonnel exerclce 1996 Comerciallsatlon des Prodults Pétrollers la Société Nâtlonale de quril est annexé à ce Décret.
+de teL Le ConseiL des MlnlsÈres efltendu en sa séauce du ler Avril 1996 ? Artlcle Le paéaent Décret Eera publié au Journal offlcte1.
+Fait à COTONOU, Ie 02 Avril 1996 par Ie Président de La République, Chef de 1'Etat, Chef du Couvernement, Le Minlstre du Plan et de Ia Res lruc turat 1on Economique, Amp l iat 1on s MINISTERES SONACOP 1O Ni céphore SOGLO . - Le Mlnlstre du Commerce et du Tourisme, Robert TAGNON . - sikiratou AGUEMoN . - : PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 MCT.MPRE 8 AUTRES 17 SGG 4 DB-DCF-DSDV-DCTCP-Dr 5 BN-DAN-DLC 3 GCONB 1 DCCF-INSAE 2 UNB-FASJEP-ENA 3 JO 1.- t $t'{r{
