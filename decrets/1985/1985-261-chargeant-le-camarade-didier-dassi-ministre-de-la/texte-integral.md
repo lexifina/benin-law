@@ -1,0 +1,8 @@
+# Décret n° 1985-261 du 9 juillet 1985 Chargeant le camarade Didier DASSI, Ministre de la Justice, Chargé de l'Inspection des Entreprises Publiques et Semi-Publiques de l'intérim du camarade Girigissou GADO, MInistre de l'Equipement et des Transports pour compter du 28 Juin 1985
+
+El{it. - REPUBLISIJE POPULAIRE DU BENIN PRESIDENCE DE LA REPUBLIOUE I DECRET N" 85-261 dL1 9 Jull1et t9B5 chargeant 1e Camarade Dldier D.A.SSI, Mlnistre de la Justice, Chargé de 1 I Inspectlon et Semi-Publl Camarade Giri 1 I Equipement compter du 28 des Entreprises Pubfioues ques dc 1i intérim d.u - gissou GADO, Ministre de et des Transports pour Juin 1985.
+LE PRESIDENT DE I,A R-EPUBLIQUE, CHEF DE LIETAT, PRESIDENT DU CONSETL E)GCUTIF NAÎICNAL, VU ltordonnance No 77-12 du 9 Septembre 1977 portant promulgatlon de Ia Loi Fondamentale de 1a Répub11que Populaire àu Bénin et 1es Lols Constitutlonnelle s qui- 1t ont modiilée ;
+VU le décret N' 85-254 du 17 .]'rir,, 1985 portant composltlon du Conseil Exécutif National et de son Ôomité Perrnànent, A{ticle ll er. - Pour compter du 28 Juin 1985 le Camarade Didier Falt à coTONou, le g Julllet 1gB5 IASSI, Ministre de 1a Justice, Chargé de lrlnspection des Entrepri-ses PubJiques et Semi-Publiques est chârgé de lrlntérlm du Ylnistre de lrEquipement et des Transports peÀdant lrabsence du Camârade Giriglssou GADO.
+Artlcle 2.- Le présent décret sera publ1é au Josrnal Offlciel.
+c de és Na rleP fdel he résident rEtat, Pr Exécutlf 1a République, ident du Conseil tional, -l\ Ampl_lallo4s : pR 6 sA/CClpRpB 4 CplANR 4 SGCEN 4 SpD 2 ppc 2 Cçt--m"JIEFsp-MEr 6 aütr'es luinisiài"es 1t oip-brc-imsas 6-icr l+ BN-DAN 4 DCCT-ONEPI-GdC ChANô. ] UNB-F'ASJEP 4 BCP 1 P;éfEiS-6 JORPB 1..
+DECRETE Mathleu KEREKOU
