@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 18 Àour 1997 par le Président de la République, Chef de I'Etat, Chef du Gouvernement, Le Premier Ministre, c é de la Coordination de I'Action Gouvernementale et des Relations avec les Institutions, Pofte-Parole du Gouvemement, fr.bry- Adrien HOaNGBEDJI a Le Ministre du Plan, de la Restructuration Economique et la Promotion de l'Emploi, Le Ministre de la Culture et de la Communication, Albert TEVOEDJRE Ampliations : PR 6 AN 4 CS 2 CC 2 CES 2 HAAC ?P}l4 4 MPREPE 4 MCC 4 AUTRES MINISTERES 15 SGG 4 DGBM-DCF-DGTCP-DGID-DGDDI 5 BN- DAN-DLC 3 GCONB-DCCT.INSAE 3 BCP-CSM-IGAA 3 UNB-ENA-FASJEP 3 JO 1.- Mathieu KEREKOa I
