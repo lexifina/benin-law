@@ -1,0 +1,12 @@
+# Visas
+
+,ÿ '.1 REPUBLIQI.IE POPULAIRE DU BENIN PRESIDM.ICE DE LA REPUBLIOT'E VIJ DECRET No 82-265 du 6 Août 1982 VU vl, vIJ portant ratification de llAccord c1e Érêt complémentaire entrE ' I-a;-Den . I'lorske Creditba:rk et 1a République Populaire du Bénin signé à Cotonou Û-o JO Juin 'l !lf:.
+LE PRESIDENT DE LÀ R-EPUBLIQT]E, CHEF DE LIETA], PRESIDENT DU . CONSEIL EXECI,TTF NATIONAL, ltordonnanc e No 77-32 du ÿ Septembre 1977 portant promul.tation de la Lol Fond.amentale de 1a République Populaire du BLsnin ;
+1e décret No 82-1î4 du 9 Avril 1ÿ82 portant composition du Consell Exécutif National et de son Comité Permanent ;
+:::--- Ie décret 11o- 62-2!1 -du 21 Juillet 19A2 portant trarsmission au Cpmlté Permanent de lrAssemblée Nationafe Révolutlonnaire du pro.iet de dÉclsion autorisant la.ratification de llAccord de Ëiéi-è"ÀpioÀà"t"ii;"-""iré-i" o"n Norske Creditbank (ollc) et ra hépubliqüe Populaire du Bénj-n signé à Cotonou 1e f0 .7uin i 9ti'- VlJ }e décret No.82-226 du f Julllet 19a2 chargeant ADIO Boko Ignace, Président du Comité Permanent Natj-onale Révolutioruraire, de l-lintérim du Prési République pour compter du 5 Juillet 1982 i 1a décision N' 82-47/ANR/CP du fo Juillet 1982 autorisant re ratification de l-t.{ccord de Prêt complémentalre entre }a l)en Norske Creditbank et 1a Républlque Pôpulalre du Bénin signé à .C-otonou le--30, üuln 1982, DECRETE Ie Camarade de 1'Asseniblée dent de }a Artlcle 1er.- Est ratifié rrtÀôco'fd- de Ptêt'compIémentaire entre DertrcEé-Credïtb'ank' et -Ia heptibf tque Populai re du Bénin si gné .ootonou, ]-e JO Juln 1:9e2 et r-lont 1e texte s.e trcuve ci- joint.
+far
+- i:t \r i!2 t":
+Fait à CCTONOU, 1e 6 Août 1982 pour Ie Président d.e 1a République, Chef de 11Etat, Président du Coriself Exécutif National, le Président du Comité Permanent de 1r Assemblée Nationale Révolutionnaire, chargé de 1r intérim, I !-:
+a'ï. 1,/ q ) / o ace Le Ministre des Finances, pour 1e Ministre de ltlndustrie, des Mines et de ltEnergie absent" 1e Ministre de lrIntérieur et de 1a Sécurité Pub1i.que, chargé de lrintérim, I fsidore AI'1OUSSOU I i .y'--.
+vr_ncent GT]EZÔDJE pour 1e Ministre des Affaires Etrangères et de fa Coonération absent. le l,linistre ê_cg.,E-ertr€,s..&lEt"tr d,e 1lElêyeqe et pe la Pêcho charcgé de J..J-atéri.nr, 'l Bouk 0u. * --..,. Lcr-,1.1 Amnliations:
+MF-MIIqE-MAEC PR 6 CC dU PRPB 4 ANR 4 CPC 6 PGIPPC 2 SG 12 autres l,Ilnistères 19 DPE-DLC-INSAE-BCP G4SPD2 B IGE et sc.s 4 ljen L\orsl(ô Sections 4 BN-DAN 4 DCCÎ-ONEPI-Gde Chanc. I UNB-FASJEP Créditbank 2 Préfets 6 JORPB 1.-
