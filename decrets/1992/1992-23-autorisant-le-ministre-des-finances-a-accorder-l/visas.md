@@ -1,0 +1,8 @@
+# Visas
+
+/vs REPUBLIOUE DU BM{IN PRESIDENCE DE LA REPUBLIQUE DECRET No 92-2, du 6 Février 1992 autorisant 1e Ministre des Finances à accorder lrAval- de lrEtat en garantie du Prêt de F CFA 566 millions consenti par Ia Banque Ouest Africaire de Développemeht (B 0 A D) à la Société Béninoise d I Electric ité et drEau (S B E E) dans l-e cadre du financement partiel du Projet dtAménagement Hydroélectrique de Yéripao- Natitingou.
+LE PRESÏDENT DE LA REPUBLISUE, C}IEF DE L,IETAI, CHEF DU GOLIVERNEI{ENT, W la Loi No9O-O32 du 11 Décembre 1990 République du Bénin ;
+portant Constitution de 1a 1/IJ tra Décision No9'1 -04 Z/HCF./PT du J0 Mars 1991 portant Proclamation des Résuftats définitifs du deuxième tour deÈ élections présidentielles du 24 Mars 1991 ; W fr Ordonnance No47/PR du à accorder lrAval de 1l c j.ers, en garantle des tlvités Publi.ques S econ Orgalismes Publics et P 2 Àott 1968 autorisant le Gouvernement at aur Etablissements Bancalres Finanêts et Avances à consentir aux Co1fecires, Etablissements, Institutions et vés de 1a République du Bénin ;
+Et Pr dari W le Décret No91 Gouverrrement ;
+du 29 Juiflet 1991 portant Composition du Sur proposition du Ministre des Finances ;
+Le Conseil- des Mj-nistres entendu en sa séance du 15 Janvier 199?- , DECRETE Articl-e 1er.- Le Ministre des Fi-nalces est autorisé à accorder mîffi-e'TtEtat à fa Société Béninoise drElectricité et drEau (S B E E) en garantie d.u remboursement d-u Prêt de 566 miflions de F CFA- accordé par la Banque Ouest Africaine de Développernent (B o A D) pour Ie- financemerit du Projet d t Aménagement HyàioéIectrique de Yéripao à Natitingou.
