@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le C7 o ctobre 2 C'C2 Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, Nlathieu KEREKOU.- Le Ministre d'Etat Chargé de Ia Coordination de l'Action Gouvernementale, de 1a Prospective et du Développement, Bruno ANIOUSSOU.- Le Ministre des ires Etrangères Le Garde des Sceaux, Ministre de la Justice, de la Législation et et de l'Inté fricaine, des Droits de l'Hom Kolawolé A. ID J H. GNONLONFOUN.- AMPLIATIONS: PR 6 AN 4 CC 2 CS 2I-IAAC 2 CES 2 MCCAG-PD 4 MJLDH 4 MAEIA 4 AUTRES MINISTERES 18 DGBM-DCF. DGTCP- DCID- DGDDI 5 BN- DAN_DLC 3 GCONB-DCCT-INSAE 3 BCP-CSN.IGAA 3 UAC-ENAM-FADESPS 3 LINIPAR-FDSP 2 INTERESSEE O1 JO 1..
