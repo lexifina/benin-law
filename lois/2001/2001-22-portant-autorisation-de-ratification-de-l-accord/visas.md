@@ -1,0 +1,4 @@
+# Visas
+
+vs REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE LOI N° 2001-22 du 09 AOUT 2001 portant autorisation de ratification de l'accord de prêt signé le Il juillet 2000 entre la République du Bénin et le Fonds Africain dc développement dans le cadre du financement du programme de développement des ressources humaincs.
+L'Assemblée Nationale a délibéré et adopté, Le Président de la République promulgue la loi dont la teneur suit Article 1cr._ Est autorisée la rati fication, par le Président de la République, Chefde l'Etat, Chefdu Gouvernement, de l'accord de prêt signé le 11 juillet 2000 entre la république du Bénin et le fonds Africain de Développement dans le cadre du financemcnt du programmc de développement des ressources humaines pour un montant de dix millions (10.000.000) d'unités de compte, soit environ huit milliards cinq cent trente neuf millions cent quatre-vingt mille (8 .539.180.000) francs CFA.
