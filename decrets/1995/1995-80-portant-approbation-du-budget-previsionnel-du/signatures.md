@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à COTONOU, 1e 8 MâRS 1995 Par le Président de 1a République Chef de lrEtat, Chef du Gouvernement, I Nicéoherc Soc]-o. - Le Ministre dtEtat à 1a Présidence de la Répub1j.que, Chargé de la Coordination de ]-rActi,on Gouvernementale et de 1a Déf ense .Nati U, Désj-ré__lÆ.EYRA Le Mlnistre des Travaux Publ-ics et des Transports par lntérim Le Ministre du P]-an et de 1a Restructuration Economique, Aure en HOUESSOU" - AMP]-iAtiONS I PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 MEPR-DN 4 MTPT 4 @E-Z-TûlHns MrNrsrEREs 16 sGG 4 DB-DcF-DSDV-DTCp-DI 5 BN-DAN-DLC , GCONB.DCCT'INSAE } BCP-CSM 2 UNB.ENA.FASJEF ] JO 1.
