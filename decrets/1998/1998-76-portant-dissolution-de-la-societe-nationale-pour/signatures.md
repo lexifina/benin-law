@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 6 Mars 1998 Le Ministre du Plan, de la Restructuration Economique et de la promotion de I'Emploi, ert TEVOEDJRE..
+Le Ministre de l'lndustrie et des Petites et Moyennes Entreprises, Mathieu KEREKOU.- Le Premier lVinistre, chargé de la Coordination de l'Action Gouvernementale et des Relations avec les lnstitutions, Porte-Parole du Gouvernement, le Ministre des Finances, or MENSAH Le Ministre de la Fonction Publique, du Travail et de la Réforme Administrative, <lpJ^ Assouma Y UBOU.- AMPIiAIiONS: PR6AN4CS2CC2CES2HAAC2PM4MPREPE4MF4I\,4IPME4MFPTRA4 AUTRES MINISTERES .I3 SGG 4 DCF.DGTCP-DGBM-DGID-DGDDI 5 BN-DAN.DLC 3 GCONB-DCCT.INSAE 3 BCP- CSIü-IGAA 3 UNB-ENA-FASJEP 3 INTERESSE1 JO 1, Par le Président de la République, Chef de I' Etat, Chefdu Gouvernement, L"LÉ, Adrien HOUNGBEDJL- Félix ADlMl.-
