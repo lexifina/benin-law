@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à COTONOU, le 31 T T997 Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, u.- Le Premier Ministre, argé de la Coordination de l'Action Gouve ementale et des Relations avec les Institutions, Porte-Parole du Gouvemement, Adrien HOUNGBED.II.- I Le Ministre des Affaires Etrangères et de la Coopération, Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de I'Homme, Pierre OSHO.- Ismaël TIDJANI-SERPOS.- Ampliations: PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2PM4 MAEC 4 MJLDH 4 Autres Ministères 15 SGG 4 DGBM-DCF-DGTCP-DGID-DGDDI 5 BN-DAN- DLC 3 GCONB-DCCT-INSAE 3 BCP-CSM-IGAA 3 LINB-ENA-FASJEP 3 Intéressé 1 JO 1.-
