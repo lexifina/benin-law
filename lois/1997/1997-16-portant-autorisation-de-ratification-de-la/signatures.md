@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à COTONOU, le 1o JUrN 1997 Par le Président de la République, Chef de l'Etat, Chef du Gouvemement, Mathieu KEREKOU Le Premier Ministre, chargé de ia coordination de I'action Gouvernementale et des relations avec les Institions, porte-parole du Gouvernement, a Adrien HOUNGBEDJI.- I fr,4^""frT Le Ministre des Travaux Publics Le Ministre des Affaires Etrangères et de la Coopération, et des Transports, Pierre OSHO.- Le Ministre des Finan Ampliations : PR 6 AN 4 CS 2 CC 2 CES 2 IIAAC 2 PM 4 MTPT 4 MF 4 MAEC 4 AUTRES MINISTERES 14 SGG 4 DGBM-DCF-DGTCP- DGID-DGDDI5 BN-DAN-DLC 3 GCONB-DCCT-INSAE 3 BCP-CSM- IGAA 3 LINB-ENA-FASJEP 3 JO I.- )
