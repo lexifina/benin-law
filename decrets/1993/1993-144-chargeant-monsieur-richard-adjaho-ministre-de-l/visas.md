@@ -1,0 +1,5 @@
+# Visas
+
+/r's. - REFUBLIOUE DU BENIN PRESIDENCE DE LA RæUBLIOUE V(J La Lol No 90-0f2 du République du Bénin VU DECRET No 9li-144 du 25 ,hrln 199f Chargesnt Monsieur Rlchard ADJAHo, Llinistre de lrIntérieur, de Ia Sécurité et de l t Adninlstratlon Territorlale de 1!lntério de Monsleur Théodore HoLO, Ivlinlstre des Affaires Etrangères et ôe Ia Coopération pour compter du 18 Juin i991.
+LE PRESIDE}T? DE LA fu.Ù")UBLfOUE, CHEF DE LIETÀT, CHEF DU CÆUV]]RNE,EI{I, tt t Décenbre 199O portant Constitution da 1a Ia Déclsion No 91 -O42/HCR/PT du Jo Mars 1991 portant proclamation des résultats définitifs du deuxiène toui des éIèctlons présidentlell-es du 24 Mars 1991 , vtJ Ie Décret No 91 -1 76 du 29 Jul11et 1991 Gouvernenent ;
+portant composition du V(I DECR ArtlcLe 1er.- Pour compter du 18 Juln 199J, Monsieur Richard .ADJAHO, Minlstre de 1r Intérieur, de Ia Sécurlté et de 1t Adninistration Terrltorlale est chargé de 1rlntérl-n du Minlstre des AffaLres Etrangères et de Ia Coopéràtion pendant lrabsence de Monsj.eur Théodore HOLO.
