@@ -1,0 +1,5 @@
+# Visas
+
+) REPUBLIQUE DU BENIN PRTSIDENCE DE LA REPUBLIQUE /T)ECRII No 97-260 DU 30 irAr 1997 Loi N" 90-0J2 du 11 Décembre 1990 1a République du BENIN, Proclamation le 1er AvriI 1996 oar Chargeant l'4onsieur Timothée A Ministre de Ia Cullure et de Communication de I' intérim de ]Smaê] TIDJANI-SERPOS Garde des Sceaux f4inistre de la Justice de la et des Droits de I'Homme.
+la Cour Constitutionnelle orésidentlelle . ZANNOU 'I^1d It4onsieur Léqislatior t LE PRESIDENT DE LA REPUBLIQUE CHEF DE L'ETAT, CHEF DU GOUVERNEMENT, oortant constitution VU La de VU La des du VU Le du résultats déflnitifs de l'élection 18 Mars '1996, Décret N'96-128 du 09 Avril 1996 oortant composition Gouvernement, DECRE]E Article 18t : Pour comoter du 29 ft,linistre de la Culture et de la du Garde des Sceaux, Ministre de de I'Homme pendanl L'absence de AMPLIAT]ONS PR6 AN4 N4]NISTERES MaI 1991, Monsieur Timothée A. ZANN0U, Communication est chargé de L'intérim 1a Justice de 1a Législation et des Droits Monsieur Ismaêl TIDJANI-SERP0S.
+99?
