@@ -1,0 +1,6 @@
+# Visas
+
+/vs REPUBL]OUE DU I].iJI{IN PIIESIDENCE DE LÀ H:PLTêLIQUIi DECRET N" 95146 Dü 21 AOü], 1996 portant ratification de IIo 425 du 27 Lvrl]. 1988 Gouverneurs ae la Banque tive à 1r augncntation gé teL de Ia tsa.nque Internationalc pour Ia Reconstruction et 1e Développement (Àçc igBB).
+1aR duC i ion néra J,s olution onseil des dlale refa- }e du Capi- I,E PRESIDENT DE LA REPUBLIQU.I], Ci-ldII DE LIEIAT, CHEF }U GOU\TERNEMF},IT, W Ia Loi I'iù!,rJ-O? 2 du 1 1 Républi<1ue,'u tsjnin ;
+DÉcernbre 1990 portant Constituticn d.e 1a VU1I Bf a Loi Iio 96-2C port'alrlt autorisation d-e ratification de la Résoution l'lo 42-5 du 27 l'.oût '1988 du ConseiL C.es Gouverneurs de fa anque i..cnCiale rela'tive à 1r auguentation généraIe Cu Capital de a Ban.:1ue Internationale pour l-a Reconstn-iction et J.e Developpent (l+cc 19t,a) .; W Ia Proclariation 1e 1er Àvril 1966 par 1a Cour Constitutionnelle des résultats définitifs de 1'él-ectj-on présidentielle d.u 18 Mars 19o6 i VU le Décret I'1"96-1 28 du 09 Àvri1 1ÿÿ6 portant conposition du couvernemen'L ; du ConseîI tlcs Gcuverneurs c1e 1a Banque i'iondial^. rel-ative à lt augmentation géncrrle du Capital de.1a Banque Internationale pour la Reconstrrrc-,.ion et le lJéveloppement (AcC 1988) et dont 1e texte se trouve ci-joint.
+p- BCRElE .A,rticl-e 1 er. - Est ratifiée l-a Résolution IJo 425 du 27 Avril i98E
