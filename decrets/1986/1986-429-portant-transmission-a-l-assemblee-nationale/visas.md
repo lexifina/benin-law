@@ -1,0 +1,5 @@
+# Visas
+
+'ilcs RERIBLIOUE PF,ESIDENCE POzuLAIRE DU BEN]}I DE LA R,]zuBLIQUE DECIL'IT l'l' 86-429 du 20 Octobîe 19A6 portant transmission à l-tAssembJ.ée Nationale Révolutionnalre pour adoption du projet de Loi fixent lrorientation des activités comrûerciafes et des prestations de service en Républiclue Populaire du Bénin et du projet d.e Loi relative aux prlx, à 1a réprc.ssion des infrastions et à 1a règ1ementr,ition des prix.
+IE PRESIDINT DJ Lrl R,IPLISLIQUE, CIIBF Dii LIETAT, PREr-jI,) ilT DU CONSI]IL EX-ECUîIF };,'.,'IOJ.]A.L, W 1rordonnance No 77-12 du 9 scptcmbîe 1977 portant Ia. Loi Fondamentale de 1a Rr-,publique Populair'e r1u lois const ltut ioruaelles qui lront modiliée, promulgation de Bénin et Ies MJ 1e décret No 85-254 du '17 Juin 1985 portant composition du Con- , seil Exécutif Nationaf e'c dc son Comité Permanerrt ;
+IÆ Comité Pei'manent du Consell Exéc,;tlf 24 Septembre 1986, National- en sa séance du DECRETE Articl-e 1er.- Le coruneFô Iâl[ês et Bénln et 1e pro lnfractions et seront présenté tiomaire par I qul est chargé
