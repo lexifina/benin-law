@@ -1,0 +1,5 @@
+# Signatures
+
+Fait à COTONOU, Ie 2 Juiir 1986 _Est ratifié,.1'Accord d'Assistance Technique signé 1e 8b entre Ia Réçublique populaire du Bénin ât 1a Èanque Développement (RID) en vuè du financement de la préfaetude sur l-es eaux souterrai.nes en République pgfulàire ont Ie texte se trouve ci-joint.
+par Ie Ppésident de 1a République, Chef de f tEtat, Président du - Conseil Exécutif Nati onal, I Mathieu KEREKOU 'ji! .
+ffi Pour..Le Ministre des Affaires rtranbèæg-et, üe la pércrtion absent, Edouard ZOIEHOUGÂN Einistre lntéri:nai:re 4ndré AîcHAnE Illnlstre lnté Pr'E3t' Le Plini stre de J t Equipement et des Transports , absent Le de pour' 1c ilinistre Dd1égr1é .auprès d Frésident de la RépubLique, Chargé du Plan et de la Statistique, absent, .AAU.LAE.@, IIIi:listre inté irnaire Mtnistre Ées 1 t Econom ie , i4ances et' -l )- ) Ampliations I PR ,fsl/ICIPRPB 4y'cplaNn MPS-MET-MFE t[ CAÀ 1 BID 4 Âutres Pllni os -ANTO}IIO CPC rt-\- 4, ùu stères'1 DB-DCF- CEN 4 I'IAEC- DSDV-DTCP- DI-DCM au MFE (ê DLC-DPE-INSAE-BCP 2 DCCT 1 GCONB 1'LGE 1 DAN-BN 2 CEAP 6 ONEPI-JORPB 2.-
