@@ -1,0 +1,6 @@
+# Visas
+
+J)) REPUBLIOLE POPULAIRE UJ BENIN PRESIDENCE DE LA REzuBLIOUE W ]lOrd.onnance No 77-J2 du Ia Ll1 Fondamentale de f Cans titutionnelles qui 1 DECRET No 90-12 dr 30 Janvier 1990 charseant Monsieur ABOUDOU Saliôur Ministre üe 1a Juatice, Chargé de lrlnspection des Entreprises Publiques et Semi-Pub1lque Ae 1 t intéi.im 6s I'Tons ieur BR {.ttIJER Pancrace t Ministre Délégué auprès du rrésident de Ia République, Chargé de lrIntérieur, de Ia Séèurité Publiqué et de lrAdministration Territoriale polrr compter 6u 26 Janvier 199o.
+LE PRES]DENT IE LA REPUBL]QUE, CHEF DE LIETAT, PRES]DENT DU CONSEIL EXECUTIF I\AT]ONAJ., 9 Septembre 1977 portant promul-Sation $e a Répüuliqus Populalre du tsénin et 1es Lois ront modifiée ;
+W le décret No Bg-lio du 5 Aott 'lÿ8ÿ partart compositiorr du Conseil Exécutif National et de-son Comité Permanent i DECRETE :
+Articfe 1er. - Pour compter du 26 Janvier 1990, Monsisup ABOIIDOU Salioul Ministre de la Justice, Chargé de lrlnspection des Entreprises Publlquer ei Seml-Publiques est ôhargé-de ltintérim du Ministre DéIégué augrls $! Ère"iâent de ù Républiquel chargé de 1'fntérieur, de Ia sécurité Pub1l' que et de f rAdmini!tra tion' Territorial e pend.ant l rabsence de Mônsieur BRATIER Pancrace.
