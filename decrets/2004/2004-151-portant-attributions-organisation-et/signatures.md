@@ -1,0 +1,5 @@
+# Signatures
+
+Fait à Cotonou, le 29 r.ars 2oo4 athieu KEREKOU.- Le Ministre des Finances et de l'Economie, Le Ministre des Mi es, de l'Ene te et de l'Hydrauliqu arou 1'7
+- les Chefs de Service ;
+Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Gréqoire LAOUROU.- Ampliations:PR6AN 4CS2 CC2 CES 2 HAAC2 MFE4 MMEH 4 AUTRES MINISTERES 19 SGG 4 DGBM-DCF-DGTCP-DGDDI-DGID 5 BN-DAN-DLC 3 GCONB-DCCT-INSAE 3 BCP-CSM-IGAA 3 UAC-UNIPAR-ENAM 3 FADESP- FDSP 2 JO 1.- ORGANIGRA MMEDU MINISTERE DES MIN s. DE L'E ERGIE ET DE L'HYDRAULIOUE E N , MINISTRE Secrétariat Particulier Direction de l'Inspection et de la Vérification Interne Directeur de Cabinet Directeur Adjoint de Cabinet Attaché de Cabinet Attaché de Presse Secrétaire Général du Ministère Secrétaire Général Adioint du Ministère Direction de l'Ad mlnistration Direction de la Programmation et de la Prospective DGH DGM DGE Directions Départementales des Mines, de l'Energie et de l'Hydraulique (DDMEH) SONEB OBRGM BOP ABERMtr ) CEB CEGAZ SBEE , Conseillers Techniques OE
