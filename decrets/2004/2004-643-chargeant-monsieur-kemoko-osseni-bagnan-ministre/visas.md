@@ -1,0 +1,5 @@
+# Visas
+
+REPUBLIQUE DU BENIN PRESIDENCE DE LÂ. REPUBLIQUE DECRET N. ap044+7. . Pu. .22. . NoVEMBRE. .2. .o!4 Chargeant Monsieur Kémoko Osséni BAGNAN, Ministre de I'Enseignement Supérieur et de la Recherche Scientifique, est chargé de I'intérim de Madame Rafiatou KARIMOU Ministre des Enseignements Primaire et Secondaire a LE PRESIDENT DE LA REPUBLIQUE CHEF DE L'ETAT, CHEF DU GOUVERNEMENT Vu Ia Loi No 90-032 du 1l décembre 1990, portant Constitution de la République du Bénin;
+Vu la Proclamation le 03 avril ?001 par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du 22 mars 2001 ;
+Vu le Décret N' 2003-209 du 12 juin 2003 portant composition du Gouvetnement DECRETE Anicle ler: Pour compter du 22 au 24 Novembre 2004, Monsieur Kémoko Osséni BAGNAN, Ministre de I'Enseignement Supérieur et de la Recherche Scientifique, est chargé de I'intérim du Ministre des Enseignements Primaire et Secondaire Madame Rafiatou KARIMOU, pendant son absence du territoire national.
