@@ -1,0 +1,7 @@
+# Visas
+
+a o FE.- REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIOUE DECRET N'2004-705 DU 30 DECEMBRE 2OO4 Portant ratification des protocoles NP2l1lQ3 et NSP2112103 portant respectivement application des procédures de compensation des pertes de recettes subies par les Etats de la Communauté Economique des Etats de l'Afrique de l'Ouest (CEDEAO) du fait de la libéralisation des échanges et amendement de son article 6.
+LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT, Vu la loi n" 90-032 du 11 décembre 1990 portant Constitution de la République du Bénin ;
+Vu la loi n" 2004-25 d u 22 décembre 2004 portant autorisation de ratification du protocole NP2l1lO3 relatif à l'application des procédures de compensation des pertes de recettes subies par les Etats membres de la Communauté Economique des Etats de I'Afrique de l'Ouest (CEDEAO) du fait de la libéralisation des échanges et du protocole additionnel et NSP1l12103 portant amendement de son article 6 ;
+Vu la Proclamation le 03 avril 2001 par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du 22 mars 2001 ; Vu le décret n" 2QQ3-209 du 12 juin 2003 portant composition du Gouvernement ;
+Article 'ter : Sont ratifiés les protocoles NP2l1l03 et NSP2l12lO3 portant respectivement application des procédures de compensation des pertes de recettes subies par les Etats membres de la Communauté Economique des Etats de l'Afrique de I'Ouest (CEDEAO) du fait de la libéralisation des échanges et amendement de son article 6 et dont les textes se trouvent cijoints. DECRETE
