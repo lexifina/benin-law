@@ -1,0 +1,9 @@
+# Loi n° 1993-06 du 29 mars 1993 portant autorisation de ratification de l'Accord de crédit N° F/BEN/ROD/92/27 signé le 08 Octobre 1992 entre la République du Bénin et le Fonds Africain de Développement (FAD) relatif au financement du Projet Aménagement des Voies d'accès et de la traversée de la Ville de COTONOU pour un montant de 13.000.000 UC/FAD soit environ 4.550.000.000 Francs CFA
+
+REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE LOI N° du Mars 199;) portant autorisation de ratification de l'Accord de crédit N° F/BEN/ROD/92/ signé le Octobre entre la République du Bénin et le F^nds Afri cain de Développement (FAD) relatif au financement du Projet Aménagement des Voies d'accès et de la traversée de la Ville de COTONOU pour un montant de 1'5.000.000 UC/FAD soit environ 4.550.OOO.O0O Francs CF.\.
+L'ASSEMBLEE NATIONALE a adopté LE PRESIDENT DE LA REPUBLIQUE promulgue la Loi dont la teneur suit :
+..
+Article 1er.- Est autorisée la ratification par le Président de la République, Chef de l'Etat, Chef du Gouvernement de l'Accord de Prêt N° F/BEN/ROD/92/27 signé le Octobre entre la République du Bénin et le Fonds Africain de Développement (FAD) relatif au. finan cement du Projet Aménagement des Voies d'accès et de la traversée de la Ville de COTONOU.
+Article__2.- La présente Loi sera exécutée comme Loi de l'Etat.
+Fait à COTONOU, le ?S Kars Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, :;Z. CL.-' "A* Nï'cëphore SOGLO Le i^îinistre d'Etat, Secrétaire Général à la Présidence de la République, Désiré VIEYRA.- Le Ministre de l'Environnement, de l'Habitat et de -l'Urbanisme, Eustache SARRE.- Le Ministre des Finances, ri-' Paul DOSSOU Le Ministre des Travaux Publics'et des Transports, Le Ministre du Plan et de la RestructuratiQïL.J5eoîio"mique, Ampliations :
+PR CS AN CC ÏESGPR.2 MEHU-î^-r^iPRE AUTRES MINISTERES SGG DB-DCF-DTCP-DSDV-DI DPE-DLC-INSAE IGGA DCCT GCONB CSM BN-DAN JORB 1.-
