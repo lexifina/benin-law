@@ -1,0 +1,13 @@
+# Visas
+
+.
+IL.- iIIiI{,BLIOUE DU BE}JTN DECIiET No 92-45 du 28 Février 1992 portant approbation des Statuts du Fonds de Cornpensation des Partants de 1a Fonction Èrb1ique.
+PRESIDLNCE DE LA REPUBLIQUB LE PRESIDENT DE LA REzuBLTQUE, CHEF' DE LIETAT, CHEF DU GOU\'ERI.IEMMJT, W la Loi NogO-Of2 du 11 Décembre 1990 portant Constitution de 1er République du Bénin ;
+\ru Ia Décision No9'1 -oA2-HCR/pf au J0 Mars 1991 perte.ut Proclamation des Résultats définitifs du deuxième tour'des éleetions présid.entiàl-1es du 24 Mars 1gg1 i \IIJ Ia Loi No86-01 f du 26 Février 1986 portant Statub Généra1 des Agents Permanents de f tEtat i trrI] la Décision-Loi I'l " 89-006 du '1 2 Arrril 1989 modif iant et cornpl e'- tant Ia Loi ttro86-01 1 du 2-6 Fé\.'rier 1986 portant Statut Généra1 des Agents Permanents de llEtat ;
+VU l-e Décret No91 Couvernement ;
+-176 du 29 Juiflet 1991 portant Composition du 'ru 1e Décret \lo 92-f6 du 17 Févri er 1992 portant attributions, organiéation et fonctionnement du Ministère de la Fonction Publique et de fa Réforme Administrative ;
+\U les Décrets N"B5-1r9 à a5-187 du 11 Septembre 1985 portant Statuis Particufiers des différents Corps des Agents Perrnanents ,-l ô -'l lE+q+ .
+su + !ÿsv , SUR Proposition du l4inistre de 1a Fonctlon Rrblique et de 1a Réforrne Administrative ; Le Consei] des l"{inistres entendu en sa séance du 22 Janvier 1992 g ECRETE ""'.rti cf e 1 er. - Sont appror.lvés. ]es SEatute du I'onds d'e Ccmpensation a:.*iffiffii Aà-ia f-ôàction F.rblique tels qurtl6. 4igurent en annéxe au présent Décret.
+Articl.e 2.- Le Ministre de 1a Fonction Rrblique et de 1a.Réforme fa-rffiffiàti"à, fe Irrinistre des Finances et Ie l'{inistre du Plan et Jà ià-nestmctriration Econo.mique sont chargés, chacun en :c-e. qr-ri le "o.rcernÀ, de ltapplication du présent Décrot qui sera publie au J ournal Officief .
+Fait à COTONOU, Ie 28 Févriet 1?9? Par Ie Présldent de Ia RéPublique, Chef de lrEtat, Chef du Gouvernement, , _,:.,:r.i- --""-1- Igicéphore S0GL0. - / I Le l4i.ni stre drEtat, Secrétaire (lenéral â l-a Frésidencc de la ir.épu bl 1qu e, ,1,, , .,.'l,Y \''' ;Qq''.1'i" I ÿ l .ÿ \ ^,, Désiré \tIEYtu\ Le lvlinistre de la Fonction Füb]ique et de Ia Réforme;\dministrative, Le Ministre des Financ js, Ântolne A. GEEG,ll'j PauI DOSSOU Le llinistre du Pl-an et dr fa Restructuration Economique, i'.14- bert TAGi\i0N l- iation.s : PI],6 A].J 4 CS 2 ME,SGFIi 4IVtr-}|1_..8-I'IFRA 12 IÜTRES I"[I]IS- DTCP-DCOF-DI-DSDV 5 D1,.}.I-BN-EN-A-I]IE-INIB 5 DF.PÀRTE},i]I'TT!J D D I-]-..
+I 1.,' ,i 6 J.0. 1.- \ SÎATLITS DU FOI{DS DE CONtrEI{SÀTION DES PARTAI'ITS DE LA FOIT]CTTON PUBLIO'JE TÏTRE ] Definition. Sièee Socia1 ob et Ca tal- Sociaf
