@@ -1,0 +1,8 @@
+# Loi n° 2004-15 du 7 juillet 2004 portant autorisation de ratification de l'accord de crédit de développement signé le 15 avril 2004 entre l'Association Internationale de Développement (AID) et la République du Bénin dans le cadre du financement partiel du programme d'appui à la réduction de la pauvreté
+
+TS.- REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE LOI N° DU JUILET Portant autorisation de ratification de l'acord de crédit de dévelopement signé le avril entre l'Asociation Internationale de Dévelopement (AID) et la République du Bénin dans le cadre du financement partiel du programe d'apui à la réduction de la pauvreté.
+L'Asemblée Nationale a délibéré et adopté , Le Président de la République promulgue la loi dont la teneur suit Article 1er :
+Est autorisée la ratification, par le Président de la République, de l'acord de crédit de dévelopement d'un montant de treize milions quatre cent mile (13.40.0) DTS équivalent à vingt milions (20.0.0) de dolars US soit environ onze miliards (1.0.0.0) de francs CFA, signé le avril entre l'Asociation internationale de Dévelopement (AID) et la République du Bénin dans le cadre du financement partiel du programe d'apui à la réduction de la pauvreté.
+Article : La présente loi sera exécutée come loi de l'Etat.
+Fait à Cotonou, le juilet Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Mathieu KEREKOU Le Ministre d'Etat chargé du Plan, de la Prospective et du Dévelopement, Dorothé C.
+SOSA.- Ministre intérimaire Le Ministre des Finances et de l'Economie, Grégoire LAOUROU.- AMPLIATIONS : PR AN CS C CES HAC MECPD MFE AUTRES MINISTERES SG DGBM-DCF-DGTCP-DGID-DGDI BN-DAN-DLC GCONB-DCT-INSAE BCP-CSN-IGA UAC-ENAM- FASJEP UNIPAR-FDSP JO 1.
