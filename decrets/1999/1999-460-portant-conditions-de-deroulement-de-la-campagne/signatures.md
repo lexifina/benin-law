@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou,Ie .22 Septembre 1 999 Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, KEREKOU.- Le Ministre d'Etat, Chargé de la ordination de l'Action Gouvernementale, du Plan, du Développement et de la Promotion de l'Emploi, Daniel T Minis Le Ministre du Commerce, de l'Artisanat et du Touri e, Le Ministre du Développement Rural A.- (-. . -- Jose H. GNONL FOUN.- Joseuh Sourou ATTIN.- Ministre intérimaire Ministre intérimaire AMPLIATIONS : PR 6 AN 4 CS 2 CC 2 CES 2 HAAC2 MCAT4MDR4 MECCAG-PDPE 4 AUTRES MINISTERES 16 SGG 4 DGBM.DCF-DGID- DGDDI-DSDV 5 BN.DAN-DLC 3 GCONB-DCCT-INSAE 3 BCP-CSM- IGAA3 UNB-ENA-FASJEP 3 JO 1.
