@@ -1,0 +1,9 @@
+# Visas
+
+REPUBLIOUE POPULAIRE DU BTJNTN PRES]DENCE DE LA RIi]?UBLIC]UE DICRET N" æ-215 d,u lO Juin .198f Portant Création d run Comité Perilianent de Suivl de 1a Ci-menterie drOnlgbolo.
+LE PRESIDI'NT DË LA REzuBLIOUE CHEF DE LIETAT, PRTSID1JNT Dl] coNsIIL EXECUTIF NAIICi§AL, 1[} ltOrdonnance No 77-32 du ÿ Septembre 1977 portant pronulgation de 1â Loi Fondamentale de la Répüblique populàire au Èénil Ët Ia Loi No 83401 du 5 Férrrler 19aj qui l-ta corpl_ètée ;
+VU l-e décret No 82-441 du JO Décembre 1982 portant composition du Consell Exécutif Nati.onal. et de son Comité Permanent ;
+SIJR proposition du l{lnlstre de 1-tlndustrie, des Mines et de lrEnefgle, LE Comlté Permanent du Consell Exécutif NationaL entendu en sa séance du 1 I .11in '1 963, D E C R E T E:
+Article '1 er.- 11 est créé sous ]-tautorité du Ministre de ]-rlndustrle, ales UInes e't de 1- t Energie un Comité Permanent de sulvl de la Cirnerr ùerle d,Onlgbolo.
+Artlcle 2.- La coruposition du Comité est Ia suivante t Présideni ! Camarade Christophe CODONOU V ce-P ésident 3 Camarade Assouma YACOUBOU Rapporter:r 3 Camarade Désiré i0N0U itlembr e s Camarade s- Aurélien HOUESSOU Safbou ADELABOU Corbln Damien GLJEDEGBE Ju].len LALEYE A ssor.una AEOUDOU ALfred ELEGBE Thomas FASSINOU Françols A0{ADE.
+L Article J.- Le Comité'a pour tâche de suivre La gestion de 1a Clmente- Ffê--fl6fi§bo1o sur 1es pLans technique, financiei, adminlstratlf et coinmeroial. A ce titre. il se réunit au r.lo j.ns r.rne fois par mois. Toutefois 1e Présldent du Comité CtL doit Être en liaison permanente avec ià-Of.À"tfon-Cenar.:.Oe La Sàol,jté 1cs Clncnts 1r0n1;bo1o peut ccnvoquur! à tcut r-torent une réwr^lon dudlt Comité. Le Comlté dolt adresser .un rapport trimestriel au Minj.stre de lrlndustrle, des Mines et dc ltEnergie faisant 1e polnt de ses activités.
