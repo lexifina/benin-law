@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 29 janvier 1998 Mathieu KEREKOU Le Premier e chargé de la coordination de l'action gouvemementale et des relations avec les institutions, porte-parole du gouvemement, (, par le Président de la République, Chef de l'Etat, Chef du Gouvemement, Aùien HOUNGBEDJI ae .'r Le Mimstre des Finances, Le Garde des sceaux, Ministre de la justice et de la légrslation et de l'Homme, Ismaël Ampliations : PR 4 AN 4 CES 2 HAAC 2P};d4 MF-MJLDH 8 AUTRES MINISTERES 15 SGG 4 DEPARTEMENTS 6 DGBM-DCF-DGID- DGTCP.DGDDI5 BN-DAN-DLC 3 GCONB-DCCT-INSAE 3 BCP- CSM-IGAA3UNB-ENA-FASJEP3 DPEI JOI cc z--
