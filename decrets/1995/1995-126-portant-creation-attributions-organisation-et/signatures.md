@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à COTONOU, Ie 2O Avril 1!95 .,r ll;.,. /,, Pierre IÿIEVI Nicéphore S0GL0.- Le Mlnistre des Finances, ( '.'' fAGNONr 11-e A]iiPLIATIONS :
+PR 6 AN 4 CC 2 HAAC CES 2 SCG 4 MEPR.DN 4 MJL 4 AUTRES MINTSTERES 17 PREFEÎS 6 DGMB.DGCTP-Cî l UNB-ENA.FASJEP J JORB 1.- t -() CHAPITRE V D]SPOSITIONS DIVERSES
