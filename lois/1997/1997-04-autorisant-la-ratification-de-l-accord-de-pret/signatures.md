@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 29 jan~ier 1997 par le Président de la République, Chefde l'Etat, Chefdu Gouvernement, Le Premier Ministre, chargé de la Coordination de l'Action Gouvernementale et des Relations avec les Institutions, i!:'~'f~]fr-j" Adrien HOUNGBEDJI.- Le Ministre du Développement Ru Jérôme SACCA-KINA.- Le Ministre des Affaires Etrangères et de la Coopération, Pierre OSHO.- Le Ministre des Finances, Le Ministre du Plan, de la Restructuration Economique et de la Promotio de l'Emplo Albert TEYOEDJRE.- Ampliati.Qns : PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 PM 4 MDR 4 MAEC 4 MPRE 4 MF 4 autres Ministères 13 SGG 4 DGBM-DCF-OGTCP-OGID- OCOOI 5 BN-DAN-OLC 3 GCONB-OCCT-INSAE 3 BCP-CSM-IGAA 3 UNB-ENA-FASJEP 3 JO 1-
