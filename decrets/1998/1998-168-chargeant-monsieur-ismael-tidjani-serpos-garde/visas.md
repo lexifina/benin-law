@@ -1,0 +1,6 @@
+# Visas
+
+REPUBLIQUE DU BENIN PRESIDENCE DE LA REPIIBLIQUE DECRET N'98-168 Drr 4 nÀr 1998 chargeant Monsieur Ismaël TIDJANI SERPOS, Garde des Sceaux, Minisue de la Justice, de la Législation et des Droits de l'Homme de l'intérrm de Monsieur Timothée A. ZANNOU, Ministre de la Culture et de la Communication pour la période du 03 au 11mai 1998.
+VIJ Ia Loi no 90-032 du 11 décembre 1990, portant Constitution de la République du Bénin , \(J la Proclamation le ler avril 1996 par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du l8 mars 1996 ; VU le Décret no 96-128 du 09 avril 1996, portant composition du Gouvernement;
+DECRETE Anicle I er.- Pour la période du 03 au 1 I mai 1998, Monsieur Ismaêl TIDJANI SERPOS, Garde des Sceaux, Ministre de [a Justice, de la Législation et des Droits de l'Homme est chargé de f intérim du Ministre de la Culture et de la Communication pendant l'absence de Monsieur Timothée A. ZANNOU.
+Fait à Cotonou, le 4 Mai 199 par le Président de la République, Chef de 1'Etat, Chef du Gouvernement, thieu KEREK Amoliations : PR 6 AN 4 CS 2 HAAC2 PM4MCC4.MJLDH 4. SGG4 Autres ministères 16 Départem LE PRESIDENT DE LA REPIIBLIQLIE, CHEF DE L'ETAT, CI{EF DU GOUVERNEMENT,
