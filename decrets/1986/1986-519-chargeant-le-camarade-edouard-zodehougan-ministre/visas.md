@@ -1,0 +1,7 @@
+# Visas
+
+TI\4.I..
+REzuBLIQUE POzuLAIRE DU BENIN --i------- PRESÏDENCE DE LA REFUBLTOUE DECRET No 86-51 9 du 16 Décenbrê 19S6 chargeant Ie Carnarade Edouard ZODEHCIJGAN Mini.stre Dé1égué auprès du Président de 1a République, Chargé de lrIntérieur. de Ia Sécurlté Publique et de lfAdmlnlstratl-on Territoriale, de lrlntérim du Camarade Frédéric AFFO, Ministre des Affaires Etrangères et de Ia Coopératlon pour compter du 20 Novembre 1986.
+LE PRESIDENT DE LA RNH.JBLISIIE CHEF DE LIETAI, PRESDENT DU CoNSEIL EIECIJTIF NATIONAL, , \I(] lfordonnance N" 77-12 dr,r 9 Septembre 1gT7 portant promulgatlon de Ia Lol Fondamental_e de 1a République poiulaire àu Èenfn et 1es Lols Constltuti-onnel1es qui lt onf nodiiiée ;
+MJ Ie décret N. 85-254 du 17 Jqin .1985 portant composltlon du Consel-l Exécutif National e{ de son ôomlté eermânent ;-- vtJ -1e décret 86-490 du 20 Novenbre 1986 chargeant le Camarade Romain vrl.oN-cuEzO, présldent du comlté pËrmanent oà 1iÀssemtlée Natlonale Révolutiônnalre, de lrintérlm du présideni àe Ia République pour compter dü 20 Novexrbre 1996r- -------- -- DECRETE Fdtfit%ffi ' il,IT ii. : "ilEl E Chargé de 1r Intérleur, d.e tlon Territorlale est cha Etrarlgères et de Ia Coopé Frédérlc AFFO.
+u 20 Novembre '1986, Ie Camarade Ed.ouard gyprès du,Président de Ia République, Sécr.rité Publique et de lrAdàinist'ral .de ltintérlm du Mlnistre des Affaires lon pendant ltabsence du Camarad.e - rd gué 1a rgé rat
