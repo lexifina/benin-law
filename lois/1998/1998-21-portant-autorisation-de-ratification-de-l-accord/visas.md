@@ -1,0 +1,5 @@
+# Visas
+
+FE.- REPUBLIQUE DU BENIN ------, PRESIDENCE DE LA REPUBLIQUE LOI N° 98-021 du 9 juillet 1998 Portant autorisation de ratification de l'accord de prêt nOPRBN 972000 signé le 26 Décembre 1997 entre la République du Bénin et la Banque Ouest Africaine de Développement (BOAO) dans le cadre du financement partiel du projet d'extension des réseaux électriques d~ les q~ers périphériques de Parakou et d'électrification des centres secondaires de la sous-préfecture de TCHAOUROU.
+L'ASSENIBLEE NATIONALE a délibéré et adopté, LE PRESIDENT DE LA REPUBLIQUE promulgue la Loi dont la teneur suit:
+Article ler.- Est autorisée la ratification par le Président de la Républmique, Chefde l'Etat, Chefdu Gouvernement de l'accord de prêt N° PRBN 97 20 00 signé le 26 Décembre 1997 entre la République du Bénin et la Banque Ouest Africaine de Développement (BOAO) dans le cadre du financement partiel du projet d'extension des réseaux électriques dans les quartiers périphériques de Parakou et d'électrification des centres secondaires de la Sous-préfecture de TCHAOUROU pour un montant dé neuf cent vingt deux millions (922 000 000) de francs CFA.
