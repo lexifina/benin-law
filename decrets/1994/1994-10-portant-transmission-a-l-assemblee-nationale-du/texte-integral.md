@@ -1,0 +1,24 @@
+# Décret n° 1994-10 du 26 janvier 1994 portant transmission à l'Assemblée Nationale du projet de Loi portant autorisation de perception des impôts et taxes et d'exécution des dépenses de l'Etat par douzièmes provisoires pour le mois de Février 1994
+
+REPUBLIQUE DU BENIII PRESIDENCE DE LÀ REPUBLIQUE DECRET n. 94-10 DU 26 iTANVTER 1994 portant tnansrnission à 1'Àssemblée Nationale du projet de Loi portant autorisation de perception des impôts et taxes et d'exécution des dépenses de 1'Etat par douzj-èrnes provisoires pour Ie mois de Février L994.
+LE PRÉSIDENT DE LÀ RÉPUBLIQUE, CHEF DE L'ETÀT, CHEF DU GOWERNEMENT, VU Ia Loi n' 90-32 du Ll" Décenbre 1990 portant Constitution de Ia République du Bénin ;
+VU Ia Loi no 93-001 du 1er février 1993 portant Loi de Finances pour la Gestion 1993 ;
+VU la Décision no O 42 /HCR/PT du 30 mars l99L portant proclanation des résultats définitifs du deuxième tour des élections présidentielles du 24 mars 1991i vU Ie Décret n' 93-199 du 08 septembre 1993 portant composition du Gouvernement ;
+Sur proposition du Ministre des Finances Le Conseil des.Mini.stres entendu en sa séance du 26 Janvier 1994.
+l- Le projet de Loi portant autorisation de perception des impôts et taxes et d'exécution des dépenses de 1'Etat Par douziènes provisoj.res pour le mois de Février 1994 sera présenté à 1'Àssenblée Nationale par le Ministre des Finances, Ie Ministre du Pl.an et de la Restructuration Economique et 1e Ministre Chargé des Rel.ations avec le ParLenent, Porte-Parole du Gouvernement qui sont chargés d'en exposer les motifs et d'en soutenir l-a discussion.
+- Monsieur le Président de I'Àssemblée Nationale,
+- Mesdames et Messieurs Ies Députés.
+Le projet de Loi portant autorisation de perception des impôts et taxes et d'exécution des dépenses de I'Etat par douzièmes provisoires pour le mois de Février L994 que Ie Gouvernenent sounet à I'Àssenblée Nationale pour adoption conforrnément aux dispositions de 1'article 111 de 1a Loi no 90-32 du L1 Décenbre 1990 portant Constitution de Ia République du Bénin vise à pernettre, le fonctionnenent de 1'appareil de I'Etat compte tenu du retard gu'accuse .Le vote de la Loi de Finances Gestion 1994.
+Le Conseil des Ministres en sa séance du 05 Janvier 1994, avait adopté Ie projet de Loi de Finances Gestion 1994 et allait le transnettre à l-'Àssemblée Nationale quand Ia dévaluation du Francs CFA est intervenue Ie L1 Janvier 1.994. Cet événement modifie fondamental. ement les hypothèses éconorniques et financières faites pour l'année 1994. Dans ces conditions Iedit projet est en train d'être repri,s afin de l'adapter à la nouvelle situation et d'y inclure les rnesures devant permettre d'assurer Ia paix sociale et Ia relance éconornique.
+DACRETE EXPOSE DES !{OTIFS TeI est, Mesdames et Messieurs les Députés, Ie fondement du projet de Loi portant autorisation de perception des impôts et taxes et d'exécution des dépenses de 1'Etat par douzièrnes provisoires pour Ia Gestion 1994.
+Par Ie Présideut de la République, Chef de I 'Etat, Chef du GouverneDent, Iicéphore SOGLO Le l,linistre d'Etat Désiré VIEYRÀ Le li{inistre dès Fiuanees , Le l.{inistre du Plân êt de Ia Restructuration Economigue, Paul sou. - Robert TAGNON. - des RelatioBs avec Ie Parlement, Porte-Parole du Gouvern at, PR 8 - ÀN 70 - CS ]. - MF 4 - SGG 4 - JORB ].
+ÀMPLIÀTI ONS Fait à Cotonou, Ie 26 iINIVIER 1994.- Le li{inistre REPUBLIQUE DU BENIN PRESIDENCE DE LÀ REPUBLIOUE LOI du portant âutorisation de perception des impôts et taxes et d,exécution des dépenses de l,Etat par douzièmes provisoires pour 1e mois de Février 1994.
+L'Àssemblée Nationale a adopté, Le Président de Ia République la Loi dont Ia teneur sui.t prornulgue Àrticl,e l-er. - En attendant l,adoption de l-a Loi de Finances cestion 1994, sont autorj.sées pendant le nois de février L994 et conforménent à l,article 111 de Ia Constituti_on du 11 Décêmbre 1990 de J.a République du Bénin :
+- la perception, sur }a base des dispositions législatives et réglernentaires en vigueur en 1993, des impôts/ taxes, prôduits et revenus applicables au Budget Générat de I,Etat ;
+- 1,exécution des dépenses du Budget Général de 1,Etat dâns 1a limite du douziène des crédits ouverts dans la Loi de Finances de 1'année 1993.
+Àrticle
+2. - La présente Loi qui prend effet à compter du ler Février 1994 sera exécutée cornme Loi de I'Etat.
+Fait à Côtonou, 1e Par le Président de la République, Chef de I 'Etat, Chef du Gouvernenent, Nicéphore socLo. - LE MINISTRE D 'ETÀT, Désiré VIEYRÀ LE MINISTRE DES FINANCES, LE MINISTRE DU PLÀN ET DE LÀ RESTRUCIURÀT]ON ECONOMIQUE, Robert TAGIIOù. - À.II,IPLIÀTIONS 3 PR6 -ÀN4 -CC2 CS 2.
+SGG4-MT5
+- MPRE 2 - Autres Ministères 18 - Préfectures 6 - DB - DSDV - DCE L5 - DI - DDDI - DTCP 15 - TNSAE - DP//MPRE 2 - UNB/FÀSJEP 2 - IGE 1 - GCONBl-BN1-JORB1.
+Paul DOSSOU
