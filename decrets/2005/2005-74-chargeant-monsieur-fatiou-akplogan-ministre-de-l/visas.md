@@ -1,0 +1,6 @@
+# Visas
+
+REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE DECRET N' 20O5.O74. DU 18 FEI/RIER 2OO5 Chargeant Monsieur Fatiou AKPLOGAN, Ministre de l'Agriculture, de l'Elevage et de'la Pêche, de'l'intérim de Madame Massiyatou LATOLTNDJI épouse LALIRIANO, Ministre de l'lndustrie, du Commerce et de ]a Promotion de l'Emploi pour compter du dimanche 20 février 2005, LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT.
+Ou la Loi N' g0 -O32du 11 décembre 1990, portant Constitution de la République du Bénin ; Vu la Proclamation, le 3 avril 2001, par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du 22 mars 2001 ;
+Vu le Décret No 2005-052 du 04 fevrier 2005, portant composition du Gouvemement ; DECRETB Le Président de la République, Chef de l'Etat, Chef du Gouvemement.
+Mathieu KEREKOU AMPLIATIONS:PR6 SGG2 AN 2 CS 2 CC 2 CES 2 HAAC 2 MICPE4MECPD2 MAEP4 MINISTERES 18 JORBI Article l"': Pour compter du dimanche 20 féwier 2005, Monsieur Fatiou AKPLOCAN, Ministre de l'Agnculture, de l'Elevage et de la Pêche est chargé de f intérim du Ministre de l'Industne, du Commerce et de la Promotion de I'Emploi, Madame Massiyatou LATOIINDJI épouse LALIRIANO, ]endant son absence.
