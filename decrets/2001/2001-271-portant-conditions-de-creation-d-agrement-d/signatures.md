@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonot,le, 27 juillct 2001 Par le Président de 1a République, Chef de I'Etat, Chef du Gouvemement, Le Mini des. Finances et de nomle, Le Minishe d'Etat, char e la Coordination de l'Action Gouvemementale, de la Prospective et du Développement, v Bruno AMOUSSOU.- thieu KEREKOU.- Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits I t oI de I'Homme, o v IO.TCHANE.- ose h H. GNONLONFOUN.- AMPLIATIONS : PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 MECCAG-PD 4 MJLDH 4 MFE 4 AUTRES MINISTERES 18 SGG 4 DGBM-DCF-DGTCP-DGDDI.DGID 5 BN-DAN-DLC 3 GCONB-DCCT-INSAE 3 BCP-CSM-IGAA 3 UNB-FASJEP- ENA 3 JO I.-
