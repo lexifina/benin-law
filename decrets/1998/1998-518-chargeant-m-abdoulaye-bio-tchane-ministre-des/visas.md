@@ -1,0 +1,4 @@
+# Visas
+
+REPUBLIQUE DU BENIN DECBET N' 98-518 DU 3 NOVEMBRE 1998 PRESIDENCE DE LA REPUBLIQUE chargeant M. Abdoulaye BIO-TCHANE, Ministre des Finances, de I'intérim de Monsieur John IGUE, Ministre de I'lndustrie et des Petites et Moyennes Entreprises pour compter du 03 Novembre 1998 LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT, VU la loi no 90-32 du 11 Décembre 1990, portant Gonstitution de la République du Bénin, VU la Proclamation le ls'Avril 1996 par la Cour Constitutionnelle des résultats de l'élection présidentielle du l8 Mars 1996, VU le Décret n'98-280 du 12 Juillet 1998 portant composition du Gouvernement.
+DECRETE Article 'lsr : Pour com pter du 03 Novembre 1998, Monsieur Abdoulaye BIO-TCHANE, Ministre des Finances est chargé de I'intérim du Ministre de I'lndustrie et des Petites et Moyennes Entreprises, Monsieur John IGUE, pendant son absence.
