@@ -1,0 +1,4 @@
+# Visas
+
+BNPUB}IQIIE POPUIAiRN DU BENIN PRESIDENCE DE M RNPUBLI iUE DECRXT No 81-284 du 11 Septernbre i98i portant création de la Commt'sbiorr chargée d' arrêter Ies ainénagements à effectuer sur le HaII d.es Congrès en vue tl'y abriter tous fes services de I'Assemblée Nationale Révolutionnaire .
+tE PRESIDENT Dn m REPUBTIQUE, CHEF DE IIETAT, PRESIDIINT DU CONSEII EXNCUTIF NATIONII,, 1III 1'ordonnance No 77-12 du 9 Septembre 1977 portant promulgation d.e la loi Fond.anentale de Ia République Populaire du Bénin, notamment son article 64, VU le décret No 80-59 du i2 Février 1980 portant composition du Conseil- Ex_écutif lJational et tle son Comité Permanent, VU le d.écret No 81-272 du 5 Septembre 1981 chargeant l_e Camaratle VIION-GUEZO Romain, Premier Vice-Président du Comité Permarrent de IrAssemblée Nationale Révolutionnaire, de f intérim du Président de la Républicue pour compter du 7 Septembre 1981. DECRETE
