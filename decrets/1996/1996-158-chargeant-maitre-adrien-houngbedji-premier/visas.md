@@ -1,0 +1,5 @@
+# Visas
+
+TliJ.- REPUBLIOUE DU BENIN PRESIDENCE DE I.A REPUtsLIOUE DECRET No 96-1 58 du 0l Mai 1996 Chargeant lriaitre Adrien HOUNGBEDJI , Preoier }llnistre, Chargé de Ia Coordination de lrAction Gouvernementale et des Relations avec 1es Institutions, de lrintérim du Président de 1a République pour conpter du 0f },lai 1996.
+VU Ia Loi- No 90-0f2 du 1'1 1a République du Bénin Décembre 199C portant Constit.rtion de V1J 1a Proclaroation Ie 1er Avril 1995 par Ia Cour ConstitutionnelLe des résultats définitifs de 1rélection présidentielle du 18 liars 1996 ;
+VU Ie Décret No Gouvernement 96-128 du 09 Avril 1996 portant compositicn du Article '1 er. - Pendant 1 I absence de Irionsi-eur Ie Pré sident de la RGoEIIque, Chei de lrEtat, Chef du Gouvernerûent, I,laitre Adrien HOUNCBDJI , Prenier lviinistre, Chargé de Ia Coordination de 1r3.ction Oouverneroentale et des Relations avec 1es Institutions est chârgé drassurer lri-ntérim dès Ie départ de Ia déIégation pré si-dentielle pour 1e Niger et 1e Br:rkina-I'aso.
