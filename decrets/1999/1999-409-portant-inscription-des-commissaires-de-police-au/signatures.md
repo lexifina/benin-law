@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 26 août 1999 Par le Président de la République, Chef de l'Etat, Chef du Gouvemement, Mathieu KEREKOU.- Le Ministre d'Etat, Chargé de la Coordination de l'Action Gouvemementale, du Plan, du Développement et de laPromotion de l'Emploi, i Bruno AMOUSSOU.- Le Ministre de l'tntérieur, de la Sécurité et de l'Admrnistration Territoriale, Le Ministre des Finances, et de l'Economie, ir') Daniel T A WEMA.- Pierre John IGUE Ministre intérimaire AMPLIATIONS : PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 MECCAG-PDPE 4 MISAT 4 IVtr 4 AUTRES MIMSTERES 17 SGG 4 DGBM-DCF.DGTCP- DGID-DGDDI 5 BN-DAN-DLC 3 GCONB-DCCT-INSAE 3 BCP-CSM-IGAA 3 LINB.ENA.FASJEP 3INTERESSES JO I.
