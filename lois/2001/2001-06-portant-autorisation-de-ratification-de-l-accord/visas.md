@@ -1,0 +1,5 @@
+# Visas
+
+FE.- REPUBLIQUE DU BENIN PRESIDENCE DE MA REPUBLIQUE LOI N° 2001-06 DU 30 AVRIL 2001 Portant autorisation de ratification de l'accord de prêt signé entre la République du Bénin et la Banque Islamique de Développement dans le cadre du financement du second projet « Education en milieu rural ».
+L'ASSEMBLEE NATIONALE a délibéré et adopté, LE PRESIDENT DE LA REPUBLIQUE promulgue la Loi dont la teneur suit :
+Article ler.- Est autorisée la ratification, par le Président de la République, Chef de l'Etat, Chef du Gouvernement, de l'accord de prêt signé le 27 juillet 2000 entre la République du Bénin et la Banque Islamique de Développement (B.I.D) dans le cadre du financement du sec<?nd projet Education en milieu rural pour un montant de quatre millions cinq cent cinquante mille (4.550.000) Dinars Islamiques soit environ six millions trois cent quatre vingt mille (6.380.000) $US cOlTespondant à quatre milliards sept cent cinquante sept millions huit cent quatre vingt cinq mille (4.757.885.000) F CFA environ.
