@@ -1,0 +1,5 @@
+# Signatures
+
+Fait à COTONOU, le 20 avrl1 1 par 1e Président de }a République, Chef de IrEtat, Président du Conseil Exécutif National , Le Ministre de I'Intérieur et de la Sécurité Publique, GIJEZODJE Vincent Le Ministre du Commerce, hieu KEREKOU istre du Travail et des Affaires Sociale ùlarîa GOLII]I Le Garde des Sceaux, i4inistre de la Justice Populaire !) e IJOU Simon IfùCé 0G01J1,1/.
+Barthé1émv OHOUEN s Pour le Ministre des Finances absent, 1e Ministre de LrIndustric, des l'{ines et de l r$:ereie.
+chargé de 1r intérim, Le Ministre des ;ffaires Etrangères et de 1a Coopéra.tion, \ Michel AII,ADAIT Ad:1 .\ B liati.ons : PR B - CC du PRPB 6 FSP4-CAB.MIL.2- des Forces de Sécurité Publlque 6 MC-MJP-I{F '12 - Autres l{inistères . ANR 4 . M]SP 15 - MDN 2 8,F'-I-,4 Comu,endenent des Commissariats . DAl 4 - DAI 4 - }IIAS.MAEC 8 15 - SGG 4 - SPD 2 - IGE et ses Sections 4 - Préfets, Présidents des CEAP 6 - DMP 6 - DPE au I,ITAS 4 - DPE-DAJL-INSAE 5 - BN-UNB-ISJ 6 - BCp 2 DCCî-oNEPI-Gde Ch. f DB-Solde-Trésor 12 - JORPB 1
