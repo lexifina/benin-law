@@ -1,0 +1,10 @@
+# Loi n° 1994-30 du 17 janvier 1994 portant mise en conformité de la loi N°94-013 fixant les règles générales pour les élections du président de la République et des membres de l'Assemblée Nationale avec Décision DCC 34-94 des 22 et 23/12/1994
+
+REPIIBLIOUE DU BENIN PRESIDENCE DE LA REPI.JBLIOUE IrI No g4-O3O du 17 Janvier 1995 Portant roise en conformlté de 1a Loi ;;-§[-ôrJ flxant :.es règ1es-généraIes "oui 'fes- éfectlons du hésldent de ]-a- .
+héoubllque et des Manbres dê lrAssêtrbret ii;ii;ilï;-"iÀ"-iâ Déclsion Dcc 14-e4 des 22 et 2J Décenbre 1994' LTASSEMBLEE NATIONALE a adopté en sa séance du 26 Décernbre 1994' LA COUR, CONSTITUTIONNELLE A TENdU ]-A DéCiS1ON DCC 95.002 dU 09 .tranvler 'l 995.
+LE PRESIDENT DE LA REPLJBLIOLIE prouulgue Ia Lol dont Ia teneur sult :
+frt lcIe 1er'- La Cour Constltutlonnelle constate Ie recensemênt ténéraI résultats déflnltlfs é et proclane I dlspositions d 0 et de 1r artic anique sur 1a C des votes, vérlfle Ia régularit dcs élections, confornément aux Constttutlon du 1 1 Décernbre '1 99 du 4 Mars 1991 , Portant Iol Org e lrartlcle 49 de 1a Ic 54 de Ia Lol N' 91 -009 our Constltutlorurelle.
+de Ia Lo1 94-011 électlons du e Natlonalc. Il Artlcle 2.- Lrartlcfe précédent rerplace ltartlcle 57 du 'l 5 Septembre 1994 Portant r Président dc 1a RéPubllque ct ègles généra1es pour 1es dàs Membres de 1r Âsscnblé sera lnséré ên ses lleu et PIacê.
+Artlcle J.- La présente Lo1 sera exécutée comme Lol de ].rEtat.
+Falt à C0T0N0U, Ie '17 Janvier 1995 Par Ie Frésldent de 1a RéPub11que, Chef de ltEtat, Chef du Gouvernement, lllC.céphore SOGLO . - I.e Mlnlstre drEtat à Ia Présidence de Ia Républlque, chargé de Ia Coord.lnatlon dc ltlctlon Gouverne- Iaenta)-e et de l-a Défense Natlonale, Dés1ré EYRÂ..
+( Lc Mlnlstre de ItIntérieur, de Ia Sécurité et de lrldmlnlstratlon Terrltorlale, Le Gard.e des Sceauxr Mlnlstr de Ia Justice et de 1a Législatlon, Antoine tl-abt GBEGÂN.- Plerre MEVI.- AI'IPLIÀTfONS : FR 6 ÂN 4 CC 2 HAÀE 2 CES 2 SGG 4 ÎOUS MINISTERES '1 9 DEFARTEUENTS 6 SP+ CU 79 GCONB-BN-FASJEP-ENA-UNB-DAN 6 JORB 1..
