@@ -1,0 +1,5 @@
+# Signatures
+
+Fait à Porto-Novo, le Le Président de l'Assemblée Nationale, Kolawolé A. IDJI.- ..4 L'Acte Constitutif ainsi amendé de 1'Ur.rion constitue pour les pays africains et les populatiolrs un pari sur l'avenir politique, économique et social du continent. En cela, il mérite d'être soutenu par notre pays qui soutient tous les efforts relatifs à 1'édiflcation de 1'Afrique nouvelle et prospère.
+A la lumière des éléments d'appréciation ci-dessus exposés, et afin d'atteindre les objectifs visés par l'Acte Constitutif Amendé, nous avons l'honneur, Monsieur le Président de l'Assembiée Nationale, Mesdames et Messieurs les honorables Députés, de soumettre à 1'appréciation de votre Auguste Assemblée, aux fins d'autorisation de ratification le présent Acte constitutif amendé de 1'Union Africaine.
+FaitàCotonou,l" 3t juillet 2001 Par le Président de la RéPublique, Chef de i'Etat, Chef du Gouvemement, Mathieu KEREKOU.- Le Ministre des Affaires Etrangères et de l'Intégration Africai ati AMPLIATIONS :?R6 AN 85 CC 2 CS 2 CES 2 HAAC 2 MAEIA 4 JO 1'
