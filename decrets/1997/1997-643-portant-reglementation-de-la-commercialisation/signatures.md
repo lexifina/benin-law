@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à COTONOU, le Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, Mathieu KEREKOU.- Le Premier Minis é de la Coordination, de I'Action Gouvernementale et des Rations avec les Institutions, Porte Parole du Gouvemement, /-"tl Adrien HOUNGBEDJI.- Article 35.- La composition, les attributions et le fonctionnement du conseil consultatif national sont fixés par Arrêté interministériel.
+.lt Le ministre du Commerce, de l'artisanat et du tourisme, Le Ministre de la Santé, de la protection sociale et de la condition féminine ll Gatien HOUNGBEDJI.- Marina d'ALMEIDA-MASSOUGBODJI Ampliations : PR 6 AN 4 CE 2 CC 2CES 2 HAAC 2 PM 4 MCAT 4 MSPSCF 4 SGG4AUTRESMINISTERES15DGBM-DCF-DGTCP-DGID-DGDDI5BN- DAN-DLC 3-GCONB-DCCT-INSAE 3 BCP-CSM-IGAA 3 TiNB-FASJEP-ENA 3 JORB I.

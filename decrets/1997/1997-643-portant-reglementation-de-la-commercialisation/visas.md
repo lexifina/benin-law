@@ -1,0 +1,10 @@
+# Visas
+
+BA REPI,]BLIQI.IE DU BENIN PRESIDENCE DE LA REPI"]BLIQUE DECRETN.9T-643 du 3l décembre 1997 Portant réglementation de la commercialisation des substituts du lait matemel et des aliments pour norurissons.
+LE PRESIDENT DE LA REPLIBLIQUE, CHEF DE L'ETAT, CHEF DU GOI.]VERNEMENT, VU la Loi N" 90-032 du 1l Décembre 1990 portant Constitution de la République du Bénin ;
+VU la Loi No 84-009 du 15 mars 1984 portant contrôle des denrées alimentaires en République du Bénin;
+VU la Proclamation le ler Avril 1996 par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du 18 Mars 1996 ;
+VU le Décret N" 96-128 du 09 Avril 1996 portant composition du Gouvemement ; VU le Décret N' 96-402 du 18 septembre 1996 fixant les structures de ia Présidence de la République et des ministères ;
+VU le DécretN'97-301 du 24 juin 1997 portant attributions, organisation et fonctionnement du ministère de la Santé, de la protection sociale et de la condition féminine ;
+YU le Décret No 97-59 du 20 féwier 1997 portant attributions, organisation et fonctionnement du ministère du Commerce, de I'artisanat et du tourisme ; VU le Décret N' 94-103 du 12 avril 1994 portant attributions, organisation et fonctionnement du Comité National pour I'Alimentation et la Nutrition ; VU I'adhésion de la République du Bénin à la déclaration d'Innocenti du ler Août 1990 sur la protection, I'encouragement et le soutien à I'allaitement maternel ; VU la déclaration de la politique nationale pour la protection, l'encouragement et la promotion de l'allaitement maternel au Bénin en date du 21 décembrc 7992 ; SUR proposition du ministre de la santé, de la protection sociale et de la condition féminine;
+Le Conseil des Ministres entendu en sa séance du 03 décembre 1997, DECR ETE CHAPITRE I : BUT ET CHAMP D'APPLICÀTION Article ler.- le présent Décret a pour but de réglementer la commercialisation et la distribution des substituts du lait maternel et des produits assimilés en République du Bénin, en vue de procurer aux nourrissons une nutrition sûre et adéquate par la protection, I'encouragement, la promotion et le soutien à l'allaitement maternel.
