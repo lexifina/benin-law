@@ -1,0 +1,8 @@
+# Visas
+
+/et t QUE POPUIÂTRE DU BENTN DECRE REPUBttr en4Érmxce DE LA REpuBLror.rE vU VU VU r/U DECRET I'lo 31t-46t du 7 Décembre 1ÿ84 portant ratiiication de f rAccord de p .,1 .
+No )55 P signé ]e 24 Aott 1984 à Vien,, (Au_triche) er:tre fa République populaj.:.
+du Pilnùn et Ie Fonds dè ItOpEp ooür 1c.
+Développenienl. cians le èadre du iinancc,, *,n i gg proiet de construction du Barrage l{i. c* éf ec.t.rique de irlangbéto LE PRNSIDENT DE LA REPUBLIOIJE CHEF DE L'ETAT. PRESIDEI'.IT DJ' CONSEIL ËXECUfIF NAT]oI!ÀL, ':.,1 lrordonlance No 77-12 du ! Septembre 1977 portant promul_gation de Ia Loi Fondamentale de g Répüulique râpulàire du Èénln Ët ies r,ois Constitutionnelles qi:i lront-modlf-iée. ;- Ie-décret No 84-122 du J Aott 1ÿ84 portant composition du conseil Exécutif Nati@nal et de son Comité Fermanent ;' Ie décret No 84-425 du 21 1r161r"6bre -l 984 Comité Permanent de ltAssemblée Nati-ônaf autorisation de ratification. de lrAccor Ie 24 aott 1984 à Vienne (autricne) èntr du Bénln et le Fonds de f iOpFlp oor" l-. D du financement du projet de ConÀtruction de Nangbéto .;
+la décision No B4-82/ANR /Cp/p dû 4 Décembre ficgtiop de 1?Accord-de i,rêt u; frf-È. "ie"È _(Autriche) entre Ia République ponufaire:du lrOPEP pour 1e Dévelopiiemenf a.nÀ':.e ôààre a de Construction Hydroéiectrique de llansbéto F, d e e 'iévolutionnaire, pour de Prêt No f55 P signé 1a République Populàire veloppement dans le cadre du Barrage HydroéIectr i q:r, ortant transmission au 1984 autorisant 1a ri rife 24 Aott 1984 à Vi::rr-e Bénin et l-e'fohds"de u f inancement du Prc.l ..
+I l-tr par -1e Président de Ia République, Chef de l tEtat, Président-du Censeil Exécutif National.,
