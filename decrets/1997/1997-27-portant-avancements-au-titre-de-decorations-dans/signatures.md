@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 29 JANVTER 1997 Par le Président de Ia République, Chef de l'Etat, Chef du Gouvernement (thicu KEREKOI' Le Premier Ministre, Chargé de la Coordination de l'Action Gouvernementale et des Relations avec les Institutions t ") r Adrien HOLNGBEDJI Le N.{inistre des Finances ,-/* Le Garde des Sceaux ,Nlinistre de la Justice de la Législation et des Droits de I'Homme l\, t rse MEN aèl Ampliations PR 6 PM 4 AN 4 CS 2 SGG 4 MJLDH et Directio s20 IüF4CC2 CES2 HAC 2 Autres Ministères 15 Dépanements 6 DGBM-CFDEB- GTCP-DI ]5 DPE-INE-CTCONB I ONEPI I UNB-FASJEP-ENA-3 CSN4 I Intéressés I l8 JORB I t
