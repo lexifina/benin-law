@@ -1,0 +1,9 @@
+# Visas
+
+REPTJBLIQUE DU BENIN DECRETNo '; C:-lPC j'r- ,16 -'l"r:2ccl Portant Reclassement dans l'Ordre du Mérite Social de Monsieur MAYAKI Séni, Inspecteur d'Action Sanitaire en retraite, précédemment membre de l'Ordre du Mérite Social du Dahomey PR.ESIDENCE DE LA REPUBLIQUE LE PRESIDENT DE LA REPUBLIQUE CHEF DE L'ETAT CHEF DU GOTIVERNEMENT GRAI\ID-MAITRE DE LNORDRD NATIONAL DU BENIN .IU W VU VU La Loi N" 90-32 du l1 Décembre 1990 portant Constitution de Ia République du Bénin;
+VU la Proclamation le 03 Avril 2001 par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du 22 Mars 2001;
+la Loi N" 94-029 du 03 Juin 1996 portant réorganisation de I'Ordre National du Bénin ; le Décret N' 2001 - 1 70 du 7 Mai 200 I portant composition du Gouvernement ' VU le Décret N' 91-76 du l0 Mai l99l portant nomination de Monsieur Grégoire-Gilbert GBENOU en qualité de Grand Chancelier de I'Ordre National du Bénin par intérim ; ovu les Décrets N"s 88-337 du 29 Août 1988 et 99-243 du 14 Mai 1999 portant nominations des membres du Conseil de I'Ordre National du Bénin ;
+VU le Décret N'62-320 du 31 Juillet 1962 portant nominations de Monsieur MAYAKI Séni, dans I'Ordre du Mérite Social du Dahomey ;
+DECRETE:
+Article ler : En application des dispositions de l'article 64, alinéa 2 de la Loi n" 94-029 du 03 Juin 1996 portant réorganisation de l'Ordre National du Bénin, Monsieur MAYAKI Séni, Inspecteur d'Action Sanitaire à la retraite, précédemment chevalier de l'Ordre du Mérite la Loi N' 87-019 du 2l Septembre 1987 portant création de I'Ordre du Mérite Social ; VU Ia Lettre de demande de Reclassement dans I'Ordre du Mérite Social de la République du Bénin formulée par Monsieur MAYAKI Séni du 10 Juillet 2002 ;
+Social du Dahomey est reclassé dans l'Ordre du Mérite Social de la République du Bénin à concordance de grade.
