@@ -1,0 +1,5 @@
+# Visas
+
+4S- REPUBLIQUE DU BENIN PRESmENCE DE LA REPUBLIQUE LOI N° 99-004 du 19 janvier 1999 Portant autorisation de ratification de l'accord de prêt n° 470-BJ signé le 03 juillet 1998 entre la République du Bénin et le Fonds international de développement agricole (F.I.D.A.) dans le cadre du financement du projet microfmance et de commercialisation (PRüMIC).
+L'Assemblée nationale a délibéré et adopté, Le Président de la République promulgue la loi dont la teneur suit :
+Article ler.- Est autorisée la ratification, par le Président de la République, Chef de l'Etat, Chef du gouvernement, de l'accord de prêt n° 470-BJ signé le 03 juillet 1998 entre la République du Bénin et le Fonds international de développement agricole (F.I.D.A.) dans le cadre du financement du projet micro-finance et de commercialisation (pRüMIC) pour un montant de neuf millions cent cinquante mille (9.150.000) de droits de tirages spéciaux (DTS) soit environ sept milliards cinquante huit millions (7.058.000.000) de F CFA.
