@@ -1,0 +1,12 @@
+# Visas
+
+ma' I REPIJ-BLIQUE ?OPUI,A]T3 DÜ BENIN PBISIDE§CE DE LÀ REUBI'IQUE nBCP.ET NoAT-171 du 9 Novembre Portant ratification de Ia Con* vention de LrUnion Panafri caine iles Téléconmrunications signée à ARUSHA Ie 5 Mars 1986.
+ü& PA$STDENI DE,IA IIXPIIBI]QUE! CHEI' DE LTBIAI , PR.ESIDEI{T DÏ coN§EIl EXE0UÎII' NÀlroi'{Al, ...
+vI, Irrordomllancê No 77-(32 ttu 9 Septemble B?? portarlt pronulgation de Ia Loi-Fonctanèntale-tte la néputLique Populaire*',,du Bénin et les lois ConstitutiorvrelLes qui 1r ont moüifj-ée, Wr Le décret 1r1o $f-"l8 du 13 tr'éÿrier 1987 portant composition duOcnsell Exécutif National- et d.e son Comité Permar'rent, w Ee décret No 87-. 1t3 du 4 uai 1987 portant transm:ission au coraité Permanent de l rAs§.êmb1ée Netionale RdvolutiÔnnaire, po tr autorisa" iion a" ratification, 6e 1a convention de rrunion Pa*.africai,,c des [éIécoruoturications, signée à ARIJSHA, ]e 6-1,1ars 1986r -.
+_ W tra décision No B7-66/A}IB,/SP au 2:' octobre 1987 autorisanà l-a ra''. tifi-cation tle l-a convention de lfUnion Panafrl caine des îélécomnlrnications signée à ARUSHA Ie 6 lr1ars 1986, Drc RET E / Arb c1e ler T l-é comrunic trouve ci*joint.
+Ârtic]-e Le présent décret sera publ-ié au J ourrral Officiel-" Iait.à Cotonou, J-e 9 Novembre 19a7 Par Le ?:résident de )-a R6publiquet Chef de ]-tEtat, Présldent du ConseiL Exécutif National-, * Est ratifiêla conventj-on de LrUnion Panafricaine cles ations signée à ARUSHA 1e 6 l,tars B86, dont 1e texte se I I'[athieu KEREKOU e { Le Mjnistre de 1r Infonna'Lion eti des iorrs , f,.,e lfinistre des Affaires .Etrangeres et de la Coopération, #8]+H{ffi s' rorfi ls 3d# :'l'8Ëf, 64 SGCEN 4 AI{R 4 BCPC2 Decr I Ge0i'13 1 1 BI'I..DÀN 2 0llEPI 2 UNB-FASüEP*TiÎIA 3 IGE 3 JORPB I-D;DSDV-DCO3-O1æ:-D1 I SPD I Eeqaab é BIIO_UZO Mohamed Souradjou ltsirAHli,i 'Mirristre intérimaire lliinistre intérimaire.
+/Z/|l'troN /FJol s'rrcnrxr gus l6æouui,NrcArroNs l|]otovENîroN L,lJfNloN F ,É -TtrwololnlNrcArroNs ( AHI
+- 1986 ) SECRETARIÂÎ GTT.IMA], KTN :
+Union Panafricaire des Télôcmunications B.P. 8614 KrNSr{ÀsA-1 (RIH,BIJQÜE DU ZATRE) TEEX 21049 ZR SEREIARIAÎ CENMAI Paa African Telecomunications Il nion P.O" rcX 8614 KTNSEA§A-1 (RPUB,IC OF ZAIRE) TErD( 21049 ZR GB.IBAL SECRETAXI AI CONVNTION DE :1- III]NION PN{ATRICÀINE DBS TT,ECO}I'{UNICATIONS .N ARU§H.4, .19% i I TABLE DÊS MÂîIT8BS CONVENTION DE I., IUNtrON PA{AT'BICAINE DES TE,F,CO},1MI'N]CATIONS Préanbule . .
+Page . CHAPITRE I CREATION .
+CCT.,IPOSTÎION . LANGUES DE TRAVAII TT SIEGE
