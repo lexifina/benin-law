@@ -1,0 +1,6 @@
+# Visas
+
+REPI]tsLIQUE DU BENIN PRESIDENCE DE LA REPLIBLIQI,E DECRNT NO 99-424 DU 03 SEPTEMBRE 1999 Chargeant Monsieur Abdoulaye BIO-TCHANE, Ministre des Finances et de l'Economie de I'intérim de Monsieur Ousmane BATOKO, Ministre de la Fonction Publique, du Travail et de la Réforme Administrative pour compter du 02 Septembre 1999 LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOU\ERNEMENT, \rU la Loi no90-032 du 1l décembre lg90 portant Constitution de la République du Bénin ;
+\rlJ la Proclamation le ler awil 1996 par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du 18 mars 1996 ;
+\4J le Décret n'99-309 du 22 juin 1999 portant composition du Gouvemement; VU le Décret n" 99-422 du 1" septembre 1999 chargeant Monsieur Bruno AMOUSSOU, Ministre d'Etat, Chargé de la Coordination de l'Action Gouvernementale, du Plan, du Développement et de la Promotion de l'Emploi pour compter du 1" Septembre 1999 , DECRETE:
+Artiçle ler.- Pour compter du 02 septembre 1999, Monsieur Abdoulaye BIO- TCHANE, Ministre des Finanoes et de I'Economie est chargé de l'intérim du Ministre de Ia Fonction Publique, du Travail et de Réforme Administrative pendant l'absence de Monsieur Ousmane BATOKO.
