@@ -1,0 +1,8 @@
+# Décret n° 1979-201 du 18 août 1979 chargeant le Camarade Issifou BOURAÏMA, Ministre de la Santé Publique, de l'intérim du Camarade André ATCHADE, Ministre du Commerce et du Tourisme pour compter du 17 Août 1979
+
+REPUBLISUE POPULA]RE DU BENIN --++-- PR.ESIDENCE DE LA REPUBLIOUE --+â-- DECRET No 79-201 du 1B aott 1979 chargeant le Camarade Issif ou BOURIII''É, MlniÀtre de. Ia Santé Publique, de f t itrtérim du Camarade A,ndré ATCIIÀDE, Iilinistre du Cornmerce et du Tourisme pour compter du 17 aott 1979.
+LE PRESIDEI.IT DE LA REFUBLIQUE, CHEF DE L'ETÂT, CiiEF DU GOUVEfi,I'JEMENT, VU 1e décre1 no 76-46 du'1 9 février 1976, détermlnant les Services rattachés à 1a Présidence .fe J-a République et fEant les attributions des membres du Gouvernement àodifié par 1e décret r\o 7E-174 du 6 juiuet 1978, VU lrordonnance no 77-12 du 9 de la Lol Fondamentale de VU 1e décret. no 76-26 du 30 vernement et le décret no fié ;
+septembre 1977 , portant promulgation Ia République Populalre du Bénin ;
+ja 'j.er 1976, portant formation du Gou- 78-171 du 5 juillei" 197a quj. lta modiu 17 aott 1979, le Camarade Issifou té Publique, assLrrè, Itlntérim du ourisme pendant ltiosence du Camarede DECRElE Artjlc,l.e_LCr. - Pour compte Eo-ffim;Tlnistre de 1a Ministre du Commerce et d Àndré ÀTCHADE.
+Afti*c1-e 2.- Le présent décret sera publié au Journal Officiel .
+Fait à COT'rlr '-, le Président de la République, de lrEtat, Chef du Gouvernement, rd San uT par Chef 4,,t Mathieu Km.EI(OU ÀmpIra,lfpns: PRSC PRPB 4 SGG 4 IqSP-MCT 10 Autres Ivlinisu tères 1J SPD 2 BN 2 UNts-FASJEP 4 DPE-DAJL-INSAE 6 IGE et ses Sectlons 4 DCCT-ONEPI-Gde Chanc. f JORPB 1.
