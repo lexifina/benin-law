@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, Ie 18 DECEMBRE 1997 Par le Président de la République, Chef de l' Etat, Chefdu Gouvernement, Mathieu KEREKOU.- Le Premier Ministre, chargé de la Coordination de I'Action Gouvernementale et des Relations avec les lnstitutions, Porte-Parole du Gouvernement, Le Ministre du Commerce, de l'Artisanat et du Tourisme, Le Ministre du Développement Rural, { HOU Jérôme SACCA-KINA Ampliations: PR 6 AN 4 CS 2 CC 2 CES 2 HAAC ?-PM4 MDR 4 MCAT 4 AUTRES MINISTERES 15 SGG 4 DCF-DGTCP-DGBM-DGID-DGrrDl 5 BN-DAN-DLC 3 GCONB- INSAE 3 BCP.CSM-IGAA 3 UNB-ENA-FASJEP 3 JO 1 DCCT- Adrien HOUNGBEDJI.- A&tb'
