@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à CO'I'ONOIJ, le 27 RE L997 Par le Président dc la RéPublique, Chelde l'Etat, Chef dtt Gouvemement, athieu KEREKOU.- Ampliation§ PR 6 AN 4 CS 2 CC 2 C 2 TIAAC 2 PM 4 MF 4 MPREPE 4 MSPSCF 4 AUTRES MINISTERES 14 SGG 4 DGBM-DCF-DGTCP-D GID-DGDDI 5 BN.
+DAN.DLC 3 GCONB-DCCT-INSAE 3 BCP-CSM.IGAA 3 UNB.ENA-FASJEP 3 INTERESSES 6 JO 1.-
