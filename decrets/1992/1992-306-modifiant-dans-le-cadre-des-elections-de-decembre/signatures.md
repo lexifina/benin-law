@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à COTONOU, Ie 16 Novembre 1992 Président de 1a Républi <iue, e lrEtat, Chef du Gouvernement,
+- ,L, 1_- r l-e eSd Pa Ch Le Ministre drEtat, Secretaire Généra1 à Ia Présidence de fa République, Désiré VIEYRA Le lvlinistre de 1 | Industrie et des Petites et Moyennes Entreprisps, .,tt ili_ ltl" /-/ ,/ Fl-orenti-n MITO-BABA. - M-InIÈEiê EtFiEàiEe Le lvlinistre de 1r Intérieur, de 1a Sécurité et de ltAdminlstration Territorlale Nicéphore SOGLO Le Ministre du Commerce et du Tourlsme, , dÊ('1., <)ÿ/ it' Bernard HOUEGI{ON Le Ministre de la Justice et de la Légi slati on, ,\ Richard AIJÀHO We HOUESSI 4ryrrations. : PR 6 Ar'r 4 cs 2 rEsc,R 4 l.lcT 4 MIpr.{E 4 i,lJL 4 }[ISAî 4 I,MFT 4 }TF 4 SGG 4 DB-DCF-DSDV-DTCP-D] 5 DPË]-INSAN 2 DLC-IGE.DCCT- GCONB 4 UNB-FASJEP 2 ENA-CSi{-DAII-BI..I 4 JORB 1..
