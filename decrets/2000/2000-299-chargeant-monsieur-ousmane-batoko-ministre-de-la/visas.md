@@ -1,0 +1,4 @@
+# Visas
+
+VU VU VU REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE DECRET No2o00-299 DU 26 JUIN 2OOO Chargeant Monsieur Ousmane BATOKO, Ministre de la Fonction Publique du Travail et de la Réforme Administrative de l'intérim de Monsieur Abdoulaye BIO TCHANE, Ministre des Finances et de l'Economie pour compter du 26 juin 2000 LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETÀT, CHEF DU GOWER}{EMENT, La Loi N" 90-032 du I I Décembre 1990, portant Constitution de la République du Bénin La Proclamation le 1"'Avril 1996 par la Cour Constitutionnelle des Résultats définitifs de l'élection Présidentielle du 18 Mars 1996 ;
+Le Décret N' 99-309 du 22 Juin 1999, portant composition du Gouvernement ; DECRETE ARTICLE lER : Pour compter du 26 juin 2000, Monsieur Ousmane BATOKO, Ministre de la Fonction Publique du Travail et la Réforme Administrative, est chargé de I'intérim du Ministre des Finances et de l'Economie pendant I'absence de Monsieur Abdoulaye BIO TCHANE.
