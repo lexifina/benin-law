@@ -1,0 +1,132 @@
+# Loi n° 1994-29 du 3 juin 1996 portant réorganisation de l'Ordre National du Bénin
+
+'t'. îr* tr*ff ÿ REPUBLTQUE DU BENIN PRESIDENCE DE LÀ REPUBLIQUE Loi por tanÈ Na Ei onal 94 - 029 du 03 réorganisaÈion du Bénin.
+uu].n l.vvb de 1'ordre L' ÀSSEMBLEE NÀTIONÀIJE a adopté en ea séance du 23 Déceabre 1994 puis err sa eéance du 28 Mai 1996, suit,e à Ia Décision DCC 95-028 pour la mise en conformièé avec 1a ConEEituÈiorr i Le Président de Ia République prouulgrre la Loi dont Ia teneur suiE :
+CIIÀP] TRE PREMIER DE LÀ DEN NÀTION. DE L'ORGÀNISÀTTON ET DU FONCTTONNEMEN]T Àrt,icle 1er. - L,,'Ordre Natsional .du Bénin est desÈiné à récompenser leE services éminenEs rendus à Ia Nation soiÈ. a titr" civi1, soiE souË les ernêÉ.
+II est doté de ta personnaIité moraLe.
+'l chef de .+ t1 L'0rdre Nat i ona I du Bén in est ta distinction honorifique La ptus éLevée de La Répub L i que du Bénin.
+ArticIe 2.- Le Président de L'Etat accède de pLein droit croix- IL- est Grand ftlaître de IL prend La Présidence du L a Répub I i que, à La dignité de L'0rdre Consei I Nêt i ona L du de L'0rdre Grênd' Béninquand iL l.e juge utiLe.
+Le Président Président de tâ Cour de La Cour Suprême, Le Justice, Le Président L'AudiovisueL et de Ia de t'Assembtée constitutionneILe, Président de La NêtionaLe, te Ie Président Haute Cour de Autori té de Ie Président de [a Haute Commun i cat i on et du Consei L Economique et 0fficier de L SociaL sont é[evés '0rdre Nat i ona I du âu grade Bén'i n dès de Grand Ieur ent rée en fonction.
+Articl,e Hormis Le cas prévu à L'aIiéna 1er de ['articIe.. Z de La présente Loi, Le Grand ChanceLier préside te ConseiL de t'0rdre NationaI du Bénin. En cas d'empêchement ou dtabsencq, iL est remptacé par Le vice-Grend chenceLie., et à défaut par Ie I'4embre Ie pIus ancien dans ['0rdre et dans Ia dignité de Grand'Croi x ou de Grand 0ff icier- T Le Grand de ['0rdre NationaL ChanceLier est dépositaire du Sceau du Bénin- Articte Le Grand représenter en toUtes du Bénin devant toutes ChanceLier a seuL quêLité pour circonstances, L t0rdre Nat.i onaL Les juridictions de L,Etêt.
+IL exerce no t ammen t toutes actions reLatives à t ' A d m i n i s t r a t i o n de [ | 0rdre, aux droi ts et préro9at.i_ ves de ses nembres ainsi que ceLtes ayant pour objet [â gestion et L ,exécut i on du budget de La Grande Chan_ cetIerie.
+Art i c Ie
+5. - Le G rand Chancetier et Ie vi ce-Grand Cnancetier sont choisis parmi Les Grênd'C ro i x de ['0rdre. A titre exceptionnet, its peuvent âtre chois.is pârmi Ies Grands 0fficjers.
+Dans ce cas, ils sont d,office é [evés à La dignité de cnônd'Croix.
+Le Grand ChanceIier et Le Vi ce_Grand Chênce_ Lier sont nommés en Consei L des ll.i nistres pour une période de cinq (5) ans renouveLobIe une seu(e f o.i s, sauf s'iI est mis fin pLus tôt à Leurs fonct.ions en appIication des-. dispositions des artictes 51 er sui_ vants de l-a présente Loi.
+Articte 6.- Le Grand Chancetier reLève RépubL ique, Grand-F1aître di rec tement de Lr0rdre du Président de Ia Nat i ona L du Bén'i n.
+Grand-Haître de L êt re entendu par questions retevant Vi ce-G r and de ttlembre et de toutes Sur invitation du Président de l-a RépubLique, Articte 7.- Les fonctions de Grand ChanceIier et de r0rdre NationaL du Eénin, it peut Ie ConseiL des tlinistres sur Ies de ses âttributions- ChanceLier sont du Gouve rnement, incompatibtes avec ce[[es de L'AssembLée NêtionaLe électives.
+ConseiL de ['0rdre au moins titutêires autres fonctions Articte 8.- Le Consei I de L'Ordre Nêtionat du Bénin comprend Tous tes Hembres du NationaI du Bénin doivent être du grade de Commandeu r.
+(e Grand chanceIier, Prési dent ;
+Le Vi ce-Grand ChanceLier, Vi ce-Prés ident;
+et s ix filembres.
+\ sur ) ArticLe 9.- Les Membres du Consei L de ['Ordre NationaL proposidu Eénin tion du pris en sont choisis par Ie Grand-lilaître, Grand ChanceLier. Its sont nommé s Consei L des Ministres.
+Articte 10.- Sous réserve des dispositions de L'arti- 2 de Ia présente Loi, Le Conse.i L est moitié tous Ies deux ans_ Les membres sortants peu Ven t êt re nommés à nouveau.
+ArticIe 11-- Le Consei L dê Lr0rdre Nat i ona L du G.and Chancetier/ par 0écnet Bénin, étudie cLe 5 aLinéa renouve Lé par réuni sous La présidence du Ies questions reLatives au du Bénin, ôux nominations hiérarchie et veiLle à Lê t'0rdre.
+Z- sur toutfs Le Grand conEutter.
+Statut de [,0rdre Nêtionat ou promotions dans ta discipIine des Membres de Ies questions Pôur tesqueLLes utiLe de Le II donne son avis 1- sur Les senctions di scipt inai res à prendre à [ rencontre des I,lembres de L,Ordre ChanceLier juge En oas de pantage des voix/. ceLl.e du président de séânce est prépondérante, o Articl-e 12.- Les membres de L'0rdre Nationêt du Bénin sont nommés à vie sauf Les cas prévus aux articLes 51 et 52.
+Articte '1 3.- Le Président de La Répubtique procède à toutes Ies nominations et promotions,.
+Conse i L de l'0rdre Nat.i ona I du Bénin.
+par décret après avi s dù ArticLe 1t*.- Les membres de L'0rdre Nat i ona I du Bénin reçoi vent Ies honneurs Les règtements reLatifs séances, honneurs civi Ls du Bénin.
+dans Les conditions fi xées pêr aux cérémonies pubLiques, préet miLitaires en RépubLique ArticLe 15.- L'0rdre NationaL du Bénin comprend Ies DES GRADES INSIGNÈS ET MAN ] ERES DE PORTER LES INSIGNES grades suivants Chevatiers 0fficiers Commandcurs Grands 0ffi ci ers Grand'Croix.
+CHAPITRE ]I Articte 16, - Les Grânds 0fficiers et a Les Grand'Croix du Bénin.
+sont Les dignitai res de t,0rdre NationaL ArticLe 17.- L'insigne de t'0rdre NationaL du Bénin est une étoiLe à cinq branches doubLées de vert ; des rayons sont disposés ent re Les bnanchgs de L'éto.i te.
+I L compo rt e à Lravers, au centre de L,étoiLe, un comportant : une pi rogue chargée de six étoiLes à rais voguant sur des ondes, accompagnée au chef mot i f c i nq d'un arc avec une fLèche en pêLme soutenue de deux .écôdes en sautoir et, dans Le bas, d,une banderoLe portênt la devise "Fraternité
+- Justice - TravaiL,,, êvec à L rentour, [,inscli pt ion ,,RépubLique du Bén jn,,.
+- et au revers un écu coupé au premier de sinopte. au deuxième parti d,or de gueutes, qui sont tes trois couLeurs du drapeau, L,écu entouré des deux pa Imes eu naturel, Les tiges passées en sauto.ir.
+Le rubân mi L Limètres, il. êst un Iiséré rouge de deux L{sérés jaune chacun.
+est moiré, âmarante et 2 mitIimètreS et vert de d'une taageur .de 36 portg en son centre de Iarge encadrÉ par mi LLimètre de Iarge a d'0fficier ArticLe 18.- Les insignes de Chevalier sont portés La poitrine.
+mètres.
+Les comporte au suspendus êu Le di amèt re ruban sur Le côté gauche de est de 45 mitLiruban d'0ff i cier r ayon s sont en i'insigne vermei L- Le de centre une rosette- Articte
+19. - Les Commandeurs portent ta décoration de ChevaLier en sautoi r, ['insigne est i dent i que à cetui mais mesure 60 miLLimêtres ruban moi ré de 36 mi Ltimètres de d i amèt re, attaché à un de Largeur- Articte 20-- Les droit une plaque g rands 0fficiers portent sur te côté de q u a t r e - v i n 9 t - d i x (90) mi LLimètres sur IaquetLe Les rayons de L'insigne sont diamantés.
+Les détenteurs portent en outre La de Commandeur en sautoi r comme indiqué c i -des sus.
+Croix ArticIe 21 .- L'insigne de Grand'Croix à ceLui de Chevatier mais a un diamètre est identique de 70 miIL'i mètres.
+IL est attaché èu bas d'un ruban Large de 10 centi.mètres aux couLeurs de [ '0 rdre porté en écharpe passant sur ['épauIe droite.
+Le détenteur porte., en outre. sur l,e côté gauche tê pIaque de G rand 0f f iÇier.
+Articte 22.- Le Grand CotLiel. est une chaîne en or du modète déposé à La Grande ChanceLterie au bout de IaqueIte est suspendue par une béLière La Croix de Grand-l{aître, sernbIabLe à cetIe de Grand'Croix, mâ.is drun diamètre de 90 mi ttimètres.
+cérémon i e Itlaître de te Grand Le Président de La de son investiture, L '0rdre par Ie Grand CoItier en prononçant RépubLique, Iors de l.a est re connu comme Grand- Chancetier qui Iui l^emet Ies parotes suivàntes:
+"flonsieur Vous reconnai ssons tionâL du Bénin".
+Les cas échéant, par Ie Grand Ie Président de La comme Grand-lyaître Répub L i que. Nou s de t'0rdre Nainsignes de remi s âvant ChanceIier- Grand'Croix La cérémonie Lui sont, Le d'investiture, ArticIe )7 Les insignes de fornêt réduit, eu.i se portent sur te revers gauche du costume civiL de céré_ monie ou sur La tenue tred.itionneIte d,appa ra t / doi vent être La reproduct i on exocte des i ns i gnes régtementêires.
+La Iarger.rr du ruban et Le diamètre Te L,ins,l gôê ne doi vent pâs êt re inférieurs à un (1) centimètrc.
+Art.i cLe 24.- La barrette est aux couteurs de ['0rdre d'une un rectangLe de ruban Longueur éga Le à [a Iar- Les 0fficiers 'It couLeurs nâtionaune pet i te rosette aux Commandeurs une rosette geur du ruban et de se porte sur t'uniforme un (1) cent i mèt re de hauteur qui mititaire.
+ELIe comporte en ptus en son miLieu pour Les ;
+de 15 pou r Les Les Grands sur noeud ôrgent 0f f i c i e rs, une rosette sur noeud Ies Gnand'Croi x une argent, moitié sur no eud or.
+or et pour mitIimètres ;
+pou r mo i t i é rosette AEticLe 25. - Les rubans et rosettes sur pi c k-up seuts se portent sur Ia tenue de vil.Le à La boutonnière ou sur Ia tenue trêditionneLIe, ruban pour Chevatiers, rosette pou r 0fficiers, rosette sur noeud a rgent pour Commandeurs ; rosette sur noeud dont Ia Longueur est moitié argent, moitié or pour Les Grands 0fficiers, rosette sur noeud or pou r tes GrandrCroix.
+ArticLe ?5 bi s.- Les modètes de chacun des 'ins'rgnes l'0rdre sont déposés à ta Grande ChanceLLerie de National, du Béni n - {Éa.'irt4i.EttlFir':.
+*....r+Y:4F-'lJl.al-s *erî.
+CHAPITR E III DES AD ISSIONS ET ArticLe 26.- Les admi ss i ons PROIiIOTIONS DANS L'ORDRE ATIONA L et promotions à titre normaL, dêns l'0rdre exceptionneI Nat i ona I du Béni n ont Iieu ou à titre pos thume.
+Section I D E LA flOMINATIO N A TITRE NORI{AL Articte Les nominations à titre nonmaL sont pronon_ 7.- cées dans La Limite des contingents annue I s inscription sun un tab Leau de concours séparé didats civits et miIitaires et dont Ia durée est de droits tnois ans pour ce qui concerne L'extinction des de candidature.
+Les inscriptions au tabIeau de concours sont constatées par déc ret pubtié au JournaL Of f iciel,.
+ArticLe 28-- Le nomb re totaI des décorat ions attribuées et après des candans une promot I ôns fixées êux année, compte non tenu des nominations et fa i tes hors cônt ingents dans Les. conditions articLes Z et 35 de La présente Loi, ne peut ex céde Ê DU BENIN C i nquante (50) Cheva Liers, Trente (30) 0fficiers, Vingt (20) Commandeu rs, Six (6) Grands 0f{iciers, Deux (2) Grand'Croix.
+ArticLe ?9.- Hormis tes cas prévus êux articIes 2 et ArticLe
+30. - Pour être nommé au grade de ChevaLier, 31, aucun c i toyen béninois NationaI du Bénin dans un ChevaLier.
+i L f aut être droits civiques ne peut accéder grade supérieur à à ['0rdre ce Lu'i de et compét ence f anct ions puêt re de nationaLité béninoise, ou, à défaut, être proposé discrétionnai rement par Le Président de La RépubLique en Consei I des Irlinistresi être âgé de 30 ans révotus de [ 'année de sa candidature au 1er Janvier dè bonne moratité et jouir de ses avol r exerce avec distinction moi ns des pendânt 10 ans ou bIiques ou pnivées.
+Articte 31.- peuvent que Les et de Commandeur tant au minimum cinq (5) t) être p r omus au grêde d'0fficier ChevaLiers ou 0fficiers compans dans Leur grade.
+Ne Ne peuvent être éLevés à La dignité de Grand et Ies du des 0ffi ci er ou de crand'Croix que Grands 0fficiers comptant au dans Leur grade ou dignité.
+minimum trois (i) ans tes Comnandeurs L '0rdre NationaL doi t récompenser dé j à recornpensés.
+ArticLe 32.- Lravan6ement dans Bénin n'est pâs êutomatique ; it méri tés nouveaux et non des mér.ités Articte 33.- Les nominations et p romot i on s sont faites fois t'an, Le 1er Août/ jour de t:a et, sur proposition du président de toute autne date fixée pàr décret des llinistres, apràs avis du Conseit toutefoi s que Le nomb re des occasions en principe une Fête NationaLe/ Ia RépubLique, à pris en ConseiI de [ | 0rdre, sans de nominat.i ons ou deux dans [,année.
+Font exception au présent tions prévues aux articLes 2 et 34 promotions à titre normaL excède articte, Les de Il pnésente décora- Loi.
+Sect'ion II 1L DE LA NOMINATION A TITRE EXCEPTIONNEL ArticLe tenir compte des 3t--- Sont attribuées c ond'i tions hors cont i ngent s ou sans d'anc i enneté et par dérogêtion aux articLes 28,29,30.31 et 33 1") Les déco rat i ons accordées aux Chefs d'Etat ét range rs / ainsi qu'aux personna I ités des pays amis, aux memb res des Missions DipLomatiques, des 0rganisations et Associ at i ons I n t e r n a t i o n a L e s , aux Hembres de L'Assi stênce Techn ique ;
+Zo) Les distinctions nécompensant Ies exceptionnets dûment constatés, soit dans ta PubLique, soit dans La pratique prof ess'i onnette en temps servrces Fonction privèe.
+graves d'autre et Les 3") [es distinctions récompensant d 'une part, de guerre, Ies actions d'écLat, Ies bLessures sur Les théâtres d'opér'ations miLitaires, et part, en temps de paix, Les actes d'héroisme se rv i ces ex cept i onne I s ne t t eme nt ca ra c t é ri sé s ' Les ProPositions sont formuLées Pâr Les doivent préci ser dans un ou Ies faits excePtionneIs décoration.
+au titre du Présent articLe Èlembres du Gouvernement qui repport spéciaI tes titres justifiant L'octroi de La Artic(e 35.- Section III DE LA NO14 INATIO N A TITRE POSTH UIIIE Les nominations et promot i ons NationaI du Bénin à tit.e posthume prononcées dans Ies même s condi t i ons pou r dont Ia conduite aurê justifié [a honorifique.
+Les propositions au titre sont formutées conformément aux ['articte 34.
+dans I r0rdre peuvent être L es pe rsonnes di st.i nct ion du présent articIe dispositions de CH AP ITRE TV D S 14ODALITE S DE NOMINA TION Articte 36 .- Le Prés i dent de La Répub L i que, Ie président de t'Assemb[ée NationaLe, Le prés i dent de La Cour Cons_ titutionneLIe, te président de la Cour Suprême, l.e Prés i dent .du Consei L Econom.i que et Sociat, te président de ta Haute Autorité de L'AudiovisueI et de La Communication, Les Membres du Gouve rnemen t adressent Lêurs propositlôôs au Grand Chancetler de IrOrdre NationaL du Bénin une fois par an, au p t'us tard quatre (4) mois âvant La fête du 1er Août.
+,D Les responsabIes de ces différentes Institut'ions peuvent proposer des Agents recrutés di rectement ou en position de détachement servênt sous Ieur autorité.
+Les Membres du Gouvernement, et des autres lnstitutions de L'Etat, Les é[us nationaux ou Iocaux ne peuvent être proposés qu'à Lê f in de Ieur fonction ou mandêt.
+Tout ef oi s, à La Nat i on avênt êt re proposés.
+pou r Leur Ies services éminents rendus éLection, Les intéressés Peuvent ArticLe 37.- Toute proposition est accompagnée d'un mémoire exposant tes mérites exceptionneLs qui Ia justifient, Les renseignements sur t'honorabi Lité et ta moraLité de L'intéressé ainsi qu'une fiche individueLLe d'EtatCiviL, un buLletin no 2 du Casier Judiciaire datant de moi ns de trois mois.
+Articte Les Ie 6rand Chancetier propositions sont communi quées pâr aü conse i L de L'0rdre qui :
+1o- vérifie si ces propositions de nominations ou de promotions sont faites en conformité des Lois, décrets et règLenents en vi- 9Ueur ;
+2o- peut fa ire procéder à une enquête comp Lémenta i re ;
+30- se p ronon c e sur Ia recevabi L i té des propositions en conformi té êvec Les principes fondanentaux de t'0ndre.
+Articte 39.- Le Grand ChanceLier prend Les ordres du Grand tilaître et Lui soumet tes propositions des Membres du Gouvernement et des autres Institutions accompagnées de Itavis du ConseiL de L 'Ordre portant décLarat.i on de conformité au, Ie cas échéant, Les observations qui ont justifié [es rejets.
+IL fait ensu.i te préparer Ies projets de décl"ets.
+Articte 40.- Les nom inations ou promotions aux différents grades et dignités de L '0rdre NationaL du Bénin sont faites par décrêt pli s pêr Ie p.ésident de La RépubIique, Grând-tqâîtne de t_'0rdre Nat-ionaL du Bénin, après avis du Consêi L de Lr0rdre.
+ArticLe 41.- Les décrets de nom'inations sont insérés ta) sommê i re des au JournaL 0fficieL servi ces récompensés L'indicêtion de ta date ou de promotions êvec La mention et, pour chaque de La réception promotion, de dans Ia dignité ou dans Le graCe précédent- C:IAPITRE V DE LA RECEPTJON DANS L I ORDRE NATIONAL DU BENIN ArticLe 1?.- Les Grand'Croix et Les Grands 0fficiers reçoi vent Ieurs La Répub L i que, au récipiendaire 'i nsignes des mains du Grand ltlaître de L'0rdre Ies parotes suivantes :
+Frés i dent de qui adresse en vertu des vou s étevons 0fficier de "Au nom .du PeupLe Béninois et pouvoirs qui nous sont conférés, nous à Lê dignité de Grand' Croix ou de Grand L'0rdre nat i ona L du Bénin".
+Chancetier ou Ie Toutefois, en cês Vi ce-G rand réceptions.
+d'empêchement, Le c h a n c,e I i e r e s t Grand déLégué pou r procéder à ces 1,c ArticLe remi s t i ona I membPe ayant Grand ét nangers dent de dans tous du Bén i n.
+Les i ns i gnes des aut res g rades peuvent être aux récipiendai res pêr un membre de [,0rdre Na_ du Bénin d,un grade au moins égaL à celui du qu'its auront choisi pour parrain, Ieur choix été entér-iné par Le Grand ChanceL.ier ou Le Vice_ ChanceLier.
+L--s lrlinistres et Ies préfets peuvent, sur autorisat.i on du prés ident de la Répub L i que, prccé_ der aux réceptions des ChevaIiens, Of f iciers et. Commê n_ deurs, dans le ressort de Leur. département ministérieL ou de Ieur ci rconscription administrative.
+ArticLe 44. - Les Chefs de 14ission en poste dans Les pays peuvent éga Lement être Cé Légués par Le prési_ La RépubLique pour procéder aux récept;o).,s Ies grades et dignités de L'0rdre Nationat Les so Lenni té et avec de L'0rdre NationaL récept i ons doi vent s,opérer toute La digni té qu,exige Le du Bénin.
+âvec Ia prestige En récipJendaire circonstance,iL parotes suivantes es,t adressé au Ia Les "Au nom du Prés i dent de Ia Répub I i que, Grand flaître de t'0rdre, et en vertu des pouvoirs qui llous sont conférés, Nous Vous faisons Chevatier, Officier ou Commande-ur de ['0rdre NationaI du Bénin".
+It Lu'i est remis L'insigne et Le brevet, et iL l.ui est donné ['accoIade- En ce qui Ie est La suivente È1aître de ['0rdre, et en vertu sont conférés, Nous Vous é Levons 0fficier ou de Grand'Croix de Bénin." concerne les dignitaires, Ia formu- "Au nom du Président de Ia Répub L i que, Grand des pouvoi rs qui Nous à La di gni té de Grand Lr0rdre Nationat du Articte 15.- Les miIitaires et êssimiLés sont reçus d'une ou I a dans Les mêmes fo rme s que ci-dessus mais prise d'armes Iors d'une revue devant formation à taqueLLe iLs appartiennent.
+au cours Lrunité At.t'icLe 46.- IL est adressé au Granr, toute récept i on portant et de La personne qii ChanceIier un Les signatures a procédé à procès-verba I de du récipiendai re ta réceptionpar Ie cetier de ce reçoi t da i re.
+Toutefoi s, Lorsque Les i ns i gnes ont été remis Prés i dent de La Répub L i que ou par Le Grand Chan_ de [ '0rdre Nat i onê L du Béni n, aux Iieu et pLace procès-verba t, i L est étêbL.i un cer^ti f.i cat qui La signature du Grand ChanceLier et du r.écipien_ ArticLe 17.- Nut ne peut porter tes ins.ignes, Les IL est procédé à cet enregistrement à titre rubans/ [es barrettes ou les rosettes de l,0ndre NationaI du Bénin sans cérémonie de réception dens L'ordre, dans Le grade ou La dignité, et sans enregi strement par ta Grande ChanceLLerie.
+9racreux.
+ArticLe 48, - Des brevets, revêtus de La signature du Président de la RépubLique, Grand frlaître de L,0rdre, et contresignés du Grand Chancetier, sont dél.ivrés à tous les tïembres, nommés ou promus dans L,0rdre Nationat du Bénin.
+ArticLe 49. - IL pou r ['exécution gnes, des d.oits perçu pâr la Grênde ChanceLLerie hrevets st La o"'uo.ion des insi- ChanceLIerie dont Le montant est en Consei I des M.inisrresest des de f ixé par décret pnis Articte 50.- Sont exempts décorées êu des Droits titre de de Chancetterie ['ar-ticLe 35 et Les personnes Les indigents- DE LA DISCIP!-INE ET DES SANCTIONS PENALES CHAP]TRE VI pe r sonne qui a perdu La nationaLité béni noi se peut être excIue de 'Cette exctusion est de droit de Ia nêtionaLité béninoise.
+1o- Les personnes 2o- Les personnes pri sonnement du Bénin Arti.te 51.- Toute ['0rdre Nat i onê L du Bénin.
+dans Ies cas de déchéance Articte 5?.- Sont excLues de ['0rdre Nat i ona L ciu Bénin:
+condamnées condamnées pou r cr'rme rleure a un ên- Peuvent être excIues de L'0rdre Nêtionat à une peine d'emégaLe ou supésans surs t s I e s pe. s o nn e s d'emprisonnement à un an ;
+conda,ïnées à une pelne inférieure sans sut's1s Articte 53.- Le port Béni n est Les personnes condamnÉes pour un âcte cont ra i re à t 'honneur et à La prob.i té.
+Nat i ona L du i L l-égaL pun i à deux Francs ment de six (6) de 50 000 à 500 peines seuLement.
+Articte 51.- des insignes de t'0rdre drune peine d,empri sonne- (2) ans et d'une :mende ou de Lrune de ces deux mor s NationaL dans un cant ites tracts de de de 1 à du but IL est interdit êux membres de Bénin de se prévaLoir de. cette de récLame à des fins financières ['0rdre qua ['i té e t ,Tt e cet ta.
+sur tous prospectus/ annonces commerciates, documents s imi Lai rg5, sous peine drune amen_ 000 à 200 000 Francs et d,un emprisonnemsnt moi s ou de L,une de ces deux peines seutement.
+Ant'icte
+55. - Le Min istne chal.gé àu Grand jugements rendus en matière netIe concernant tes membres Bénin.
+Artic ChanceIier des copi es de Ia Justice transmet de tous Ies arrêts et crirninetLe et de Ir0rdre correction- Nat i ona L du l.e 56.- Les Préfe t s qui, dans [,exercice de {.eurs fonctions, sont informés de faits grâves de naru.e à entraîner contre un membre de [,0rdre NetionaL c,u Bénin, L'âppLication des d,ispositions des articLes 51 à 54 doivent en avi ser Ie Granrl ChanceLier de L,0rdne NationaL du Bénin.
+Les Chefs de Hission ')L éga Lement, par L'intermédiai re Affaires Et rangères, aviser Le faits qui auraient été commis Grand ChanceLier desdits DipLomat i que doivent lrlinistre chargé des Grênd Hêître sont pubLlés du des Béninois ou des Etrangers Nat iona I du Bénin.
+en pêys étrangers par membres de ['0rdre de ['0rdre Nat i ona t du Bénin au Pré s i dent de La Répubtique, Nât i onê L du Bénin, Les mesures Articte 57-- Le ConseiL a seuI quatité à proposer Grand-ltlaître de ['0rdre di sc i p I i na i res sui vantes La censure Ia suspension La rétrogradat ion ['excLusion, La procédure de sanc t i on discipLinaire suivie devant Le ConseiL de L'0rdre Nationê[ du Bén.i n ést déterminée par décret.
+ELLe est obLigêtoirement contradictoire.
+Articte 58.- Les mesures disciptinai res- sont prononcées par Déc ret s du Prés i dent de Ia RépubIique, de t'0rdre Nât'ionsL du Bén i n. Ces décrets au Journa[ 0fficieL.
+I cr,l m'l neIte de Ir0rdre ne peut Nat I ona I être exédu Bénin Articte .- Aucune peine cutée contre un membre quraprès sa dégradation.
+pour cette dégradation, Ie président de ta Cour drAssises, sur réquisition du lrt jnistère pubLic, prononce imnédiatement après tecture de t'arrêt Ia formute sui vante :
+"Vous avez manqué à t r0rdre NationeL du l'lembre".
+L I honneur je déctare au non de d I en êt re Bénin que vous avez cessê CHAPITRE VI I DE LIADI,IINISTR AÏION DE L I ORDRE NAT I ONA L DU BENIN Articte
+60. - Le Secrétai re Administretif de La Grande Chancetterie est nommé parmi Ies fonctionnaires de ta Catégorie A par décret pris par Ie président de Ia Répubtique, Le Consel I des t*linistres entendu. II dirige sous La haute autorité du Grand ChanceLier l. ' A d m i n i s t r a t i o n centra Ie de Ia G r ande chanceLIerie.
+IL peut 'êt"e a"sisté d'un Adjoint, .A I I II assure Le Secrétariat du consei L de L'Ordre NationaI du Bén1n et trorgnnlsat{on mêtérieu-e des Serv'l ces de t | Â d m I n I s t r a t 1 r: rr rln Ia G rande Chance .erie. ArticLe 61.- Les drolts de ChàncetIerie prévus à L'articte 49 pour L'expédlt.l on deg brsvets et Ia cession des insignes sont perçus dlr.actement pâr Ie Djrecteur de ['Enreg istrement, des Domâines et du Timbre pour te compte de (a Grande ClranceLterle. La remise ou Irenvoi desdlts brevet s et ltrrignes ne peut être fait quraprès versement de c.es dro'i ts et au vu du récépissé Ie constatant par Ie Gnand ChanceIier de L'Ordre NationaL du Bénin.
+CHAPITRE VIII DU PATRONAGE DES INSTITUTIONS DIVERSES Articte 6?.- L ' A d m i n i s t r a t i o n de ['0rdre du Mér'i te 1"1érite Sociat, du [1érite Ag li cote et de subsidi a i res exlstants ou à créer est La G r ande chancelIerle de [,0rdre NationaL du Bénin, du tous 0rdres assurée par du Bénin.
+différents par déc ret articte 63.- Torrtes Ies noninatlons oxistants ou à et promotions aux crécr sont faitEs de Ia Répubtique2 0rdres pris pâr Ie Pnésldent ..t.
+Grand Haître de ['0rdre après avis du Conse i L de L,0r_ dre NationaI du Bénin.
+CHAPIlRE IX D E S D I S PO S I T I O NS DIVERSES n Articte Toute personne nommée ou promue dans Les dispositions des Lois no g6-010 du t r0rdre NationaL du Dahomey et/ou dans I rOrdre NationaI de Ia Répub I i que popuIaire du Bénin conformément aux [égisLâtions antérieures, conserve sa décorêtion.
+Le rectassement de toutes tes personnes admi_ ses dans ces 0rdres Nat.ionaux est f a.i t automatiquement à concordance de grade et de dignité dans [,0rdre NationaI du Bénin sur demande des intéressés, par décret du Président de La RépubIique, Grand l,4aître de [,0rdre.
+Le Décret est pubLié au Journal 0fficieL.
+ArticIe 65,-
+66. - Répub l- i que en que de besoin Ioi - Articte Des décrets pris par te président de La Consei I des t4inistres f .i xeront en tant Ies modatités d,appticâtion de Ia présente 26 Févr i er 1986 portant création de [ ,Ordre NâtionaL du Bénin et Nô 8l-O1Z du 21 Septembre 19g7 modifiant La Loi nc Eé-010 du 26 l.évrier 1 ggé sont abrogées.
+4u...'t Àrticle 67.
+La présente loi sera exécutée comme loi de 1' Etat.
+Fai t. à COTONOU Ie 0 3 ,fuin 19 9 6 Pâr 1e Président de 1a République, Chef de 1'EEat, Chef du Gouvernement, thieu KEREKOU.
+Le Premier Ministre, -ôhargé de Ia Coordination de l,Action GouvernemenEale eb. des RelaEions awec les Ins ti tutions, ÿi r.r h, Maître Àdrien HOT'NGBEDJI Le carde des Sceaux, Ministre ,Justsice, de 1a l,égislation et Droits de 1'Homme, de Ia des Le Mini s Ère dee Finances, NS \A-5 IsmaëI TI JÀNI ÀlnpliatiorrE : Éa 6 Àïhres Mini s t ères GEONB -DCCT - IN SÀE 3 Mo ÀN 4 CS 2 CC 2 CES 2 HÀÀC 2 PN 2-MJL 15 SGG 4 DGBM-DCF DGTCP -DGID - DGDDI 5 BCP-CSM.TGÀÀ 3 UNB-ENÀ-FÀSJEP 3,JO 1
+4. MF 4 BN.DÀN-DIJC 3 gERPOS
