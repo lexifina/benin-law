@@ -1,0 +1,12 @@
+# Décret n° 1997-09 du 8 janvier 1997 portant approbation du Bilan et des comptes annexes exercice clos au 31 Décembre 1995 du Centre d'Action Régionale pour le Développement Rural de I'ATACORA
+
+J A/S REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE DECRET No 9z-9 DII 8 JA[vtER 1997 portant approbation du Bilan et des comptes annexes exercice clos au 3 I Décembre 1995 du Centre d'Action Régionale pour le Développement Rural de I'ATACORA.
+LE PRESIDENT DE LA REPUBLIQUE, CFIEF DE L'ETAT, CHEF DU GOI.IVERNEMENT, VU la Loi N" 90-32 du l1 Décembre 199O portant Constitution de la République du Bénin ;
+VU la Loi N" 94-OO9 du 28 Juillet 1994 portant création, organisation et fonctionnement des Offices à caractères social, culturel et scientifique ; VU la Proclamation le ler Avril 1996 par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du l8 Mars 1996 ;
+VU le Décret N" 96-128 du 9 Avril 1996 portant composition du Gouvernement VU le Décret N"91-3O1 du 31 Décembre 1991, portant attributions, organisation et fonctionnement du Ministère du Développement Rural ;
+VU le Décret N' 96-241 du 2l Juin 1996 portant attributions,organisation et fonctionnement du Ministère du Plan, de la Restructuration Economique et de la Promotion de I'Emploi ;
+VU le Décret N" 91-3 lO du 31 Décembre l99l portant approbation des Statuts des Centres d'Action Régionale pour le Développement Rural (CARDER) ;
+SUR Rapport conjoint du Ministre du Développement Rural et du Ministre du Plan, de la Restructuration Economique et de la Promotion de I'Emploi ;
+Le Conseil des Ministres entendu en sa séance du 02 Janvier 1997 ;
+DECRETE Article ler : Sont approuvés le Bilan et les comptes annexes exercice clos au 3l Décembre 1995 du Centre d'Action Régionale pour le Développement Rural de I'ATACORA tels qu'ils figurent en annexe à ce Décret.
+Article : Le présent Décret sera publié au Journal Officiel.- par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Premier Ministre, chargé de la Coordination de I'Action Gouvernementale et des Relations avec les Institutions, AdTienIIOIJNGBEDII Fait à COTONOU, le e JÂrvrEt 1997 I Le Ministre du Plan, de la Restructuration Economique et de la Promotion de I'Emploi, Le Ministre du Développement Rural, I Jérôme SÀCCA KINA Ampliations : PR 6 AN 4 CS 2 CC 2CES2 HAAC 2PM 4 MPREPE 4 MDR 4 AUTRES MINISTERES 15 SGG 4 DGBM-DCF-DGTCP-DGID-DGDDI5 BN- DAN-DLC 3 GCONB-DCCT-INSAE 3 BCP-CSM-IGAA 3 LTNB-ENA-FASJEP 3 JO 1.- z
