@@ -1,0 +1,5 @@
+# Visas
+
+.nl!lT - REPUBLIOIIE DU BENIN PRESTDENCL DE I.A, REPUBLIQUE DECRET N. 92-21 2 du 06 Aott 1gg2 portant ratification de lrAccord de Crédit N' 2144/BEN relatif au financement du Projet de Gestion des Ressources Naturelles, signé le 9 Avril 1992 à WASHINGTON entre La République du Bénin et lrAssoclation Internationale de Développeruent (AID ) .
+I,E PRESIDENT DE IA REPUBLIQTJE, cllEF DE LrEÎAT, CIIEF DU GOWERNEI'{ENT, VU Ia Loi No 90-012 du de 1a République du w W Bé Décembre 1990 portant Constitution nIn , la Loi No92416 du 1J Juil1et, 1992 autorisant la ratification de lfAccord de Crédit No 2f44/BEN relatif au financement du Plojgt de Gestion des Ressources Naturelles, sigrré 1e 09 Àvrll 1992 à WASHINGTON entre Ia Répubtique du' Béàin et 1rÀssociation fnternationale de Dévèloppément (.4.m) ;
+Ia Décision No 91-d+2/HCR/pT du J0 Mars 1991 portant proclamation des résuftats définitifs du deuxième tour des él-ections présidentiefles du 24 Mars 1991 i VU le Décret No 91-176 du 29 Juiftet'1991 du Gouvernement I portant composition DECRETE
