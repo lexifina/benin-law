@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cobonou, le J In:,ri iir.)ol Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le garde des sceaux, Ministre de Justice, de la Législation et des Droits de l'Homme, Jose p I{. GNONLONtrOU Le Ministre de la Santé Publique, Le Ministre d'Etat, Chargé de la Coordination de l'Action Gouver:nementale, du Plan, du Développement et de la Promotion de l'Emploi, Bruno AMOUSSOU.' Mathicu KtrRIiIKOU.- Le Nlinistre de I'Education Nationaie et de la Recherche de l'Homme, Scientifique, I)arrien Modéran Zinsou ÀI-A SSA..
+Le Ministre Finances et I t--.' S cle 1' t€, Marina d"ALMEID MASSOUGBODJI.- Âb doul c I-IANI' Le Ministle de l'lntér'ieur, dc la Sécurité et de I'Administration territoriale, I DanielT^WEMA.- AMPLIATIONS : PR 6 AN 4 CS 2 CC 2 CI]S 2 HAAC 2 MECCAG-PDPE 4 MSP 4 MFE 4 MENRS 4 MSP 4 MISAT 4 AUTRES MINIST]IRES 13 SGG 4 DGBM-DCF.DGTC}'-DGID.DGDDi 5 BN DAN-DLC 3 GCON]]- DCCT INSAE 3 BCP.CSM.IGAA 3 UNB I'NA.FASJEP 3 JO i..
