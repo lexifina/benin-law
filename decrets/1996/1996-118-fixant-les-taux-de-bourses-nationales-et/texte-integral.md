@@ -1,0 +1,22 @@
+# Décret n° 1996-118 du 2 avril 1996 Fixant les taux de bourses nationales et avantages matériels accordés aux Enseignants de I'Université Nationale du Bénin en formation à l'Etranger
+
+REPUBLIOUE DU BENIN PRESIDENCE DE LÀ REPUBLIOUE DECRET N" 96-118 du 2 Àvril 1996 Fixant les taux de bourses nationales et avantages matérie Is accordés aux Enseignants de I'Université Nationale du Bénin en formation à 1'Etranger.
+tE PRESIDENT DE LÀ REPUBLIOUE, CHEF DE I, IETÀT, CHEF DU GOUVERNEMENT, Vu la Loi n' 90-032 du 11 Décembre 1990, portant constitution de Ia Républ j.que du Bénin ;
+Vu Ia Décisj,on n' 97-O42/llCR/ PT du 30 Mars 1991, portant proclamation des résultats définitifs du deuxième tour des élections présidentielles du 24 Mars L997 ;
+vu la toi n" 86-021 du 26 septembre 1986, portant Loi organique relative aux Lois de Finances ;
+vu la toi Loi de n' 94-020 du 16 Décembre 1994, portant Finances pour la gestion 1995 ;
+Vu la Loi n' 95-013 du 26 Septembre 1995, portant Loi de Finances Rectificative pour l-a gestion 1995;
+vu le Décret n' 84-264 du 2 Juillel L984, fixant les taux de bourses nationales et avantages matériels accordés aux Etudiants, Etudiants- Stagiaires, Àgents Permanents de I'Etat et aux Personnels Militai-res en f orrnation à 1'étranger ;
+vu le Décret n' 92-57 du 06 Mars 1992, portant adoption de la nomencLature du Budget Général de l'Etat ;
+vu Ie Décret n" 94-223 du 12 JuiIIet 1994, portant création, composition et fonctionnemênt de Ia Commission Nationale d'Àttribution des Bourses de stages ;
+Vu 1e Décret n' 95-381 du 22 Novembre 1995, portant composition du Gouvernement ; Le Conseil des Ministres entendu en sa séance du ler Àvril 1996.
+DBCRETB ÀRTICLB 1BR : Les taux de bourses nationales et avantages matérie1s accordés aux Bnseignants de 1'Université Nationale du Bénin en formation à 1'étranger sont fixés conformément aux indications du tableau ci-joint 6n annexê, suivant les pays d'accueil.
+Sur proposition du Ministre des Finances ;
+ÀRTICLB 2 : Les Ensêignants de I'Université l{ationale du Bénin en stage à 1'étranger consêrvent Ie bénéfice de leurs salaires pendant tout€ Ia durée de leur formation, conformément aux textes en vigueur. ÀRTICLE 3 : Les Enseignants de l'Université Nationale du Bénin bénéficient uniquement de lêurs salaires Pendant Iês vacanceÊ ou le séjour de recherche au Bénin.
+ÀRIICLE 4 : Le Ministre des Finances, le Hinistre dê 1'Bducation l{ationale, Ie Ministre de Ia Fonction Publigue et dle Ia Réforme Administrativê et Ie MiniËtre du Plan et d€ Ia Restructuration Economique sont chargés, chacun en ce qui le concêrne, de 1'exécution du présent Décrêt' ÀRTICLB 5 : Le pré6ênt Décret, gui prend effet Pour compter du 1er janviêr 1995, sera enregistré êt publié au Journal officiel de Ia République du Bénin.
+Fait à Cotonou, 1ê 2 Avr1l 1996 Par le Président de la Bépublique, Chef de I'Etat, chef du Gouvernemênt, Nlgéphore-sqglg. - J /"2,4r4 ---4.
+Lo !.llnlstre du Plan et de 1a R e I tnuc tur: at lon Econoûlque ' Robert TAGllOll. - Le Uinlstre de 1'Ealucat lon N at 1onale ' Karln DRAIIANB, - AEp 1l at lon s PRSAN4CC 16 SCG 4 AUTRES MINISTERES DBED IT UNB 20 DIFOPEC 2IGF Le MlnlBtre des Financea' PauL DOSSOU. - I Le Minlstre Publique et Ia Fonctlon 1a Béforme de de lve, Admlnlstra Z 1ué ORA- AROU. - 2CS2 14 DGB!.1 2 CCON B CES CF HAAC 2 MF.MPRE-MEN-MFPRA 2 DGTCP 2 INSAE 2 DCRE 4 JORB 1. - t"\ ANNEXE PAYS DE FOFMATÏON i coNrENu DE LA PAYS DIATRIOIJE SU3. SAHARIENNE tous les trois nns PAYS DIAFRTOUE DU NO ?5 000 F gFA tous les ans !=-=-=-=-=-=-=-=-=-= -=-=-=-=-!:-=-=-=-=-=- 120 000 F cFA 150 000 F cFA llensuelle Voyage pour les racances au ENïN Franchlse Adninistratlve à Ia flo de la forratlon VOYAGE 100 000 F cFA tous }es trois ans 50o Kg ou l rJ n, par bateau ou 125 kg par Avlon au maxlm.tno à transporter. Les excédents ne seront pas prls en cbarge.
+N.B. La durée total,e de la foruation dolt être au Doi:lrg égale à O9 mo1s.
+Blllet dravlou ALLER-RE1PUR DU m{IN AU LIEU DE FORMATION à Ia charge du hrdget Natlonal.
+N.B. 3 Les Frals d t lnscrtptlon - Frals de fortatlon - Les oeuvne s lJ:nlversltalres ;
+6t Assurances sont pris en charge par 19 SENIN ea fonctl.on de la rÉglernentatlon '-=-=---=-o-::=:1*:::-13:-:31i=:3ï-I::::=:!*y:=-=-É-:,.-=,=-=-E-=-=-=-=-r-=-=-=-=-=-=-=-=-=4,-=-=-È,- Prenière n1se drEqulpement payable en une fols au départ en formatioa PÀYS DIEUROPE OCCIDENÎALE ET DTAI,IERIQUE 400 000 F cFA 75 000 F crA
