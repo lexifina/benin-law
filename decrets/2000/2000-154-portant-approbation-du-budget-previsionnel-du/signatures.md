@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 29 Mars 2ooo Par le Président de la République, Chef de l'Etat, Chef du Gouvemement, Le Ministre tat, chargé de la Coordination de l'Action Gouvemementale, du Plan, du Développement et de la Promotion de l'Emploi, Le Mini sFi ces et de I'Ec 1€, Le Ministre des Travaux Publics et des Transports, ourou ATTIN.- Ampl tions : PR 6 AN 4 CS 2 CC 2 CES ZHAAC 2 MECCAG-PDPE 4 MFE 4 MTPT 4 AUTRES MINITERES 16 SGG4 DGM-DCF-DGTCP-DGID- DGDDI 5 BN.DAN-DLC 3 GCONM-DCCT-INSAE 3 BCP-CSM-IGAA 3 UNB-ENA-FASJEP 3 JO1.- DECRETE Mathieu KEREKOU.- Bruno AMOUSSOU.- __-4 zr-oaa,'/ , Abdoulaye BIO-TCHANE.-
