@@ -1,0 +1,9 @@
+# Décret n° 1979-53 du 14 mars 1979 chargeant le camarade Issifou BOURAIMA, Ministre de la Santé Publique, de l'intérim du camarade André ATCHADE, Ministre du Commerce et du Tourisme pour compter du 16 Mars 1979
+
+REPUBLTOUE POPULAIRE DU BENIN PRESIDENCE DE LA REPUBLIOUE LE PRESIDENT CHEF' DE LIEIAÎ , DECRET N19-51 du 14 Mars 1979 charseant le Camarade lsslfou BOURAIMA, Mi;i;i;;
+de fa Santé Pub11que, de I'intérim du Camarade Ardré ATCIIADE, lvllnistre du Commerce et du Tor:rlsme, pour conpter du 16 Mars 1979.
+DE LÀ REPUBLIQUE, CHEF DU GOIJVERNEîVIE}'M, DECRETE \rTJ lrOrdonnance no 77-rZ du 9 septembre t977 t portant promulgation de la Loi Eondamentale de 1a Ftépublique Populaire du Bénin ;
+VU le décret no T6-26 du JO Janvi er !976t portant formation du Gouvernement et le décret n" 78-171 du 6 Juillet 1978 qui lra modifié ;
+VU ]e d.écret no 7046 du 19 Févriet 1976, déterminant les services ràtin"fres à Ia présldence de 1a République et fixant fes attributj.ons des membreÀ du Gouvernement -mo6ifié par Ie décret no78-174 du 5 ju111et L978 , VU le décret no 79-51 du 1J Mars lÿJÿ, dnar geant le Caurarade BarthéIém5 ôttOUgNS, Ministré de 1'lndustrle et de lTArtisanat' de ltintérim du Président de }a République à conpter du 14 Mars 1979 i ArticJe ler - Pour co EtrURJifMA, Mlnistre de Ministre du Commerce AndTé ATCHADE.
+AmplÀqti_e4§ mpter d.u 16 Mars 19791 le Camarade Issifou ia Santé Publique, eèt chargé de l'lntérlm du et du Tourisme pendant l-labsence du Camarade Artlcle 2 Le présent décret sera publlé au Jor:rnaf OfficieJ-.
+Falt à CO10N0U, 1e 14 Mars 1979 Pour Le Présldent de 1a République absentt Le Ministre de l-rlndustrie et de 1'Artisanat chargé de l- | 1nter1m, Barthé1 émv OHOUEI$S Fn BN 6 CS 4 CC du PRPB 4 SGG 4 SPD 2 UNB 2 FAJEP-2 DGAJL-INSrE 4 2 M.I lGE 4 A. 2 autres DCCl-ONEPI-Gde MIn:ls'tëres 1l Chanc. f JORPB
