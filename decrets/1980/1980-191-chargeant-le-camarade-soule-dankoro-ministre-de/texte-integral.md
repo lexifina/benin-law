@@ -1,0 +1,7 @@
+# Décret n° 1980-191 du 12 juillet 1980 Chargeant le Camarade SOULE DANKORO, Ministre de la Jeunesse et des Sports, de l'intérim du Camarade Moussa Ali TRAORE, Ministre de l'Enseignement Maternel et de Base pour compter 12 Juillet 1980
+
+RXPIIBI,IQUE POPUIAIRE DU BENIN PRESIDENCE DE TA REPUBLIQUE VU lrordoanance no 7742 dtt de 1a Ioi Fondarnentale tl ÿU Ie clécret no 8O-39 Conseil Exécutif Na DECREî No 80-191 du 12 Juillat 1980 chargeant 1e Camarade §OIrIJE DAI{KOÊd, Ministre de Ia Jeunesse et cles Sports, de 1rlnf,érirrr du Cnmelade Moussa All TRAOREf Mlnistre de ltEnseignement Maternel et de Base pour compter du 12 Juillet 198O.
+TE PRESIDENT DE ITA REPUBLIQUE, CI{EF DE trrETÀî, PRESIDENT DU' CON§EIL EXECUîIF NAîIONAI, dutlo § septenbre 197? portant promulgation e 1a Répub1i-que Populaire du Bénin I 12 février 1980 porta.nt composition du na1 et de son Comité Pe rmanent ;
+DECRETE _4ft&le_-l-ef - Pour compter du 12 Juil}et 1ÿ80, Le Carnarade SouIé Effim-qmnistre de 1à Jeunesse et dcs SpôrtË est chargé tle l.tintérim'du Mlnistre de lrEnseignement trtraterroel et de Base pendant l-rebsence du Carnarad e ![ou6Ea A]-i ÎR-ACRE.
+4ftÀc:g_?. - Ie présent décret sera publié au Jour.nal Offlciel..
+Fait à CoTONOIJ, le 12 Juiltet 1980 par le Président de la RépubLlquer Chef de lrEtat, Présldlent du Consê11 Exécutif National, 4I0x-I1-qti-enc : PR 5 CC du PRPB 4 AxR 4 cPc 6 SG Mfres EEist ères 20 DPE - DAJI -INSAI 6 IGE e Mathieu I(EREKOU G 4 SPD 2 MJP.IIEUB 6 t ses Sections 4 1 JORTB 1.- DCCT I 0NEPI-Gde Chanc. 2 UNB-FâSJEP-BN 6 BCP I
