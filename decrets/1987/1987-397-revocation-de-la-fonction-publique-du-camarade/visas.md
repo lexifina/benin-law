@@ -1,0 +1,8 @@
+# Visas
+
+/cs REPUtr.,IOUE POPULAIRE DU BENÏN PRESTDENCE DE LA REPUBLTQUE DECFiET N' A7é97 6u 26 Novembre 1987 oortant révocation dé Tâ Éonction Publiàue du Camarade Anto ine LALEYET Conseil- Ier des Affaires Etrangères r ancien Ambassadeur de 1a République-.8opulaire du Bénin en Algérie.
+LE PRESIDJNT DJ L1i REPUBLfSUE, CrmF DE LtEThT. PFESIDENT DU CoNSEIL EXùCUtrF NAIToNAL, l rordonnanc e No 77-12 du 9 septenbte 1977 -portant p Ia Loi Fondamentale de Ia République Populaire du B ioiu"ô""Àiitutionnetles qui i tsnl -m66ifiée , lrordor»-rance No 79:17 fl'r 20 Avril 1ÿlÿ-éd'ictant Ies dispositions Ë""il;'Ë'îà "ep"6""ioi-ar".ipi6aiiedes détournements et faits assi:nilés qommls p""-iËu*Àeà"i"Ïà-rrEtat et les Employés des Entrepilses Publiqucs r Ie décret No 87*18 6p 1f Féirier 1gB7- portalt compositlon clu ô;";;ii'È";"riil-iluiionàI "t de son comité Pernanent, Dortant création dc la Ie décret N" 79-146 6u 24 Décembîe 127?.
+commission ad hoc ao*fup"oiiiàn àiscipriiaire ctrqrcée de connaltre des faits reprocfrZÀ-àu-Ôà,àrade I'ntoin" L*PE-f.Acicn Anbassadeur de Ia Répüblique Populaire du tsenin en Argerrc, Ie rapport de la comnission ad hoc.créée par décret I'In 79-1L5 du 2dbéceurbre-1979r LE' Comité Pc(manent du Conscll Drécutif Natlonal entendu ;â;;; âù'-iàr octobre le8or W W w W rom:lgation ie énin et les W D ECRETE :
+ffiaiuÈ-ès, en A1f;érle,
+- Le Camaratiê .Antoine LALEYE, ancieh "Âmbas'sadcur de la RéPu Ëit-revoqué âe 1a Fônction Pu Articl-e lerr 11 est décIaré à jamalê lncaPable ou sepJ- Publlc.
+t Consel,]-'Iér des Affaircs tlioue PoPulairc dP Bcnin blique Poi.:r malvcrsations ' dtexercer un emPloi PubI ic
