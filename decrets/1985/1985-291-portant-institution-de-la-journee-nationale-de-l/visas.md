@@ -1,0 +1,6 @@
+# Visas
+
+REPUBLIQUE POPULAIRE DU BENIN ---------------- PRESIDENCE DE LA REPUBLIQUE ---------------- DECRET N° 85-291 du 23 juillet 1985 Portant institution de la Journée Nationale de l’Arbre LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L’ETAT, PRESIDENT DU CONSEIL EXECUTIF NATIONAL, VU l’ordonnance N° 77-32 du 9 Septembre 1977 portant promulgation de la Loi Fondamentale de la République Populaire du Bénin et les Lois Constitutionnelles qui l’ont modifiée ;
+VU le décret N° 85-254 du 17 Juin 1985 portant composition du Conseil Exécutif National et de son Comité permanent ;
+VU l’ordonnance N°75-21 du 24 Mars 1975 fixant la composition du Cabinet du Président de la République et la structure des Ministères ;
+VU le décret N°74-478 du 17 Décembre 1984 portant attribution, organisation et fonctionnement du Ministère du Développement Rural et de l’Action Coopérative ; VU le décret N°74-60 du 08 Mars 1974 porant création, attribution, composition, organisation et fonctionnement de la Commission Nationale chargée de la lutte contre la pollution de la Nature et l’amélioration de l’Environnement ; SUR proposition du Ministre Délégué auprès du Président de la République, Chargé du Plan et de la Statistique et du Ministre du Développement Rural et de l’Action coopérative, le Comité Permanent du Conseil Exécutif National entendu en sa séance du 29 Mai 1985. DECRETE :
