@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 17 novembr e 1999 Pour le Président de la République, Chef de l'Etat, Chef du Gouvernement, absent, le Ministre d'Etat, chargé de la Coordination, de l'Action Gouvernementale, du Plan, du Développement et de la Promotion de l'Emploi, assurant l'intérim, A Bruno AMOUSSOU Le Ministre d'Etat, Chargé de la Coordination de l'Action Gouvernementale, du Plan, du Développement et de la Promotion de l'Emploi, Bruno AMOUSSOU.- Le Ministre des · Le Ministre du Commerce, de l'Artisanat et du Tourisme, et de l'Eco )~ Abdoulaye BIO- TCHANE.- Joseph H. GNONLONFOUN.- Ministre intérimaire ... / ...
+Ministre intérimaire AMPLIATIONS : PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 MECCAG-PDPE 4 MCAT 4 MFE 4 MDR 4 AUTRES MINISTERES 15 SGG 4 DGMB-DCF- DGTCP-DGID-DGDDI 5 BN-DAN-DLC 3 GCON-DCCT-INSAE 3 BCP- CSM-IGAA 3 UNB-ENA-FASJEP 3 JO 1.
