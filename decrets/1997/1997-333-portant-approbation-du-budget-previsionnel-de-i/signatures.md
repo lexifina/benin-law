@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à COTONOU, Ie 17 JUII,LET Par le Président de la République, Chef de I'Etat, Chef du Gouvemement, Mathieu KEREKOU.- Le Premier Ministre, chargé de la Coordination de I'Action Gouvemementale et des Relations avec les Institutions, Porte-Parole du Gouvemement, Le Ministre du Développement Rural, Adrien HOUNGBEDIL- Le Ministre du Plan, de la Restructuration Economique et de la Promo tion de I'Emploi, ^/*- 1, Z Jérôme SACCA KINA Albert TEVOEDJRE.- Ampliations : PR 6 AN 4 CS 2 CC 2 HAAC 2 PM 4 MDR 4 MPREPE 4 Autres Ministères 15 SGG 4 DGBM-DCF-DGTCP-DGID-DGDDI 5 BN-DAN-DLC 3 GCONB-DCCT-INSAE 3 BCP-CSM-IGAA 3 UNB-ENA-FASJEP 3 JO I [tL
