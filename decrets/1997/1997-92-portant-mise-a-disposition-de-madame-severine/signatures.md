@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à COTONOU, le zs révrier 1997 Par le Président de la République, Chef de I'Etat, Chef du Gouvemement, Le Premier Ministre, chargé de la Coordination de I'Action Gouvernementale et des Relations avec les Institutions, L, o Albert TEVOEDJRE.- Ministre intérimaire Le Ministre des Finance M4MF MJLDII ID-DGDDI5 BN- a Amoliations : PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 autres Ministères 15 SGG 4 DGBM-DCF-DGTCP-D DAN-DLC 3 GCONB-DCCT-INSAE 3 BCP-CSM-I FASJEP 3 INTERESSEE 1 JO 1.- \ \"--/ AA 3 LTNB-ENA- t Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de I'Homme,
