@@ -1,0 +1,13 @@
+# Signatures
+
+Fait à cotonou, ls 13 DECEMBRE 1996 athieu KERBK U I Par le Président de la RéPublique, Chef de I'Etat, Chef du Gouvernement.
+VU L'Arêté krterministériel N"25^,ICTÀ4EMH/CAB du 03 Mai 1995, fixant les conditions d'accès aux installations de stockage à la disposition de la SONACOP et portant aufres modalités de mise en oeuwe de I'ouverture du secteu des prodüts pétroliers au Bénin SUR proposition du Ministre du Commerce de I'Artisanat et du Tourisme LE Conseil des Ministres entendu en sa séance du 04 Décembre 1996 D E CR ETE ARTICLE lER:
+La Société " TOTAL BENIN S.A." immatriculée, au Registre du Commerce N'20802-B du 13 Juillet 1996 à COTONOU, est agréée pour importer, stocker et distribuer en République du Bénin les produits pétroliers raffinés et leurs dérivés.
+ARTICLE 2.- La dtuée de I'agrément est de dix ans pour compter de la date de signature du présent Décret. Elle peut êüe renouvelée ou prorogé confonnément à I'article 6 du Décret N"95-139 du 03 Mai 1995 portant modalités d'importation et de distribution des produits péüoliers raffinés et de leurs dérivés en République du Bénin.
+La Société 'TOTAL BENIN S. A." est tenue de respecter les obligations incombant au titulaires d'agrément d'importation, de stockage et de distribution des produits raffinés et leurs dérivés. Elle est tenue eû particulier de :
+1/- Irnporter des produits répondant aux nonnes et caractéristiques réglementaires ;
+2l- mettre à la disposition des consommateurs des prodüts conformément à la réglementation des établissements classés dangereux, insalubres et incommodes ;
+3/- respecter les dispositions des textes législatifs et réglementaires en ügueur en matière commerciale, fiscale, douanière et de sécurité sociale ;
+4/- fournir à toute réquisition de I'Administration tous documents et infonnations d'ordre administratif, technique, économique et financier nécessùes à I'appréciation des conditions d'exercice de son agrément ;
+ART]CLE 3.
+Le Premier Minisfre, chargé de la Coordination de I'Action Gouvernementale et des Relations avec des tnstitutions /',," Le Ministre du Commerce, de I'Artisanat et du Tourisme Le Minisüe des Mines, de I'Energie et de I'Hydrauli Gatien HOUNGBEDJI mmanuel GOLO TJ Le Minisfie des Finances Le Ministre de l'Lrtérieur, de la Sécurité et de I'Adminisfation Territoriale NI Théo p N'DA Ampliations : PR 6 - PM 4 - AN4 - CS 2 - CES 2 - CC 2 - CES 2 - IIAAC 2 - MCAT 4 . MF 4 . MMEH 4 . MSAT 4 - AUTRES MINISTERES 13 - SGG4- DGBM - DCF - DGTCP . DGID - DGDDI 5 . BN - DAN - DLC 3 - GCONB - DCCT - INSAE 3 - CSM - IGRR 2 UNB -ENA- FASJEP 3 S}IELL BENIN S..A.2-JORBI Adrien HOUNGBEDJI
