@@ -1,0 +1,8 @@
+# Décret n° 1983-216 du 10 juin 1983 Chargeant le Camarade François DOSSOU, Ministre de la Justice Populaire , de l'intérim du Camarade Manassé AYAYI, Minstre du Commerce pour compter du 11 Juin 1983
+
+RtrPUBLT UE POPI]LAIRE DU BENIN PRESIDBX{CE DE IA REPUBLIOUE o a DLICRET No BJ-21 6 du 10 juin 1987 ôhargeant 1e Camarade François mSSOUt Ilinistre de la Justlce Populaire, d:
+].rintérim du Camarade ÈIanassé ÀYAYI, l,Iinistre du Commerce poltr comptcr du 11 juin 1981 .
+LE PRESIDENT DI, LA REPUBLISUE, C1IEF DE L'ETAT. PRESTDENT DU CONSE]L EXECUTIF NATIONAL, eplembre 1977 portant promulgation République Populalre du Bénin et r 1983 qul 1ra complètée, W )-e décret No 82-441 du J0 décernbrê 1982 porlant composition du Consei]- Exécutif National et do son Comité Pcrmanentr VU 1e décret yo 6f:211 du 6 Juin 1985 chargeant 1e Camararie Romain \IILON-GUEZO. Prési.dent du Cornlté Permanent de, 1tÀssemblée Nationale Révôlutlonnaire. de 1!intérim du Président d.: 1a l1épublique pour compter du 6 juin 198f, DECIlETE:
+\rtj ltordonnance No 77-12 du 9 s de 1a Loi Fondamentale de la la Loi No 8r"OO1 du 7 férz.ie Artlcle 1er.- Pour compter du 11 Juin 1981 t le Camarade Françols mssou, Mi tre de La Justicc PopuJ-alre assiurerâ J.tlntérim du ommerce pendânt llabsence du Camarade Manassé AYAYI.
+l'linlstre du C At!lCIe_?-.- Le présent décret sera publié au Journal Officie1.
+Fait à Cotonou, 1e 1O juin 19Bj Pour 1e Présldent de 1a République absegt, J.e Président du Comite Permanenl. d.e llAssemblée Nationale Révo1utionnairc, ehargé de 1t intérimr ltI l,l I Romain YfLON-GUEZo Asrpliatiolrs ! PR 6 CC DUPRPB4ANR4 CpC 2 SPD2 SGG4 MC-rUJP 6 PPC 2 autrès Ministères 2O DPE-DLC-INSAE 6 rGE 4 BN-DAlr 4 DCCT- ONEPI-GDE CIIANC. 5 UNB-F/iSJEP 4 BCP 1 Préfets 6 JORPB 1.-
