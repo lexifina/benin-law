@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 15 Janvier 1998 par le Président de la République, Chef de l'Etat, Chef du Gouvemement, Mathieu KEREKOU Le Premier ministre, gé de la Coordination de l'action gouvernementale et des Relations avec les institutions, porte-parole du gouvernement, Le ministre du Développement rural, Le ministre du Plan, de la restructuration économique et de la promotion de 1'emploi, L é---/ TEVOEDJRE Ampliations : PR 6 AN 4 CS 2 CC 2 HAAC 2 PM 4 MPREPE 4 MDR 4 AUTRES MINISTERES 15 SGG 4 DGBM-DCF-DGTCP-DGID-DGDDI 5 BN-DAN-DLC 3 GCONB-DCCT-INSAE 3 BCP-CSM-IGAA 3 UNB- ENA-FASJEP 3 JO I.- ê:%r+- Adrien HOUNGBEDJI / ,,-klJu^l Jérôme SACCA-KINA
