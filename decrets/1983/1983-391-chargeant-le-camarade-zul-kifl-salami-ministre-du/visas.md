@@ -1,0 +1,3 @@
+# Visas
+
+]r"rJ. - RXPUBLISIJE POPUTAIRE DU BENIN PRNSIDENCE DE I,A REPTIBLIOTJE DECFIT N. 8r-J91 du 1er novembre 19BJ chargeant Ie Canarade Zuf-Kifl- SÀIAMI, iiinistre du P1an, de Ia Statistique et de ltAnalyse 0conomlque, de lrintérim du Camarade Adolphe BIAOU, Ministre du Travail et des Affaires Sociales pour compter du 1er novembre 19BJ I,E PR.ESTDENT DE I,A REPLIBL]QIJE, CÉMF DE LIETAT, PRNSMENT DU CONSBIL E)TECUTIF Iü'IîIOI'IAL, 1ÀJ 1t ordonnance N" 77-12 du 9 septembre 1977 portant promulgation de Ia Loi Fondamentale de la République Populaire du Bénin et Ia Loi. No 8r-0O1 du J févrie:" 1983 qui lta complètée i W Ie décret No 82Jt41 du J0 décembre 1982 portant composltlon du Conseil Exécutif National et cle son Coinité Perrnanent ;
