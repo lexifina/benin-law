@@ -1,0 +1,7 @@
+# Visas
+
+& o FE.- REPUBLIQUE DU BENIN PRESIDENCE DE LA REPTJB LIQTIE DECRET N'2005.045 DU 02 FEVRIER 2OO5 Portant ratification de l'Accord de prêt signé le 03 mars 2004 entre la Banque lslamique de Développement (BlD) et la République du Bénin dans le cadre du financement des microentreprises et des très petites entreprises au Bénin.
+LE PRESIDENT DE LA REPUBLIQUE, CHEF DE ETAT, CHEF DU GOUVERNEMENT, Vu la loi n' 90-032 du 11 décembre 1990 portant Constitution de la République du Bénin ;
+vu la loi n" 2005-05 du 27 janvier 200s portant autorisation de ratification de lAccord de prêt signé le 03 mars 2004 entre la Banque lslamique de Développement (BlD) et la République du Bénin dans le cadre du financement des micro - entreprises et des très petites entreprises au Bénin ;
+Vu la Proclamation le 03 avril 2OO1 par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du 22 mars 2001 ; Vu o le décret n" 2003-209 du 12 juin 2003 portant composition du Gouvernement ;
+DECRE TE Article 1e' : Est ratifié l'Accord de prêt signé le 03 mars 2004 signé le 03 mars 2004 d'un montant de neuf cent cinquante quatre mille (gs4.00b) Dinars islamiques, soit environ un million deux cent vingt et un Àille (.d21 .ooo) Dollars Us, équivalant à six cent soixante quatre millions deux cent vingi quatre mille (664.224.000) francs cFA entre la Banque lslamique de Développement (BlD) et ra Répubrique du Bénin dans re cadrà du financement des micro-entreprises et des très petites entreprises au Bénin et dont le texte se trouve ci-joint.
