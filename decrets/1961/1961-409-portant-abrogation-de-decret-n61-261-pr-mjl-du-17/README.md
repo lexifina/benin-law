@@ -1,0 +1,6 @@
+# Décret n° 1961-409 du 9 décembre 1961 Portant abrogation de décret n°61-261/PR/MJL du 17 Août 1961 en ce qui concerne Mademoiselle CHOKKI Basilia et Monsieur BOSSOU Alfred
+
+- Source : Secrétariat général du Gouvernement du Bénin (sgg.gouv.bj), documenthèque, <https://sgg.gouv.bj/doc/decret-1961-409/download>
+- Date : 1961-12-09 (date du texte dans son intitulé (promulgation/signature) ; la date de publication au Journal officiel n’est pas donnée par la source)
+- Couche texte : fournie par l’éditeur sur un document numérisé (non relue)
+- Unités : 1 articles
