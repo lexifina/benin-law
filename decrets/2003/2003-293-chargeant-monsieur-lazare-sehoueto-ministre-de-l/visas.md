@@ -1,0 +1,5 @@
+# Visas
+
+PRf,SIDENCE DE LA REPUBLIQUE DECRET No _2o01-2gf DU 12 AOUT 200' Chargeant Monsieur Lazare SEHOUETO, Ministre de l'Agriculture, de I'Elevage et de la Pêche de l'intérim de Monsieur Rogatien BIAOU, Ministre des Affaires Etrangères et de l,Intégration Africaine, pour compter du mardi 12 au mercredi 13 août 2003 DECRE TE compter du mardi 12 au mercredi 13 août 2003, Monsieur levage et de la Pêche est de I'Intégration Africaine, REPUBLIQUE DU BENIN *********** *********** W VU VU LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT, la loi n" 90-032 du 11 décembre 1990 portant constitution de la République du Bénin;
+la proclamation le 03 awil 2001 par la cour constitutionnelle des résultats défi nitifs de l'élection présidentielle du 22 mars 2001 ;
+le décret n" 2003-209 du r 2 juin 2003 portant composition du Gouvemement . Àrticle 1"' : Pour Lazare SEHOUETO, Ministre de I'Agriculture, de I'E chargé de l'intérim du Ministre des Affaires Etrangères et Monsieur Rogatien BIAOU pendant son absence.
