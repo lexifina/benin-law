@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 8 août 2001 Le Président de la République Chef de l’Etat Chef du Gouvernement Mathieu KEREKOU Le Ministre d’Etat, Chargé de la Coordination de l’Action Gouvernementale, de la Prospective et du Développement Bruno AMOUSSOU Signatures Le Ministre de l’Environnement, de l’Habitat et de l’Urbanisme Luc-Marie Constant GNACADJA Le Ministre de l'Intérieur de la Sécurité et de la Décentralisation Daniel TAWEMA Le Ministre de la Santé Publique Yvette Céline KANDISSOUNON SEIGNON AMPLIATIONS PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 MECCAG-PD 4 MEHU 4 MISD 4 MSP 4 Autres Ministères 17 SGG 4 DGBM-DCF-DGTCP-DGID-DGDDI 5 BN-DAN-DLC 3 GCONB-DCCT-INSAE 3 BCP- CSM-IGAA 3 UNB-ENA-FASJEP 3 JO 1.
