@@ -1,0 +1,7 @@
+# Visas
+
+/FE.- REPI,BI,TQIIE IOPUI.AIRE DU BENIN PTESTDENCE DE TA REPUBITQUE DECREÎ IVo 86-393 du 12 Septembre 1986 portant approbation du Compte Flnancler exerclce 1984r de I rOfflce tles Postes et lléIécommunicat i cns.
+I,E PRE$TDENT DE I,A REPTDITQUE, CHET DE I 'EIIAI , PRESIDENT DU CONSEIIJ ffiECUTTF MITONAL, VU lrordonnance No 77-32 du 9 Septembre 1977 portant pronulgation cle Ia loi Fonêamentale de Ia népublique Populàire du-Bénin-et les trois Constltutionnetles qul ltont nocltfiée ;
+VU Ie décret No A5-254 du 1? Juin 1985 portant composttlon du ConselL Exécutif Natlonal et de son Comité Pèrmanent ; ' VU Ia Loi No 82-O0B tlu 30 Décembre.1982, réglssant 1es rapports entre _1 rEtatr.les Officet, 1es Soclétés arÉtati Ies Sociétée-àrEcononle Mlxte et ceIles dans lesquelles l rEtat a-Wre prlse cle participatlon, et flxant 1eu,.ns modalités d.e.gestion i VU la loi No 59-32 portant création de lt0ffice des postes et TéIéconmunLcatlons de Ia République popdlaire duBd41È, mocltfiée par lrordonnance No Z1_3,/cp_Mp[ clu i Jénvier 197i,\' vu Ie décret 61/Bo/ÿ.P./Mpr, fixant Ies modalitée del fonntloirnement et les attrlbutlqns du Consetl drÂdminisatration de lr0fflcè des Postes et lI é1écornnun I cat lons du Bénin i ÿU Le décret No 84-437 du_2?-Novenbre 1984 portantr entüe autres, nomLnatton du Dlrecterrr Génera1 et du Dtueôteur Généra1 .AdJolnt'aâ i;Otflce des Postes et réIécomnunicatlons tte Ia Républiqüe popuraire du Bénin ;
+lE consell Exécutif National entenclu en sa séance du 6 Aott 1986 t I ,i :
+D E C RET E
