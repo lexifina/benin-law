@@ -1,0 +1,35 @@
+# Décret n° 1995-139 du 3 mai 1995 portant modalités d'importation et de distribution des produits pétroliers raffinés et de leurs dérivés en République du Bénin
+
+RIPUBLIQUE DU BETIIN PRESIDENCE DE LA REPUBLIQUE DECREI l{' 95 - 139 du 03 Mai 1995 portant modalités d'lmportatlon et, de distribution ' des produits pétroliers raffinés eL de leurs dérivés en République du Bénin LE PRaSIDEiÿî DE LA REPABIJTQUE' CITEF DE L,EîÀ?, CHEE DU æWE$IE'TETIî, VU la Loi n' 90-32 du 11 décembre 1990 portant Constitution de ta République du Bénin i vU Ia Loi n' 9O-OO5 du 15 mai 1990 fixant les conditions d'exercice des activités de commerce en République du aênin;
+vU Ia Loi n' 92-023 du 06 aoOt 1992 portant déÈermination des principes fondamentaux de dénational isation eÈ des transferts de propriété d'enÈreprise du secteur public au secteur privé ;
+vU LrOrdonnance n' 74-?O du 04 décembre 1974 lnstituant au profit de I'Etat, Ie nonopole de 1 'approvis lonnement, du stockage, du t.ransport et de Ia vente des produits pétroliers et de leurs dérivês ;
+VU 1a Décision n' 9L-O42/HCR/PT du 30 mars 1991 Portant procJ.amation des résultats définitifs du deuxième tour des élections présidentielles du 24 mars 799L i VU Ie Décret n' 9{-134 du 06 mai 1994 portant, composition du Gouvernenent ;
+vU Ie DécreL n' 92-46 du 03 mars 1992 portant attrlbutlons, organisation et fonctionnement du ltinistère de ItEnergie, des Mines et'.de ltHydraulique ;
+i vU le DécreÈ n' 89-64 du 17 février 1989 port,ânt approbatlon des statuts de la Soclété Natlonale de Comnerciallsatlon des Prodults Pétroliers ( SOIiÀCOP ) ;
+\ VU le Décret n' orgian isation du Tourisme 92-61 du 10 mars 1992 portant attributions, et fonctionnement du Ministère du Commerce et Ie stockage, le transport et la venLe des produits pétroliers raffinés et de leurs dérivés relèvent du monopole de I'Etat.
+Àlticle 1er :
+I'ordonnance n Àrticle àrticle 5 :
+Commission lec DECRETE Conformément aux dispositions de l'article 1er de " 74-7O du 04 décembre 1974, I ' approv is ionnement, Le monopole de I'Ecat en matière de transport et de vente des de Ieurs dérivés peut être en de par 1a commerc ial i sation des ent obEenir un agrément Conseil des tlinistres sur chargé du comnerce et du il i approvis ionnement, de stockage, produits pétroliers raffinés eL exercé sous Ia forme directe et sous la forme indirecte.
+Àrticle Àu terme du présenL décret, on entend par
+- monopole direct, 1'exercice du monopole de 1'Etat en matière d' apprôvis ionnemen t, de stockage, de transport et de vente des produits pétroliers raffinés et de leurs dérivés par une société d'Etat ou d'Economie Mixte ;
+- monopole indirect, 1'exercice du nonopole de I'Etat matière d'approvi.sionnement, de stockage, de transport et vente des piôauits pétroliers raffinés et de Leurs dérivés des sociétés privées nationales ou êtrangères, À!tic1e 4 Les sociétés privées nationales ou étrangères intéressées par 'f importation et produits pétroliers raf f j.nés doiv spéci.aI délivré par décret pris en proposition conjointe du Ministre Ministre chargé des Hydrocarbures.
+L'agrément spécial est donné hnique d'Àgrément présidée par après avis d'une le représentant du Ministre chargé du Commerce et composée :
+du représentant du Hinistre chargé de 1'Intérieur, du Directeur chargé des Hydrocarbures, -d -dI o -d -d u Directeur chargé du Corunerce Intérieur u Directeur de I'organisme chargé du conirôIe et de 'inspection des établissements classés dangereux, insalubres u inconunodes, u Directeur Généra1 des Douanes et Droits fndirects et u Directeur Général des Impôts et des Domaines' Sur rapport du Ministre du Commerce et, du lourisme i Le Conseil des Ministres entendu en sa séance du 3 Mai 1995
+- aux dispositions des textes portanE réglementation des établissements classés dangereux, insalubres ou incommodes.
+ÀrticLe 9 :
+Àucune entreprise du secteur industriel, de production d'énergi.e, de garages automobiles et des chantiers routiers ne peut bénéficier d'autorisation spécial.e drimportation et de mise à Ia consommation, même pour son usage exclusif, de produits pétroliers raffinés et de leurs dérivés.
+Àrticle 10:
+II ese fait obligation à tout. importateur et distribuLeur de produits péLroliers raffinés de consÈituer et de conserver à tout moment un stock de réserve représentant au moi.ns par catégorie de produits importés 1'équivalent des ventes drun (O1 ) mols, Àrticle 11 r L'Etat peut procéder à tout moment, dans les conditlons prévues par-arrêtê interministérie 1, à la suspension ou au retrait de I'agrêment spécial si Ie titulaire ne respect,e pas les obligations prévues aux articles I et 1O du présent décre t .
+La suspension ou le retrait de 1'autorisation spéciale ne donne droit à aucune indemnité ou dédommagemenÈ.
+ÀrtLcle 12 : Les critères et conditions d'agrénen piivées seront précisés par arrêté eonjoint des M
+- du commerce et du fourlsme,
+- de 1'Energie, des l,lines et de IrHydraulique,
+- des Finances,
+- des travaux Publics et des Transports.
+t des sociêtéE inistres:
+Artiele 6 : La durée de I'agrément spéclal. est de dix (1O) ânE- ;-GTIe peut être renouvL]ée ou prorogée. Le renouvellement ou 1a prorogation de I'âutorisation spéciaIe sera prononcée dans les mêmes formes eE condiLions que son accord, six mois avant I'expiration de lrautorisation en cours, ÀrticLe 7 : Le transfert de I'agrément spécial ne peut avoir TiEü-que-sur approbat ion donnée §ar décrei pris en CônseiI des MinisLres sur proposition conjointe du Hinislre chargé du Commerce et du Ministre chargé des Hydrocarbures après avis de Ia commission mentionnée à 1'article 5.
+Àrticle 8:
+L'exercice du monopole de I'Etat en matière a C[[ioîIE ionnement, de stockage, àe transport et de vente des produits pétroliers raffinés et de leurs dérivés, qu'i1 soiÈ direct ou indirect doit s'effectuer conformément :
+- aux disposj.tions des lois eL règlements relatifs à I'exercice des activités commerciales en République du Bénin ;
+Àrtlqle 13 : Le Minlstre du Commerce et du Tourisme, Ie MffiGtre-Aê I'Energie, des Mines et de I'Hydraulique, Ie Ministre des Finances, Ie Ministre du plan et de la Restructuration Economique sont chargés, chacun en ce concerne, de I'application du présent décret qui abroge dispositions antérieures contraires notamment Ie décret 35 du 24 février 1993. Il prend effet pour compter de de signature et sera publié au Journal Officiel.
+Le Ministre de Mines et de qui Ie tou tes n" 93- sa date 1'Energie, des I ' Hydraul ique , Le Ministre du Commerce ' et du Tourisme, Fass si À. YÀCOU L,e Min i edesF lnances , Par 1e Chef d Chef d Président de Ia République, e 1 'Etat, u Gouvernement, EÀIr À COIONOU, le 3 Mai 1995 Àntoine À1abi GBEGAN Ministre Intérimaire Le Ministre du PLan et de Ia Restructuration Economique, I DOSSOU Pau1 DOSS Hinfstre rntéiImalre Àmpliations : PR 6 ÀN 4 CS 2CCZ CES 2 HÀÀC 2 MEPR-DN 4 MCT 4 I'tF 4 MEMH 4 HPRE 4 Àutres Ministères 14 SGG 4 DGBM-DCF-DGTCP- DGID-DGDDI 5 BI{-DÀN-DLC 3 GCONB-DCCî-INSÀE 3 CSM-IGÀÀ 2 UNB- ENÀ-FÀSJEP 3 JORB 1 glti ( Nicéphore socLo
