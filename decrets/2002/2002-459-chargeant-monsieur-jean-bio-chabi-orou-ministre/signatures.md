@@ -1,0 +1,8 @@
+# Signatures
+
+Fait à Cotonou, le 21 oci.obre 2OO2 Par le Président de la Réputrlique, Chef de I'Etat, Chef du Gouverne rnent Mathieu KEREI(OU Am liatious :PR6 AN4 CS2 C CES2 HAAC2 MFE4 MESRS4 MEPS4 Autres Ministères 20 Départenrents 6 SG 4 JORts I.
+KEPUBLIQUE DU BENIN t-,i-'l_+_*-* PRESIDENCE DE LA REPUBLIQUE DECRET N"2CIO2-1r59 l)it 2J CrC,t,CrIritirt :()02 Chargeant . À4onsieur Jean Bio CHABI OROU, Ministre des Enseignements primaire et Secondaire de l'intérim de Monsieur Dorothé C. SOSSA, Minisrre de l'Enseignement Supérieur et de [a Recherche Scientilique.
+LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT vu la Loi No 90-032 du I I Décembre 1990, portant constitution de ta République du Bénin ; VU la Proclamation le 03 Avril 2001 par la Cour Constitutionnelle des résultats déIinitiG de l'élection présidentielle du 22 Mars 2001 ; , VU Ie Décret N'2001-170 du 07 Mai 2001 portant composition du Gouvemement et le Décret N'2002-082 du 20 Février 2002 qui I'a modifié.
+DECRETE Articlg .ler : Pour compter du Manli 22 octobre 2002 au Jeudi 07 Novembre 2002 , Mo,sieur Jean Bio CHABI oRou, Ministre des Enseignements primaire et secondaire 6irrs; est chargé de l'intérim du Ministre de I'EnseigneÀent Supérieur et de la Recherclre Scientilique pendant l'absence de Monsieur Dorothé Cossi SOSSA.
+Article 2 : Le présent Décret sera publié au Joumal OiÏiciel.
+Fait à Cotonou, le 21 tsctohre 2QOZ Par le Présideut de la République, Chef de I'Etat, Chef du Gouvernemeut Mathieu KEI{EKOU Ampliations : PR 6 AN4 CS2 C CES2 HAAC2 MFE4 MESRS4 MEPS4 Autres Ministères 20 Départernents 6 S 4 JORB 1,
