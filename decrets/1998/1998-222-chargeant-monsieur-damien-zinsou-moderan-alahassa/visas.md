@@ -1,0 +1,5 @@
+# Visas
+
+REPUBLIQI.]E DU BENIN .PRESIDENCE DE LA REPUBLIQUE DECRET N" 98.222 DII 25 MÀI 1998 Chargeant Monsieur Damien Zinsou Modéran ALAIIASSA, Ministre de la Jeunesse, des Sports et des Loisirs, de ['intérim de Madame Conceptia Lilianne DENIS OUINSOU, Ministre de l'Education Nationale et de la Recherche Scientifique LE PRESIDENT DE LA REPI.IBLIQUE, CTIEF DE L'ETAT, CHEF DU GOWERNEMENT VU : La Loi N' 90-032 du I I Décembre 1990, portant Constitution de la République du Bénin ;
+VU : La Proclamation le ler Avril 1996 par la Cour Constitutionnelle des Résultats définitifs Des Elections Présidentielles du 18 Mars 1996 ;
+VU : Le Décret N" 98-220 du 15 Mai 1998 portant composition du Gouvernement DECRETE ARTICLE IER : Pour Compter du 25 Mai 1998, Monsieur Damien Zinsou Modéran ALAEASSA, Ministre de la Jeunesse, des Sports et des Loisirs, est chargé de l'intérim du Ministre de l'Education Nationale et de la Recherche Scientifique pendant l'absence de Madame Conceptia Lilianne DENIS OUINSOLf.
