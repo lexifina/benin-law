@@ -1,0 +1,6 @@
+# Décret n° 2001-237 du 13 juillet 2001 Chargeant Monsieur Lazare SEHOUETO, Ministre de I'Industrie, du Commerce et de la Promotion de l'Emploi de l'intérim de Monsieur Luc-Marie Constant GNACADJA, Ministre de I'Environnement, de I'Habitat et de I'Urbanisme
+
+- Source : Secrétariat général du Gouvernement du Bénin (sgg.gouv.bj), documenthèque, <https://sgg.gouv.bj/doc/decret-2001-237/download>
+- Date : 2001-07-13 (date du texte dans son intitulé (promulgation/signature) ; la date de publication au Journal officiel n’est pas donnée par la source)
+- Couche texte : fournie par l’éditeur sur un document numérisé (non relue)
+- Unités : 2 articles
