@@ -1,0 +1,6 @@
+# Visas
+
+.* ./- REPT]BLIOUE POPULAIRE DU BENIN PRESIDENCE DE LA REPUBLIOUE DECRET Iüo 78-121 .ùu 2 rnai 1ÿ'/B ortant création du Comité National e Secours ar.rx Sinistrés des Villaes Aguégués Victimes de lrincendie u 4 Avril 1978.
+LE PRES]DEITI CHEF DE LIETAT, DE LA REPUBLÏQUE, CHEF DU GOLI\/ERNEI{ENT, e la Loi e décret ernem ent e décret attaché s uti- ons d e décret ission g ar lrincendie ayant ravagé 1es Aguégués dans fe District Rural e Porto-Novo ;
+e décret No78-9f du B avril- 1978, portant création dtun comité ational de secours ai:x sinistrés des ViJ-lages Aguégués victimes e ltincendie du 4 avril- 1978t DECRETE ARIIÇLE 2 - Le Comité National de Secours aux Sinistrés des Vil1ag: slguilgués est composé comme suit : PRESTDENI e }4inistre Dé1égué auprès du Président de Ia République, Chargé e fr Intérieur, de Ia Sécurité et de frOrientation Nationale, VICE.PRESIDENT p d d 1 I ordonna Vt, VU VU VtJ VU d tl-r b m p d n d nce No77-32 du 9 septembre 1977, portant promulgation Fondamentale de la- République PopuJ-aire du Bénin ;
+No76-26 du JO janvier 1ÿ76, portant formatlon du Gou- ,No76-46 du 19 février 1976, déterminant fes services à fa Présidence de 1a République et fixant 1es attries membres du Gouvernement ; No78-88 du 6 avri]- 1978, portant création de Ia conouvernernentale chargée de èonstater 1es dégâts Çausés
