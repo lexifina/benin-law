@@ -1,0 +1,5 @@
+# Visas
+
+IT["PI-IBt-IQUE DU BENI\ I'I{IiSI DE}CE DE LA REPL:BLIQT]E DECRET N'99-387 du t2 aoûr 1999 Pûrtllnt créntion de Ia Comntission atl hoc chargée rle poursuivre le démantèlement du grand réseiru de vol et de trafic d'intrants agricules dans toutes les zones de production de coton, au niveau des organisations pin'sanncs (G\'. LrSPP) ainsi que dans les structures rlc Ia SO\APRÀ.
+Le Président de la République, Chef de l'Etat, Chef du Gouverncmcnt.
+Vu la Loi n" 90-0i2 du l1 Décembre 1990 portanr Constiturion de la République du Bénin , Vr-r la Proclamation le ler Avrit 1996 par la Cor-rr Constitutionnelle des résultats définititt de l'élection présidentielle du tS \lars I996 : VLr le Décret n' 99-309 du 22 juin 1999 portant compositiùn du couvernement ; DECRETE Article I er : - Il esf créé ure Con.rmissir,l ad hoc chargée de poursuivre les investigations devant permettre le démantèlement du réseau de vol et de ratjc d'intrants agricoles dans toutes les zones de prodtiction de coton, au niveau des oreanisations paysannes (GV, LISPP) ainsi que dans les structures de la soNApRA (Di:ection Générale, Direction Régionale d'Exploitarion ).
