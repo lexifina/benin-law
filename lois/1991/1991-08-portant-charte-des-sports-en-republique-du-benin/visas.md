@@ -1,0 +1,17 @@
+# Visas
+
+' /vs ;'.--r r.'.rLiQUi tU EiillIN PRESIDENCE DE LA RXPUBLIOUE IDI No 91-008 du 25 Février 1991 portant Charte des Sports èn Républio..i:
+du Bénil.
+LE HAUT CONSETL DE LA FIEPUBLIQUE a défibéré I et adopté lll PRF^S M\IT DE LA P,EPLISLIOIIE promulgue La. Loi dont ta teneur suit PREA}ItsUI,E
+- Considérant fes prilcipaux textes de ta politique sportive africaile ;
+- Considérant l-es orientations fondar.rentales cléfinies par un certaj:r nombre drorganisme jlternationaux dont l-es accorCs existants avec Ia République du Bénil restent valables, nota.mrnent : x la Conférence des Ministres de fa Jeunesse et d.es Sports des pays drExpression Française (COXff.-pS ) * ftorgarlsation de ftUnité Africaine (O U a) x le Conseil Supérieur des Sports en Àfrlque (C S S A) + le Comité International Olympio_ue ( C f O).
+- Prenant en compte les e>rprimées au cours de 1a Conférence du 19 au 28 Février 1990 à COTOI\OU aspiration des Forcesd SVu peuble béninois ives de la Nation tenue en !rEtat béninois affirme, par 1a présente Charte, sa vofonté de doru:er.à 1a pratiqr:e du spcrt, au Bénil, une nouvel1e iigne politique basée sur Ia démocratie et les droità de l-r jrorme. Sefôn cètte nouvelJ.e orientation, 1r organisati-on et la promotion ies activités physlques et sportives sont un éfément fondarrrental cJe I?éducation, de 1a cufture et de l-a vle social-e. Leur développcment est rlr intérêt généra1. Aussi frBtat est responsable :
+- de lrEnseignement de ftEducation physique et Sportive rnj.lieu scolaire, universitaire et militaire ;
+- de Ia formation des cadres et des exarrens sanctioimant Ies diplêmes nationaux respectifs ;
+et du Sport ment Sportlf développernent des activités physiques et sportives haut niveau, en étroite collaboration avec Ie I'iouve-
+- de Ia promotion de l-a vie associative dans le dornaine des actj.vités physiques et sportives.
+Dans Ie contexte démocr:atique actuel, un rnode dc reLation contractuel doit exister entre lrEtat, fe I'{ouvement Sportif e autres partenaires du nronde sportif. Cette conception vise à senrer le dornaj-ne des actlvités physiques et sportivcs du dou risque de 1r étatlaation drtme part et du mercantil-isme drautr et à faciliter alnsi- l-a lib:'e adhésion de tout p'ratiquant.
+du de , {- 'l^ô préb1e e part, Désormais, Ies sportif s eux-mêmes auront à pretrr]re leur propre avenir au sein dtun rnouvement associatif cadre juridique.
+en deI' an1 charge par un Ainsi, lrorganisation de 1a pratique des sports et des compétitions qui en découlent seront du ressort des Féctérations dans lesquelles se trouvent regroupées les Assocj-ations sportives suivant une réglémentation devenue universelle.
+Dès lors, tout en conservalt Ie principe de Ia pratique du sport de masse, 1e développeraent du sport de.Laut niveau, dont lrobJectlf premiei est Ia pj'éparation de la refève, ciebouchera sur une ÀeilLeuie représentation de nos formations sportives nationafes" Aussi et territoriales 1es activités sp décentralisées q d.e la Jermesse e animatlon, auron sation et leur f està1 orti ues i1 Iégitime dtassocier fes col).ectivités l-oci.frl raction de ltEtat pour promouvoir Êt développer ves au sein des Associations. Les structures ont-les Directiôns D éparternentiele s d.e Ia Culture, s Sforts, qui concourent par ailleurs à leur mission drévafuer el- de contrôIcr: leur organiionnenent.
+TITRE I : DES IIISF'OSITIONS GENEIù:ILES Chapitre I Des activités physiques et sportlves t cle tIa onct
