@@ -1,0 +1,11 @@
+# Ordonnance n° 1996-30 du 31 décembre 1996 Mettant fin aux fonctions de Monsieur AGBOMENOU MARCELLIN en qualité de Chef du Service du Protocole de la Cour Suprême
+
+EPUBLIQUE DÜ BENIN COUR SUPRE}IE ABINET DU PRESIDENT d ü Dr\TE - e// DU GoUVÊRN Elvi È.\,I /S G G i) >v METTANT FTN AUX FONCTIONS Df, MONSMURAGBOMENOU MARCELLIN EN QUALITE DE CHEF DU SIR\TCE DU PROTOCOLE DE LA COUR SUPREMf, ORDONNANCE NO96 -30/PCS-CAB du3t/12lt LE PRESIDENT DE LA COUR SUPREME DE LA REPUBLIQUE DU BENIN, vu : La loi N' 90-32 du 11 Décembre 1990 portant constitution de la République du Bénin ;
+vu : L'ordonnance 21lPR du 26 Avril 1966 remise en vigueur par la Loi N" 90-12 du 1er Juin 1990 et portant composition , attributions et fonctronnement de la Cour Suprême ;
+vu : L'ordonnance N" 96-001/Pcs-cAB du 8 Janvier 1996 portant composition, attributions et fonctionnement du cabinet du président de la coui suprêÂe; vu : L'ordonnance N'91-1O/PCS-cab du 14 Août 1991 abrogeant |ordonnance N'90-1 s/PCS-cab du 'r 7 décembre 1990 et fixant les avantages en nature et en espèces alloués aux Magistrats et au personnel de la Coùr Suprême;
+vu : Le Décret N" 95-382 du 22 Novembre 199s portant nomination de Monsieur Abraham ZINZINDOHOUE en qualité de président de la Cour Suprême ;
+vu : Le procès verbal relatif à la prestation de serment de Monsieur Abraham ZINZINDOHOUE en date du 30 Novembre 1995;
+vu : L'ordonnance 92-28lPCS-ccAB du 02 Novembre 1992 portant nomination de Monsieur AGBOMENoU Marcellin en qualité de chef du service du protocote de la Cour Suprême;
+VU : La lettre N' 1417tMAEclDc/ccAB/cP/ssc/D1 du 26 Décembre 1996 retative à ta demande de mise à la disposition de la cour suprême de Monsieur Eric F. SAlZoNou. Considérant les nécessités du service ;
+Article ler : ll est mis fin, pour compter du 31 Décembre .1996, aux fonctions de Monsieur AGBOMENOU Marcellin, chef du service du protocole de la cour suprême. t L ORDONNE Adicle 2 .' Monsieur AGBOMENOU Marcellin Secrétaire des Affaires Etrangères, est remis à la disposition du Ministère des Affaires Etrangères et de la Coopération. Cotonou, le 31 Décembre 1996 Abraham ZINZINDOHOUE PR SGG tù MF DGBM/MF 0I * l nt n resio ( cr c Afticle 3: La présente ordonnance sera publiée au Journal Officiel de la République du Bénin.
+Amoliations :
