@@ -1,0 +1,8 @@
+# Visas
+
+REPUBLIQUE DU BENIN Fd.hka - Juirlc. - rÉvril ,q â r ar.i r.r,rrltre fir\,nqrt !ulJIil ÈtrÀ ÀliiriYiÉ/ CAEINET DU PRESIDENT ORDONNANCE N'97-30/PCS-CAB du 17 Septembre 1997 portant nomination de Monsieur BOCOSSA Cakpo Félix en qualité de Planton du Procureur Général près la Cour Suprême.
+LE PRESIDENT DE LA COUR SUPREME DE LA REPUBLIQUE DU BENIN VU: La Loi N"90-32 du 11 Décembre 1990 portant constitution de la République du Bénin ;
+VU: L'Ordonnance N'21iPR du 26 Avril '1966 remise en vigueur par la Loi N"90-12 du 1"' Juin 1 990 et portant composition, organisation, attributions et fonctionnement de la Cour Suprème ;
+VU : L'Ordonnance N"96-001/PCS-CAB du 0B Janvier 1996 portant composition, attributions et fonctionnement du Cabinet du Président de la Cour Suprême ; VU: L'Ordonnance N'91-10/PCS-CAB du 14 Août 1991 abrogeant l'Ordonnance N'90-1SiPCS-CAB du 17 Décembre 1990 et fixant les avantages en nature et en espèces alloués aux Magistrats et au Personnel de la Cour Suprême ; VU: L'Ordonnance N" 96-31/PCS-CAB du 31 Décembre 1996 complétant les dispositions de l'Ordonnance N" 91-'1O/PCS-CAB du 14 Août 1991 fixant les avantages en nature et en espèces alloués aux Magistrats et au Personnel de la Cour Suprème ;
+VU : Le Décret N'95-382 du 22 Novembre 1995 portant nomination de Monsreur Abraham ZINZINDOHOUE en qualité de Président de la Cour Suprême ;
+VU : Le Procès-Verbal relatif à la prestation de Serment de Monsieur Abraham ZINZINDOHOUE en date du 30 Novembre 1995 ' Considérant les nécessités de service ü-e-fl Lli ê ÿ TEL:(229) 31 - 31 - 05/31 " 50- 47 FAX: (229) 31 -54-92 01 B.P 330 RP CO'IONCU
