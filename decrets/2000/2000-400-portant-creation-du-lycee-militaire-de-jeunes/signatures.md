@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonotule 17 août 2ooo Par le Président de la République, Chef de l'Etat, Chef du Gouvernemeut, athieu KI'lli.EKOt'- Le Ministre d'Etat, chargéd Coordination de l'Action Gouvern entale, du Plan, du Développernent et de a Prornotion de l'Ernploi, Ilruno..\\lOL'SSOIr - I Ç l.e Ministre de L'Education Nationale et de la R Le Ministre délégué auprès du Président de la République Sc ientitique, chargé de I elrse Nati le, (- I)anrien 7-insou lllodéran ALAII SSA - lerrc OSIIO.- le rstre des Finances l'Economie, .\brloulavc BIO'l ('l l.\\t-.- AMPLIATIONS : PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 MECCAG-PDPE 4 MDN 4 MENRS 4 MFE 4 AUTRES MINISTERES 14 SGG 4 DGBM-DCF- DGTCP-DGID-DGDDI 5 BN.DAN-DLC 3 GCONB-DCCT-INSAE 3 BCP- CSM-ICAA ] UNB-ENA-FASJEP 3.IO I - \
