@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, t-e 15 février 20(11 Par le Président de la Républiclue, Chef de l'Etat, Chef du Gouvernemcnt, Le Mi tre des Ijinances dc I' onomre, Le Ministre d'Etat, thargé de la Coordination de l'Action Gouvemementale, du Plan, du Développen.rent et de la Promotion de 1'limploi, Bruno AMOUSSOU.- Mathieu KEREKOU.- I-e Ministre des 1'ravaux Publics et des Transports, t Abdottla NB.- Joseph Sourou ATTIN.- AMPLIATIONS : PR 6 AN 4 CS 2 CC 2 CES 2HAAC 2 MECCAG-PDPE 4 MTPT 4 MFE 4 AUTRES MINISTERES 16 SGG 4 DGBM-DCF-DGTCP- DGDDI-DGID 5 BN-DAN.DLC 3 GCONB-DCCT-INSAE 3 BCP-CSM.ICAA 3 UNB-FASJEP-I]NA 3 JO I.- (
