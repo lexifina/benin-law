@@ -1,0 +1,9 @@
+# Décret n° 1988-385 du 15 septembre 1988 Chargeant le Camarade Girigissou GAD0, Ministre du Commerce, de l'Artisanat et du Tourisme de l'intérim du Camarade Saliou ABOUDOU, Ministre de la Justice, Chargé de l'Inspection des Entreprises Publiques et Semi-Publiques pour compter du 10 Septembre 1988
+
+/DI...
+TiEPUBLIOUE POPULÀIRE DU EENIN PÂESIDE}{CE DE II. REFTELIOUE LE PR§SIDENI- DE LÀ REPUBLIEUE, CHEF DE L'ETATT PRE.9IDE},IT DU CONSEIL EXECUTIF IIATIONAL, 1f Ordonnance No77-J2 du de 1a Loi Fondamentale d 1es Lois Constitutlonnel vi-i I)ECFET No 88-f85 du 15 Septembre 1988 Chargeant 1e Camarade Girlgissou GAD0, l4lnlstre rlu C oni:nerce, de lt.Artlsanat et du Tourlsme de ]tintérim du Camarade Sal1ou ,'\BOUDOU, I,linistre de la Justice, Chargé de 1'Inspection des Entreprises Publiques et Ssmi-Publiques pour corupter du 10 Septembre '1 988 I VU YJ l-es eptembre 1977 portant promulgation a Républ ique Populaire du Bénin et qui lront modifiée ;
+1e Décret NoBS-j,15 du 29 .iuillet 19UB 1:ortant corilposition du Conseil Exécutif National et de son Comité Permanent ;
+û Al:ticle 1er. - Pour compter du 10 Septembre 1ÿBB }e Camarade I',ltnlstre du Commerce, de f rl',rti"anat et du Toude 1r int..,riri du llinistre de 1a Justice, Chargé de Entreprises Publiques et Semi-Publiques pendant arade Saliou ABOUDOU.
+UêDETTFE G1Fl§tssou GÀDO, r i smc, e st chargé lflnspection des lrabsence du Cam par 1ç Etésident de 1a République, chef de lrEtat, Frésident du ConseiL Exécutif National, Amoliations :
+fr-Jïffi-SlÊ IIF-cnt §!i,c]-e.--â. - Le présent Décret sera publié au Journal Of f ic ie]. . Fait à COTONOU, 1e '15 Septembre 1988 liathieu KEREKOU PR 5 SA/CC 4 CPIANR 4 CPC 6 SGCEN 4 6 ÀUTRES IqINISTERES 15 DPE.IJLC.INSAE 6 ONEPI Gde Chanc. f L1üts F'ASJEP 4 BCP 1 SPD 2 PPC 2 IGE 4 BI'I.
+PREFETS 6 DAN 4 DCCT JORPB 1.-
