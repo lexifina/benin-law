@@ -1,0 +1,12 @@
+# Visas
+
+lDË.
+REI]UBLIOUE DU BENIN PRESIDB{CE DE LB REPUBLITi la Loi No9O Répub1lque Ia Déclslon N"91-o1..?/HCR/PT du tlon des résultrts déflnltlfs d PrésidentleLles du 24 Mars 1ÿS1 DECÂ-tT N'92-fO2 du 5 Noveabr: '1992 Portant approbation des Statuts de 1a Chambre de ComrDerce et drlndustrie du Brânin.
+LE PRI]SIDS,IT DE L\ REPUBLIQUE, CHEF DE Lt jTlrT, CHEF DU GOU\TERNEI'.IN{T, -t du Décenbre 1i.9Q portent Constltution rL, 2 du 11 Bénln ;
+I Vl, vl, VlJ VI.J vI, Vt, SUR LE la Lol No92-O22 du 06 Aott 1992 portant lnstltutlon drune Chanbre de Comrnei rr. et dtlndustrle en Répub11que du ljénin jO I,lars 'l991 portant proc-t ê, ^',.
+u deuxlène tour des électror,s , a le Décret N.91 -176 du 29 Jui1l_et 1991 portant coEpositlon rtj Gouvernenent;
+Ie Décret No92-61 du 10.Mars 1992 portant attrlbutlons, c:ganisation et f onctin'-..-:ent du lilnistàre du Coooerce et TôuriËme ; l.e Décret N"90-26O ciu 21 Septembre 1990 poftant abrogation 4.:
+diôpositions du Décret No89:56 du 1l Févi.lèr 1989. iiÀtitu...;
+la Chanbre de Connerce et d r fndustrie du Bén1n ;
+Proposltion du Mlnlstre du Comoerce et du Tourlsoe Ccnsell des Ministres entendu en sa séance du 21 Octobre 'l (_:9 2 I t, c rr E î Et ."§qÊffi **t ârffiu"::iÉ " n]:;r ; .'*t " " *.13 ".î-.:'sr::i :mi l e i c e , ffi-fo; "f "u IÈ"È:ti:.:"":',îff :i;" :'olï.3ill"'iï"â..ï..ili;li:"u0." 1a Justice, sont chargés chacun il ;;-q;i rei oôr.eine,-"ae-ïiexd.,cu_ tion de ce décret qui-ab::oge toutes -À:-$ôsitions entérie rres contr-ai res et qui sera publlé au Journal_ ofrl"iàf.
+i1 Fait à COTONOU, Ie 5 NJvcmbre 1992 par }e Président de 1 République, Chef de lrEtat, Chef du Côuvern=àmént, --J Nlcéphore SCGLO Le Ministre du Connerce et du Tourisme, / Et,--t, Secréta1re résidence d.e 1a Le i'.!in!s1rs de I r fndustrie et des Fetites et i.loyennes .futreprlàes, Le iqini stre d I Généra1 à la p Répubt ue Désiré VIEYR o, Bernard H EGNON AIliPLIATIO NS n4f Àtr cTF.f, E.q DAN DLC J ti;?tr'*t-l}r#iffiiiâr ! PR 6 AN 4 CS 2 I,IJSGPR 4 IIIPME 4 McT 4 SCÆ 4 77 CCTB 10 DEAryIEII{E}IT5 4 DB DCF DSDV D1!YP DI A N,U ,,\iJ i 1r DCCT. GCONB CAA f UNB F!§Irp E],lA I ,rJO... 1.- REPUBLIOUE DU BENIN MINISTERE DU COMMERCE ET DU IOURISME CHAMBRE DE COMMEBCE ET D'INDUSTRIE DU BENIN DECRET No 92-302 DU 5-11-1992 PORTANT APPRO BATION DES STATUTS DE LA C. C. I. B _r T nT'LlT_.r DE LA CI]A},tsRE DE COMI{SRCE E[ D'INDUSTRTE DU BEMN (c. c. r. e. ) I -----o ----' a TITR,E 1 GENETIAL]TES
