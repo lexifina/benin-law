@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à COTONOU, le 08 septembre 1997 Par le Président de la République, Chefde l'Etat, Chefdu Gouvernement, Le Premier Ministre argé de la Coordination de l'Action Gouvernementale et des Relations avec les Institutions, Porte-Parole du Gouvernement, ~jl~ Albert TEYOEDJRE.- Ministre intérimaire Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, Le Ministre des Finances, Ampliations: PR AN 4 CS 2 CC 2 CE 2 HAAC 2 PM 4 MJLDH 4 4 AUTRES MINISTERES 16 SGG 4 DGBM-DCF-DGTCP-DGID-DGDDI 5 BN-DAN-DLC 3 GCONB-DCCT-INSAE 3 BCP-CSM-IGAA 3 UNB-ENA-FASJEP 3 JO 1.-
