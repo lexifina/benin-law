@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 20 octobre 2004 Pour le Président de la République, Chef de l'Etat, Chef du Gouvernement absent, Le Ministre d'Etat Chargé du Plan, de la Prospective et du DéveloPPement assurant I'intérim, Bruno AMOUSSOU.- Ampliations:PR6-AN4_CS2_CC2.CES2.HAAC2_MEPS4.MESRS4_Autres Ministères l9 - SGG 4 - Départements 6 - JO 1 DECRET N" 2 004.-. 5 91. . DU. .a0. . 0C 10BRE. . 200.4 Chargeant Monsieur Kémako Osstlni BAGNAN, Ministre de I'Enseignement Supérieur et de la Recherche Scientihque, est chargé de I'intérim de Madame Raliatou KARIMOU Ministre des Enseignements Primaire et Secondaire DECRETE
