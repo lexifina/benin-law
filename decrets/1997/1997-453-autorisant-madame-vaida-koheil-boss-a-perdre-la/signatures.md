@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à COTONOU, le 26 SEPTEMBRE 1997 par le Président de la RéPublique, Chef de I'Etat, Chef du Gouvemement, Le Premier Ministre, cha de la Coordination de e I'Action Gouverneme e et des Relations avec les Institutions, Porte-Parole du Gouvernement' /" A Adrien HOUNGBEDJI DECRETE I Le Ministre des Affaires Etrangères et de la Coopération, \ Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de I'Homme, Mini intérimaire Amoliations : PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2PM 4 MAEC 4 MJLDH4 AUTRES MINISTERES I5 SGG 4 DGBM-DCF.DGTCP-DGID-DGDDI5 BN6DAN-DLC 3 GCONB.DCCT.INSAE 3 BCP-CSM-IGAA 3 UNB-ENA- FASJEP 3 INTERESSEE 1 JO I.-
