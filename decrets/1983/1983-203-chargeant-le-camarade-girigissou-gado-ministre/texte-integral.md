@@ -1,0 +1,8 @@
+# Décret n° 1983-203 du 31 mai 1983 Chargeant le Camarade Girigissou GADO, Ministre des Travaux Publics, de la Construction et de l'Habitat de l'intérim du Camarade Taofiqui BOURAIMA Ministre des Transports et des Communications pour compter du 1er mai 1983
+
+/w JTÈPUBLIAUE POPUI,AIRE DU BENIN Article l,er.- Girigissôu-trO et de 1,Hablta et des Communi BOUIIAII4A.
+DECRET No 83-20f du f1 mal 1985 Chargeant Ie Camarade Glrlplssou GADO.
+I,linistre des Travaux Pub11ès, de 1a Constructlon et de ltHabltat-de 1ri.ntér1m du Camarade îaofiqul BOURAII,iA, l..iinistre des Transports et des Commucations pour compter du 1er Juin 19gJ. VIJ l rordonnance No 77-12 du 9_ septembre 1977 portant promulgation de la Lol Fondamental-e de Ia Ftépublique eoiulalre àu aanin et 1a Loi No 8r-oo'l du J février t-ga3 qüi-r;à-üüpiÈte" i-' vu le décret No 82-441 du J0 décembre 19g2 portant composltlon du Consell- Exécuttf National et de son Corrtè-pàrÀ";;i-;-' LE PRESIDBNT DE LA REPUBLISUE, CHEF DE L|ET.É!T, PRESIDENT DU coNsEIL EXECUTIF NATIONAL, DECR ETE Mathleu KEREKOU U PRPB 4 ANR 4 CPC 6 PPC 2 SO& 4 SPD 2 ivnc- ISTERES 18 I]PE-DLC- TNSAE 6 IGE 4 BN-DAN 4 DCCT TTNB.PASJEP 4 BCP 1 PREFETS 6 JORPB 1 ^Pour compter du 1er juln 1985, Ie Camarade .--r..1. ls,:.
+u, lvllnLstre des Travaux publics, de Ia Construction t est chargé de lrintérim du Mlnlstre aes irànsports catlons pendant l rabsence du Camarade Taoflqul ' Par 1e Présldent de Ia Républioue.
+9tqf de ltEtat, présideni Ou ionéeiI Exêcutif Natlonal, Arti c e 2.- Le présent décret sera publié au Journal Offlclel.
+Falt à Cotonou, 1e f1 nal 1 Ampliations : PR 6 ilfPTFIUTiJtnss nr oNijPI-cDE CtrANc. l PRESIDENCE DE LA REPUBLIOUE
