@@ -1,0 +1,7 @@
+# Décret n° 2005-126 du 17 mars 2005 Chargeant Monsieur Jean-Baptiste EDAYE Ministre de la Jeunesse, des Sports et Loisirs, de l'Intérirn de Monsieur Antoine DAYORI, Ministre de la Culture de l'Artisanat et du Tourisme, pour compter du Jeudi 17 Mars 2005
+
+ILEPUIlLtQilll DU BENIN PI{ESIDENCE D]J LA REPUBLIQUE DBCRET NO 2005.126 DU 17 MA.RS 2OO5 Chargeant Monsieur Jean-Baptiste EDAYE Ministre de la .leunesse, des Sports et Loisirs, de l'intérirn de Monsieur Antoine DAYORI, Ministre de la Culture de l'Artisanat et du Tourisrne, pour compter du Jeudi 17 Mars 2005.
+LE PRI'STDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOU\/ERNEMENT Vu la loi no 90-032 du 1 1 décembre 1990, poftant Constitution de la République du Bénin;
+Vu la ploclamation le 03 avril 2001 par la Cour Constitutionnelle des résultats rtéfinitifs de l'élection présidentielle du 22 rnars 2001 ;
+Vu le «Jéciet n" 2005-052 du 04 fevrier'2005 portant composition du Gouvernetnent ; Àt'tj§!g-l "": Monsieur Jean-Baptiste EDAYE, Ministre de la Jeunesse des Spofts et I-oisils, est cliargé de ['intérim de Monsieur Antoine DAYORI, Ministre de la Cultuie, de I'Artisauat e1 du Tourisme du I7 au 26 mars 2005.
+.A.rticle 2 : [,e' présent décret sera publié au Journal Officiel./ Fait à Cotonou, le 17 mars 2OO5 Par le Président de la République, Chef de l'trtat, Chef du GouveLncurent ieu KBREK U CS 2 _ CES 2 -HAAC2 _ MJLDFI 2 - MECP-PD 2 ALrtres Ministres l8- SCG 4 - Départernents 6 - JORB I DIICRETE AMPLIA'IIONS:Pit6-AN
