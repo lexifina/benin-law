@@ -1,0 +1,6 @@
+# Signatures
+
+Fait à COTONOU, le 06 Juillet 1994 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Nicéphore SOGLO.- Le Ministre d'Etat à la Présidence de la République, Chargé de la Coordination de l'Action Gouvernementale et de la Défense Nationale, t t " .../ ...
+Le Ministre des Finances, .
+~ ..
+Le Ministre du Plan et de la Restructura~ionEconomique, Paul DOSSOU.- ,/ Ampliations: PR 6 AN 4 cs 2 CC 2 MEPR-DN 4 MF-MPRE 8 AUTRES MINISTERES 16 800 4 DB-DCF-D8DV-DTeP-DI 5 BN-DAN-DLC 3 GCONB- DCCT-INSAE 3 BCP-C8M 2 UNB-ENA-FASJEP 3 JO 10- ,,,....
