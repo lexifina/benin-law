@@ -1,0 +1,12 @@
+# Décret n° 1987-235 du 3 août 1987 modifiant le décret N°84-98 du 20 Février 1984 portant création organisation et fonctionnement du Fonds Routier
+
+PRESTDENCE DE LÀ REzuBLIOUE DECRET N' 87-215 du I Aott 1987 nodlfiant le décret No 84-98 du 2O Février 1984 portant créationrorgalisation et lonctiorutement d.u Fonds Routier.
+IE PRES]DENT DE LÂ BTzuBLÏOUE CHEF DE LIETÀT, PRESÏDENÎ DU CONSEIL EruCUTIF Ni'IîI0NAL' .'-DECR]]TB Article Ier.-'Les disPositions d' 96-trtr0-Ttrvrier ''i 984 portar:t cr nement du Fonds Routier sont abr qui suivent :
+rarticle 12 du décret No 84- 1on, organisat ion -"et fonctiones àt rèmplacées par ce11es ct eat o8e icle 1 nouve u.- Le Direc-beur du Fonds Routier est nommé par Ministre Charg cre pr sen é des Conseil Exécutlf National sur propcsJ.tlon du lravaux Publics .
+11 est chargé de 1r administrati.on flnancière, -de-]-a-8estlon et de 1ruti.lisation du l:'ersonnel des Servlces du Fonds Routler. 11 élabore 1e projet du budget sur Ia base de La programmat ion arrêtê par 1r Ordonnateur du Fonds. REPUBLIOUE POzuLA,lRE DU BEI{IN W ltordonnance N".77-12 du 9 Septembre 1977 portant promulgatton de la Lol Forrdamentale dè Ia République Populalre du Bénin et 1es Lois Cônstitutlonnelles qul lront modifiée ;
+\rtI Ie décret No 87-rB du 1J Février 19BT portant composition du Conseil Exécutlf National et de son Comlté Permanent ;
+W 1e décret No &+-479 ilu 17 Décembre 1984 portant attributions, organisatioor -e.t.. f onct j.orrnement du Ministère de L r Equipement et des Transports ;
+VU 1e décret No 84-98 du 20 Févrler 1984 portant création, orsanisatlon et fonctionnement du Fonds Routler èt Le déëret No 85-214 du 4 Juin 1985 qu1 I'a nodiflé ;
+LE Comité Perrnanent du Conseil Exécutif National entendu en sa séance du 24 Juln 1987r Le Mlnistre des Finances et de 1r Ecorlomie , Barnabé BIDOUZO Mathi.eu KEREKOU Le Ministre de lrEquibement et des TransPorts , i-'-.*.*-.......
+Artlcle 2,- Le Ministrà de ltEquipe-ment e ËfrE?EfdE' rtexécutlon du présent décret q Journal Officiel.
+t des Traasporbs est ui sera publié au Falt à C0T0N0[J' 1. f tott iga7 oar Ie orésldent de 1a Républiquer- Ci,ef de ltEtat. Président du Consear Exécütif National, Soulé Amoriations s PR 8 SA/CCIPRPB 4 CPlAi{R 4 CPC 6 -PEC -2 }'{FE-MET 8 Ëiffii:Ëi=ière" 40 sc,cEN 4 sl'D 2 DFE-DI 10 DCCr-Gde-Çlanc. 2 ôfiËi,i"r'-îï"éètioàs àu-mC 1o Ponds Routier'4 ccrB 2 UNATRAB 2 UNB.FASJEP 4 .BN.DAN JORPts '1 ..
