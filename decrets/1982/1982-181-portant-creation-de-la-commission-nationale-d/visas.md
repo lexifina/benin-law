@@ -1,0 +1,5 @@
+# Visas
+
+PRESIDENCE DE LA REPIJtsLIOUE DECRET No 82-181 du 31 mal 1982 Dortant création de Ia Commission Nati'on:'Ie àtEtude des Equivalences de Dip16mes.
+I.E PRESIDENT DE LA REPT]BLIQUE, CHEF DE LtElAT, PRESIDEI{T DU CONSEIL EXECUTIF NAIIONAL, vu lrordonnance No77-J2 du 9 Septembre 1977 pottartt pronulgation de }a Ioi Fondamenlale de 1a- République Populaire du Bénin, VU Ie décret No82-124 du 9 Àvril 1982 portant composition du Conseil Exécutif National et de son Comité Permanent, VU lrordoru:ance No75-JO du fO Juin 1975 portant LÔi dtoriÉrnt.tio'r de 1r Educatlon Nationale ;
+VU le décret No81 -84 du 18 I'tars 'l 981 portant organisation et attributions du Minlstère de lrEnseignement Supérieur et ''i: 1a Rechcrche Scientiflque, vU écret No76-1 17 du I Mai 1 976 pottant création de Ia Co|ir:'is- Nationale dtBtude des Equivalences de Diplômes, Sur propositlon d.u lriinistre de ltEnseign.ement Supéricur et de Ia Recherche Sci-enti.fique, Le Comité Permanent du Conseil Exécutif National entendu en sa séance du 19 Mai 1982, 1ed sion E T E R
