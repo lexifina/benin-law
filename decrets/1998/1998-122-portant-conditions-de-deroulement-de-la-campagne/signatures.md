@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à COTONOU, le 3r üars 1e98 Par le Président de la République, Chef de I'Etat, Chef du Gouvemement, Mathieu KEREKOU.- Le Premier Ministre, chargé de la Coordination de I'Action Gouvernementale et des Relations avec les Institutions, Porte-Parole du Gouvemement, Adrien HOUNGBEDJI.- Le Ministre du Commerce, de Le Ministre du Développement l'Artisnanat et du Tourisme Rural a 2 z'a Jérôme SACCA KINA.- Ministre intérimaire AMPLIATIONS:PR 6 AN 4 CS 2 CC 2 CES 2 HAAC z}/P 4 MCAT 4 MDR 4 AUTRES MINISTERES 15 SGG 4 DGBM-DCF-DGID.DGDDI- DSDV 5 BN-DAN.DLC 3 GCONB-DCCT-INSAE 3 BCP-CSM-IGAA 3 UNB-ENA-FASJEP 3 JO I f'"/*"7t-/--
