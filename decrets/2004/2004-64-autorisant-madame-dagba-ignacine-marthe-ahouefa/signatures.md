@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 11 février 2004 Par le Président de 1a République, Chef de I'Etat. Chef du Couvemer.nent, Mathieu KEREKOU Le Ministre des Affaires Etransères Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, et de l'h.rtégration Afii ne, Arr+dc-,-- oga len BI t Dorothé C. SOSSA.- AMPLIATIONS : PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 MAEIA4 MJLDH4 AUTRES MINISTERES I9 SGG 4 DGBM-DCF.DGTCP-DGID-DGDDI 5 BN-DAN-DLC 3 GCOMB-DCCT-INSAE 3 BCP-CSN-IGAA 3 UAC-ENAM- FASJEP 3 UNIPAR-FDSP 02 JO I Articlc 3 : Le pr'éser.rt Décret sera publié au .loumal Officiel.
