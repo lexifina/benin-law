@@ -1,0 +1,9 @@
+# Visas
+
+NXPIE1TSUE POPUI,AÏAE DU BENIN PRXSIDENCE DE IA REPUBIIQUE DECRIT No 81-iZg ô,u 28 avril 1981 abrogeant, pour comp en ce qui concerne l- GNONI0NFOUN Joseph, du 25 rnars 1981, âmara6e IIQUN1,JANOU résentant de la ter eC Rep République Populaire du Bénin à fa Commis sion des Droits de l-rHomme des Nations Unies et Directeur Général Adjoint du Ministère du P1an, de la Statistl-que et d.e I'Analyse.Ilconomique, 1es dispositions des d.écrets Nos 78-282 et 78-140 du 16 octobre 1978 et du 11 déceubre 1978.
+IE PRESTDENT DE IA REPUBIIQUE, CHXF DE I'ETÂT, ?RESIDENT DU CONSEII EXECUTIF NATIONAI, VU L'ordonnance no 77-12 du 9 septembre 1977 portant promulgation .- de Ia loi Fondamentale de la République Populaire du Bénin ;
+VU le d.écret no B0-]9 du 12 février 1980 portant composition du Conseil Exécutif National et de son Comité Perrnanent I VU 1e décret rP 78-282 du "15 octobre '1978 nommant Ie Camarade iIOüNÏ'IANOU GNONIONFOUN Joseph en qualité de Représentant de Ia République Populaire du Bénln à la Commission des Droi.ts tle I'Horme des Nations Unies ;
+VU le décret no 78-140 du 11 décembre 1978 portant nomination dans les Ministères du PIan, de Ia Statistique et d.e Ia Coopération Teclurioue, de I'Intérieur, de la Sécurité et de 1'0"ientation Natio4a] e et, {p B§veleppeurent Rural et de lrActioa Coopérative ;
+VU ]e Relevé no 11ISGG/REL du 25 nars 1981 des décisions adninist_ratives adoptées par le Cornité Pemanent du Conseil Exécutif National en sa séàce du 25 mars 'lÿ81 ;
+DECRETE Article Ier.- Pour compter du 25 nars 1981, sont et demeurent a-b-ogées en ce qui concerrre Ie Csmarade H0UNI'I^N0U GN0N1,0NF0UN Joseph, Représentant de la R§publique Populaire du Bénin à Commission des Droits tle I'Homme des Nations Unies et Direc Général Adjoint du Ministère du P1an, de la Statistique et lrAnalyse Economique, Ies dispositions des ôécrets Nôs 78-2 78-140 du 16 octobrc 1978 et du 11 6écembre 1978 susvisés.
+la teur cle 82 et Z
