@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou,le z7 oc*"obre 200J Par le Président de la République, Chef de l'Etat, Chef du Gouvememenl, Nlathieu KEREKOtT.- Bruno ANIOTISSOU Le Ministre des Finances et de l'Economie, Le Ministre de l'Industrie, du Commerce et de la Promo de I'Emploi, u.- ou AKPLOGAN.- Le Ministre d'Etat chargé du Plan, de la Prospective et du Développement .i''c- Le Ministre de la Fonction Publique, du Travail et de 1a Réforme Administrative, Ilouba AROUNA.- AMPLIATIONS : PR6AN4CC 2 CS 2HAAC 2 CES 2 MCPPD 4 MFPTRA 4 MICPE 4 MFE 4AUTRES MINISTERES I8 DGBM-DCF- DGTCP- DGID- DGDDI 5 BN-DAN-DLC 3 CCONB-DCCT-INSAE 3 BCP-CSN .IGAA 3 UAC.ENAM-FADESP 3 UNIPAR-FDSP 02 JO I.
