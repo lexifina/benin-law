@@ -1,0 +1,8 @@
+# Signatures
+
+Fait à Cotonou, le 22 Septembre 1999 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, athieu KEREKOU.- Le Ministre d'Etat, ch de Ia Coordination de l'Action Gouvernementale, du Plan, du Développement et de la Promotion de ÏEmploi, t Daniel TA\ryEMA..
+Ministre intérimaire Le Ministre de la Fonction Publique, du Travail et de ia Réforme Administrative, Jose o LO Le Ministre des Finances et de l'Economie, --.-z Joseph Sourou ATTIN.- Ministre intérimaire Ministre intérimaire Article 5.- Le Ministre d'Etat, chargé de la coordination de l'Action Gouvernementale, du PIan, du Développement et de la promotion de l'Emploi, le Ministre délégué auprès du Président de la République, chargé de la Défense Nationale, le Ministre de l'Intérieur, de la sécurité et de l'Administration Territoriale, le Ministre de la Fonction Publique, du Travail et de la Réforme Administrative, Ie Ministre des Finances et de l'Economie et le garde des sceaux, Ministre de la Justice, de Ia Législation et des Droits de I'Homme sont chargés chacun, en ce qui le concerne de l'exécution du présent Décret qui sera publié au Journal Officiel.
+-\ Le garde des sceaux, Ministre de Ia Justice, de la Législation et des Droits de l'Homme, Jose N NLOI{ N.- Le Ministre délégué auprès du Président de la République, chargé de la Défense Nationale, aniel E MA.
+Ministre Le Ministre de l'lntérieur, de la Sécurité et de l'Administration Territoriale, Daniel T EMA.- AMPLIATIONS : PR6 AN 4 CS 2 CC ?IIAAC 2 CES 2 MECCAG' PDPE 4 MDN 4 MISAT 4 MFE 4 MJLDH 4 MFPTRA 4 AUTRES MINISTERES 15 SGG 4 DGBM.DCF-DGTCP-DGID.DGDDI 5 BN.
+DAN-DLC 3 GCONB.DCCT.INSAE 3 BCP-CSM-IGAA 3 UNB.
+FASJEP.ENA s INTERESSES 28 JO 1.-
