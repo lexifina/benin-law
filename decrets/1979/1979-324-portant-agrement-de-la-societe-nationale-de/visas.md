@@ -1,0 +1,7 @@
+# Visas
+
+REPUBLIAUE POPIJL\IRE DU BENIN PRESIDENCE DE I-.i REPUBLIQUE -:-:-:-:-:- LE PRXSIDENî CHEF DE LIETAT, Commission Technique des Octobre 1979 DECREI No 79-324 clu 6 décembte 1979 portant agrément de ]a Soclété NAÊionale àe Brasseiies IJr BENINOISE au régj-me B du Code des Investissements pour son Unité de Parakou.
+DE IÀ REPUBLIQUE, CHEF DU GOUVERNEMEMI, lnvestlssements en sa VU l rOrdonnâàce 'no 77-32 du 9 Septembre 1977 portant promulgation de }a Loi Fondamentale de 1a Rénub1i-gre Populaire du Bénin ;
+VU 1e décret no 76-26 du JO Janvier /portant fornation du Gouvernement et Le décret no ?8-171 du 6 Juillet 1978 qui lÎa modifié ; 46 du 19 Ppvrier 1976 déterminant les services résldence de 1a Républlque et flxant 1es attrires du Gouvernement modifié par Ie décret ui11et 1978 t VU l-Iordonnance no 72-O1 du 8 Janvier 1972 pottant Code des Inv-es:
+tissements modiflé par ltordonnance no 76-11 du 19 Février 1976 VU 1e décret no ?2-7 du 17 Janviet 1972 fixant 1es modqli-tép dr.apl Dlication'des dlspositlons de 1! ordonnanc e no 72'1 du I Janviêr ig72 portatrt Code'des Investlssements I SUR Proposition du ÿiinistre DéIégué auprès du Président de 1a Répub1lâue, Chargé du P1an, Oe 1à statistique et de ta Coopération Tecitnique, VU le décret no rattachés à butions des No 78-1 74 du Après,avis seance de du 1a q laP Memb b.J Le Cons eil 4 0ro notlficatron du présent décret.
+des Mlnistres entendu en ga séance du 28 Novembre DECRETE
