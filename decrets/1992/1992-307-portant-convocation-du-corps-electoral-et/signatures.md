@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à COT'ONoU, 1e 16 Novembre 1992 par Ie Président de 1a République, Chef de 1lEtat, Chef du Gouvernement, Nicéphore S0GL0 Le MJ.nistre d.rEtat, Secrétaire Généra} à Ia Présidence de 1a Répub11que, I Le Ministre de lrJndustrie et des Petj.tes et Moyennes Drtrepri ses, Florentin i'{ITO-BABA. - Ministre lntérLnaire !-( ,l { I Bérnard HOUEGNON Le Mlnistre de Ia Justice et de 1a Léglslation, Yves YEHOUESSI Le Ministre de 1tfntérieur, de 1a Sécurité et de lrAdministration Territoriale, ,i rt Ampliations : PR 6 AN 4 CS 2 IVIESGPR 4 MCT 4 M-tpME 4 }/tIL 4 MISÀT 4 MTPT 4 IVIF 4 SGG I+ DB.DCF-DSDV-DTCP-DI 5 DPE-INSAE 2 DLC-IGE-DCCT- GCONB 4 UNB-FASJEP,2.BNA-CSM.DAN.BN 4 JORB.1 .- I Rlchard A.ÀIAHo
