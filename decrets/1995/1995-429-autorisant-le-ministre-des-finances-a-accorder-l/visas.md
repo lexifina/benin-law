@@ -1,0 +1,9 @@
+# Visas
+
+/BA REPUBLTAUE DU BENIN PRESIDENCE DE LA REPUBLIOUE VU V(J 1e-Décret N" 95-f81 Gouvernement ;
+DECRET No 95-429 du 29 Décembre 1995 Ar-rtorisant 1e Ministre des Financès à accorder 1r aval de lrEtet en garantle du prêt complémentalre de 531 Millions de francs CF Afri-c aine A Société Bé (senn) aan consenti oar 1a Banoue Ouest e Dévelopfement (aolO) à fa inolse dt Electriclté et drEau le cadre du financement du d n s proiet dt anénagenent Hydroélectrlque de Yéripao-Natitingou.
+LE PRES]DENT DE LA REPUBLISUE, CHEF DE LIETAT, CHEF DU GOUVERNEMENT, ÿ'II }a Lol No 9O-O32 du 11 Décembre 1990 portant Constitution de Ia népqbJ-i4:e du !Énin ;
+vU 1r orô.onnairce No 47,/PR du 22 Aott 1968 autorlsang le Gouvernenent à accorder lrava1 de ltEtat âux EtablissèEênts Bgncaire s et finanolers, en garanlle des prêts et avances à consentlr aux collectlvités publigues secondaires, EtablisseûEnts, Institutions et Organismes publics et privés de 1a Répub1lque du Bénin ;
+ÿIJ la Décision No 91 -o42 /ifCR /PT du J0 Mars 1991 portant pr.oc].aostlô.r des résultats définltifs du deuriène toun d.es électlone présldentielles du 24 Mars 1991 i le Décret No 92-21 du 6 Févrieî 1992 augorisant 1 Finances à accorder 1r aval de frEtat en garantie mI1llons de francs CFA consenti par 1a Banque Oue Développement (BoéD) à 1a Soclété Bénlnolse dtEle drEau (SBEE) ;
+e l4j-nistre des du prêt de 566 st Lfricelne de ctlicité et du 22 Novembre 1995 portant composition du SUR Propositlon du l.tinistre des Finances ;
+LE Conseil des Ministres entendu en sa séance drt 27 Décembre 1995r DECRETE Artlcle 1er.- Le l4ir: istre des Flnances est êutori"sé à accorder frAval EeTEtfa:E.E la Société Béninolse dtElectricité et drEau (sseE) en garantie du remboursement du prêt comp).émentaire de 513 ml1l-1ons de francs CFA accordé par 1a Banque Ouest Africaine de Développement (BoXD) poup 1e financemenl du projet rrAménagement Hydroélectrique d.e Yérlpar à .Natitingou .
