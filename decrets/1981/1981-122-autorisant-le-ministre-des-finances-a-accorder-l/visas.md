@@ -1,0 +1,10 @@
+# Visas
+
+RXPiEIIQUE P0PUITiIBB DU BENIN PRESIDENCE DE IÀ REPIEIIQUX W 1e d.écret no 80-J9 d du Conseil Exécutif DECRET No 81-1't2 ùt 20. avril 1981 autorisant le ijinistre tles t'inanees à accorder I'aval de I'Etat à 1a Banque ConnerciaLc du Bxnin (BCB) pour un rnontant maxinurn rle i80 millions (180 000 000) de francs CFÀ couvrant 1e nontant ,1es traj.tcs de l'Office d rApprovisiorurement de iT tât' (OIE) pour I'achat de fournitures scslaires pour 1a rentrée scolaire .198i.
+I,E PRES]]ENT DE ti -TEPUBIIQUE, CHEF DE IIEÎ,'.T, PRESIDEMI DU CONSEII EXICUTIF N,iTIOI[,'J, VU f'ortlonnance no'77-32 du 9 septembre 1977 portant promulgation de la loi Fondamei-rtal-e de la R6publique Populaire d.u Bénin ;
+u Na 12 février 1ÿ80 portrart composition tional et de son Comité Pennanent ;
+VU I'ordorur.ance nÎ 47ÆR du 22 l\ott 1968 autorisant Ie Gouvernement à accorder l-'ava1 de I'Etat aux établissenents bancaires et financiers en garalltie des prêts et avances à consentir alx Collectiv-ités Publiques seeondai.res, Etablissenents, iàETîfutions-èt Oaganismes Publics et Piivés de la RxpuÉlique Populaire du Bénin ;
+SIIR proposition du }linistre des Fihances Le Comité Pemanent du séance "du i6 Avril Conseil Exécutlf National ententlu en sa 1981 ;
+DECEETI Âlticle ler.- Ig llinistre des Financcs est autorisé à accord.er 1'âva1 del'Etat à la Banque Commerciale cu Banin (BCB) pour un nontant maxi.nun de 180.000.000 (0ENT r1uiT1îE VINGI i"lIlLIoNS) de F CFA couyrant le nontnnt des traites que lui présentera ftOffice drApprovisioru:ercent de I'Etat (0hE) cn vue du règlement du cott d'acquisition de fournitures of ouvrages scofaires pour la rentrée 198i.
+Àrticle 2.- L,es engagements résultant irour 1a République Populaire d-u Bénin de cet aval- ne pourront excéder l-a somme mentionnée à 1 t article ler ci-dessus majorée des intérêts, frais tlivers, inpôts et intérêts moratoires qui seraient la conséquence du crédit visé à 1'article précéd.ent.
+Article l.- l"s modafités et conditions tl'octroi de I'aval visé E-TrâlTîôte 1ei seront rég1ées par 1e Ministre des Finances lequel est habilité à sigaer tous les actes et docurnents s'y rapportant.
