@@ -1,0 +1,5 @@
+# Décret n° 1973-09 du 13 janvier 1973 chargeant le ministre des Affaires Etrangères de l'intérim du Ministre de l'Information et du Tourisme
+
+REPUBIÏQUE DU DATOMEY -:-!- P1IESIDENCE DE IA R]IPUBI]QUE -!-3- DEgRlrll No?r-g au 17 j":nrrier 1973 chargealt 1e Ministre des .Affaires Etrangères de ltintérj-m du l4lnistre de J-rlnfornoation et du Tou-risme. IO PRESIO]JNT DT 1A RNPI]BI,]QIIE, CHEF Dn lrETAT, CHEF DU GOII\rii.iIS.iI"iENî, VU Ia Proclarnation du 26 octobre 1972 YU l-e Décret No72-279 tlu 26 6ctobre 1 verrlement, par I-e Président de 1a République, CYre f de 1r''tat, Chef du Gouvernement, Anp1iat ions portant forrnation du Gou- Y ltt DECRETE :
+A-RTICIE ler - Pour cornptcr du 9 janvier 1977, 1e Chef de Bataillon Michel AILADAYE, lvlinistre des Affaires Etrangères, est chargé d.e f intériro tlu Ministre de lrlnforuation et du Tourisme, pendànt J-rabsence du Chef de Bataillon Pierre KOFFI. ABîICIE 2 - I,e présdnt décrct sera publ_ié au Journal Officiel.- Falt à COTONOU, J-e 17 )arw:-er 1973 t I Che f de Bataiflon Mathieu ffiEKOU PR I - CS 5 - llini-stèrcs l1 - SGG 4 - I.A,A.-DCCT-CNI , 2 -rDEP-DGAJI-Dtion Stat. 6 - JORD 1.
+lGF-Gde Chanc ,
