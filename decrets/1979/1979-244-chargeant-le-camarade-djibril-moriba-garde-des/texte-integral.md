@@ -1,0 +1,9 @@
+# Décret n° 1979-244 du 18 septembre 1979 chargeant le Camarade Djibril MORIBA, Garde des Sceaux, Ministre de la Justice, de la Législation et des Affaires Sociales, de l'intérim du Camarade André ATCHADE, Ministre du Commerce et du Tourisme, pour compter du 17 Septembre 1979
+
+RUPUBLILUE POPULÂIRb DU BENIN PI{]ISIDII{CD DE LA REPUBLIQUE E PRESID],NT DE LIETAT, DECRtrT tto 79-244 d.u 18 Septeiiûrre 1r'l9 chargeant le Camarade Djlbril i'rOlt-i!-', Garde des Sceaux, Itiinistre d e 1i.,. Justice, cie 1a Législation et des ,'-fiiires Socia1es, d.e lrintérim du Camarade André r',TCHÂDE, Ilinistre du Commerce et du Tourisme, pour compter du 17 septernbre 1979.
+DE I,TT RBPUBLIQLIE, CHdF DU GOUVERI\IIIIqENT, L EF CH VU lrOrdonnance No 77-12 du 9 septembre 1977 t portant promulg:.rtlon de }a Loi- Fondamental"e de l-a République Populaire du Bénin ;
+VU l-e décret 5o 76-26 du J0 Janvier 197 6 portant formation du Gouvernement et le décret No 7A-171 du 6 Julf]-et 1978 qui 1 ta mndi-flé ;
+VU }e décret N' 76-46 du 19 Février 1976, déterminant 1es services rattachés à l-a Présldence de 1a République et fixant les a*'-r'ibutions des membres du Gouvernement modifié par J.e décret Na 78-174 du 6 Julllet 1978 ;
+D E.C R E î tr Àrtic]e ler - Pour compter du 17 septembre 1979r le Camarade Djil-ri MORIB;1, Gàrdé aes Sceaux, l4inistre de fa Justice, de 1a Légis}:.tion et des Âffaires Social-es, est chargé de 1r intérlm du lulinj-stre du Comnerce et du Tourisme , pendant 1r absenc e Cu Camarade André ;rTci{,:'iit Àrticle 2 Le présent décret sera publié au Journal Officief.
+Fait à COTOIIOU, 1e 18 SePtenbre 1aR duG par Chef leP de1résident de rEtatl Chef épublique, ouvernement, I I Iÿlathieu KEREKOU Ànpliatio;rs : PR 8 CS 6 CC SGG 4 r'tJLriS-MC tàTreS TTS_PD 2 BN 2 BN 2 UN ONEIPI-Gde Chanc. f JORPB 1.
+T6a .Etbl utres r.i lis- GE 4 DCL-idq EP i+ DPE-D,ILJL-INSa
