@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Porto-Novo, le LE PRESIDENT DE L'ASSEMBLEE NATIONALE Bruno AMOUSSOT.I
