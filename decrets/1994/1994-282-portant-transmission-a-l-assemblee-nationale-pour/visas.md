@@ -1,0 +1,30 @@
+# Visas
+
+îMJ.- REPT'BLIOUE DU BENT}I PRESIDENCE DE LÀ REPUBLIIUE DtrCRET No 94-282 d.u 12 Septembre 1994 oortant transmission à 1t Àssemblée Nationale pour autorisation de ratification dü Tratté de l-t/\ssociatioti nour fe Développenrent du Pa].mj-er à uuire (loPu) LE PRESIDENT DE LA REPUBLTQUE, CHEF DE LtETAT, CTIEF DU GOU\ERNEMENT, Vu ].a Loi go 90-32 c1u 11 Dlcembre lggQ portant Constltution de 1a Répub1lque du Bénin ;
+vU la Déclsion No 91 -O42/HCR/PT du JO l{ars 1991 portan!-Proclamation-àè" risultâts Oéîtnltits du deuxième tour des élections pré sidentie]-Ies du 24 Mars 1991 i IIIJ 1e Décret No 94-114 du 06 t'lai 1994 portant composition du Gouvernement I w 1e lraité de liAssociation pour 1e Développement du Paknier à H"iié (mpH) adopté par lrAisemblée Général-e 1e J0 Âvril 1992 à Benin CitY au Nigérla ;
+LE Conseil des Mlnistres entendu en sa séance du 24 Àott 1994 ;
+DECRElE Le Traité de 1rïssociation pour te DÉ tletoppement du falmier' à Huile (nOpg) adopté à Benj.n City au Nigéria, -fe--Jo.Àvri1 1992, pat irÀ"".*tiA" Généraie sera présenté à 1,r\ssemblée Nationale par 1e ItfriiÀirÀ-a.s Aifaires Etraàgères et d.e La Coopiratlon, 1e Ministre a"- O;vèioppàment Rura1, 1e Mini-stre de lrlndustrie et des P€tites et MoVennèè Entreoriseè et Ie llinistre Chargi des Relatiôns iiveü ie Pailement, Porie-Parole du ëouvernernent qui sont chargés dren expogef 1es irotif s et dten solrtsni:r ]-a d.i scusslon' E}POSB DES I'{OTIFS Le Président du Comité Exécutif de lrAssociation pour 1e Dévelonpenent du Palmier à Huile (:1DPH ) a i,nvité Ie C'ouverneme-,r 1,'.r Bà;i;--à-;ig"er et à ratifler 1e Traité adopté par lrrlssemblée üér,,,' rale de 1rÂssociation en ÀvriI 1992.
+.../ ...
+En effet, ltAssociation Pour I P.almier à Huile (a O p H) qui regroupe pâlmier à huile dont 1e Bénin, est régi 1941 par un Acte Constitutif que notre E11e a son 'siège en Côte-dtlvoire et a autres, de :
+e Développement du ài"-pàvu-itoducteurs de e depuis sa création en pays a ratifié en 1985.
+pour objectifs, entre
+- développer et dfentretenir 1a cooplration et 1a coordination tecirniduès économiques entre les instj-tutions des pays àfricains en mat-ière de politiques, programmes, projets équipements, i-nformati@ sur- les banquei de données dans Ie secteur des oIéagineux pérennes ;
+- assurer J.a formation des chercheurs, gestionnaires et cadres moyens eu supérieurs ainsi que des techniclens responsables soit de 1a pioduction des o1éagineux pérennes ou- de ia trqt:sformation de leurs huiles, soit des services de vulgarisatlon agricoles I
+- établ-ir et consolider. en tant que de besoin, relations avec 1es organj-smes internationaux afin que 1 soit suffisamment repiésentée dans la productlon, la tr mation, le commerce ôu tou'c autre secteur 16p6rtant du lopper:rént des oIéagineux pérennes ;
+- rester en contact étroit avec lrindustrle des oIéaglneux pérennes en généra1 et l-es fabrl-cants et distributeürs d? équipement en particulier qui sont aptes à nettre au pôint l-es techniques requises.
+les a région ansfordéve- LtAssociatioll pour 1e Développement du Pafmier à Huile (A D P H) a pour fonctions :
+- dtéchanger ltinformation et 1es expériences -entre Ies organismes coàcernés par 1es oléagineux pérennes des Etats membres et nori mcrrbres ;
+- de prendre part aux conférencesr sémiÉaires et, - prouoes de traïail sur Ia producticxt, ].e tiansforrna ti ou et' 1a Ërmnierciali sation des hu1lr,r ct produits I
+- de Publie toute inforrnation d ciation i r de s documents teckrniques ie -Lr'avaii et estinée à mieux fa-i.re connaltre ]-tAsso-
+- drorganlser d.es groupes d.r.'-ltudes et de mettre sur pied 1es o"satë" subsid-iaiies àécessaires pour mener à bien ies activités de lrAssociation ;
+dtétablir et d'entreteni-r, en tant que de b-e-soj-n ' des relations avec 1es organismes du système des Nations Unies e-l ilil;-;il";' instiiuti6" de recherche, d rasslst"ttg" !:-g!fiiY:
+ou de financément, dans Le but de pro&ouvùlr ou c'i cÔnpr-' L-:
+-'l es ac1:.-vités de I rAssociation' Par rapport à lrActe Constitutif 'te-1!!i,^r;'T:::l:" adopté en avril 1992 consacre 1a t--?ns{orT?ti:1,$: }:*::.9:i?ll:'t .;"ü;; àïeâ"iiât: "n-rÀiâin"tionaf e de droit. pubric .r",li'ir':: i;rorr'1 àet8u a" Ia perso.rnalité internaticna-1-e pl-cine et enllere ' / "" 'r' La ratification de ce Tiaité par notre pays perrettra à lrOrganisation de joulr des facili.tés, immunités.et prlvllèges accoid.és aux misslôns diplomatiques et organisatlons internationales accréditées en Côte-d'Ivoire.
+..
+Cette ratification traduira également ltintérêt que notre pays accorde aux probl,èmes de ]-rAssociati6n pour 1e Développement âu- Palmier à Huilê (nrpti) dont ]-e Secrétariat est confié à notre compatriote Sourou Baudelaire HOUNSINOU.
+Fait à Cotonou, 1e 12 Septembre 1994 par le le Prési.rient rle 1a RépubJ-ique, Chef de lrltat, Chef du Gouvernement, tF-l',. 'i-. " l( Nlcéphore SOGilO Le Ministre du Développement Rura1, Le t{inistre de 1rIndustrle et Ces P etite s et lvioyenne s tlntrepri se s , .:itrl ,( l'tama ADÂMOU-NIDIÀYf Rlsobert 0. LIIDIKPO es Affaires JJtrangères e . a Coop'iration.
+Le Mini str eed:c Robe t M. DOSSOU Crest pour toutes ces considjrâtions que jrai }.rhonneur d.e soumettre à llapproba.tion de votre Auguste r\ssembl-ée 1e-Traité de 1rÀsscciation pôür Ie Déve}-"pcrnent dù Palmier à Huile (ADPH) adopté en avril 1992 par 1lAssemblée Générale aux fins dren obtenir lrautorisation de ratification. - Le l,iini stre dtEtat à 1a Présidence de 1a République, Chargé de 1a Cooril j-nation de 1rÀction Gouvernementale et de Ia Défense National.e, ,, .'.;i; ;
+.
+{.,.,, nésirC vrÈrRa Le Ministre Ie Parlemant -J rndÉA .jcs Ée'.o'oisre &vîc , fti'ite-Paro]. e du tower- ,refiêrlt, Théodpre H0J-0 AmDliations : PR 6 AN 70 CS'iz CC 2 MEPR.DN 4 MDR 4 MIPI'IE 4 MRP 4.- t.
+! /vs REPUBLIOUE DU BENIN -^-SSEI\BLEL NÂîI oNiILE LOT N '' portant autorisation de ratification du Traité de 1tÀssociation Pour le D.iveloppement du Palmier à Huile (ADPH).
+L raSslll'ELEE NATIOIIÀLE a délibéré et adopté en sa séance du 1a Lo-i- dont l,-.1 teneur suit.
