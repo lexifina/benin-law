@@ -1,0 +1,4 @@
+# Visas
+
+REPUBLIQUE DU BENIN PR-ESIDENCE DE LA REPUBLIQI,TE DECRET N" 97-507 DU 16 oCTOBRE 1997 Chargeant Monsieur Kamarou FASSASSI Ministre des Travaux Publics et des Transports de l'intérim de Monsieur lsmaël TIDJANI-SERPOS Garde des Sceaux Ministre de la Justice de la Législation et des Droits de l'Homme.
+LE PRESIDENT DE LA REPUBLIQTIE CTIEF DE L'ETAT, CHEF DU GOUVERNEMENT, VU La Loi N' 90-032 du I I décembre 1990 portant Constitution de la République du Bénin, VU La Proclamation le ler Awil 1996 par la Cour Constitutionnelle des résultats déf,initifs de l'élection présidentielle du t8 Mars 1996, VU Le Décret N'96-128 du 09 Awil 1996 portant composition du Gouvernement, DECRETE Article ler : Pour compter du 15 Octobre 1997, Monsieur Kamarou FASSASSI Ministre des Travaux Publics et des Transports est chargé de I'inténm du Garde des Scearx, Ministre de la Justice, de la Législation et des Droits de l'Homme pendant l'absence de Monsier-r Ismaël TIDJANI-SERPOS.
