@@ -1,0 +1,10 @@
+# Visas
+
+REPUBLIOUE DU BENIN F ât.rnllé - J(ttlc. - lÉÿâll .ra.adr l.lrlitirlt rEll rlil LiulJIt Èua lÀ&.lvilr CABINET DU PRESIDENT ORDONNANCE NO 97. I2IPCS.CAB DU 4 MARS PORTANT NOMINATION DE MONSIEUR GBAGUIDI A. NOEL EN QUALITE D'ASSISTANT A LA CHAMBRE JUDICIAIRE DE LA COUR SUPREME LE PRESIDENT DE LA COUR SUPREME DE LA REPUBLIQUE DU BENIN, vu : La Loi N'90-3.2 du l1 Décembre 1990 portant Constihrtion de la République du Bénin;
+VU: L'Ordonnance 2|lPR du 26 Ar.ril 1966 remise en vigueur par la Loi N" 90-12 du ler Juin 1990 et portant composition, attributions et fonctiorurement de la Cour Suprême;
+VU : L'Ordonnance N" 92-009/PCS-CAB du 14 Mai 1996 portant régulatisation de la situation adrninistrative des Assistants de Charnbre et des Vérificateurs à la Chambre des Cornptes de la Cour Suprême ;
+VU : L'Ordonnance No 96-001/PCS-CAB du 8 Janvier 1996 portant composition, attributions et fonctionnetnent du Cabinet du Président de la Cour Suprêrne ; VU : L'Ordonnance N" 9I-10/PCS-CAB du 14 Août l99l abrogeant I'Ordomance N" 90-15ÆCS-CAB du 17 Décembre 1990 et fixant les avantages en natue et er espèces alloués aux Magistrats et au Persomel de la Cour Suprêrne ;
+\rU: Le Décret N" 95-382 du 22 Novernbre 1995 portant nornination de Monsieur Abraharr ZINZINDOHOUE cn qualité de Président de la Cour Suprême , VU : Le Procès-verbal relatif à la prestation de sennent de Monsieur Abraham ZINZINDOHOUE en date du 30 Novembre 1995 ;
+Vu : La lettre N" 0119/MENRS/CAB/DC/SP-C du 11 Féwier 1997 mettant Monsieur GBAGUIDI A. NOEL à la disposition de la Cour Suprêrne , Considérant les nécessités de Service ;
+Le Bureau de la Cour entendu en sa séance du I 2 Féwier 1997.
+! TEL:(229) 31 -31 -05/31 -50-47 FAX| (229) 31 -54-92 01 B.P 330 Rp COTONOU ORDONNE r Article ler : Monsieur GBAGUIDI A. Noël, Docteur en droit, Enseignantchercheur à l'Ecole Nationale d'Adrninistration de I'université Nationare du Bénin, est nomrné Assistant à la Chambre Judiciaire de la Cour Suprême, cunulativement avec ses fonctions actuelles.
