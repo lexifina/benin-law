@@ -1,0 +1,5 @@
+# Visas
+
+REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE DECRET N" 97-45 DU 12 FEVRIER 1997 chargeant Monsieur Moise MENSAH Ministre des Finances de I'intérim du Président de la République pour compter du I 2 Février 1997' Article ler : Pendant l'absence de Monsieur le Président de la République, Chef de I'Etat, Chefdu Gouvernement. Monsieur Moise MENSAH, Ministre des Financcs est chargé d'assurer I'intérim dès le départ de la délégation Présidentielle pour Abudja (RépLrblique Fédérale du Nigeria) ; Articte 2 : ll est délégué à Monsicul Moisc MENSALI clurant cette période, les pouvoirs de chef de LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT, VU la Loi No 90-032 du 11 Décembre 1990 portant Constitution de la République du Bénin; vu la proclamation le ler Avril 1996 par [a cour constitutionnelle des résultats définitifs de l'élection présidentielle du I 8 Mars 1996 ;
+vu Le Décret No 96-128 du 09 Avril 1996 portant composition du Gouvemement DECR.ETE:
+Gouvernement ;
