@@ -1,0 +1,5 @@
+# Visas
+
+REPUBLIQUE DU BENIN PRESIDENCE DE LÀ REPUBLIQI.IE DECRET No 99-rr r.r : ilg '1 li s{'ri' i..Oriii,rr,. i ','1r(l Chargeant Monsieur Luc-Marie Constant GNACADJA Ministre de l'Enüronnement, de I'Habitat et de l'Urbanisme de l'intérim de Monsieur Zinsou Damien Modéran ALAHASSA, Ministre de l'Education Nationale el de la Recherche Scientifique LE PRESIDENT DE LA REPUBLIQTIE, CHEF DE L'ETAT, C}IEF DU GOUVERNEMENT VU : La Loi N' 90-032 du 1l Décembre 1990, portant Constitution de la République du Bénin ;
+VU : La Proclamation le ler Avril 1996 par la Cour Constitutionnelle des Résultats définitifs des Elections Présidentielles du 18 Mars I 996 ;
+VU : Le Décret No 99-309 du 22 Juin 1999 portant composition du Gouvemement DECRETE ARTICLE IER : Pour Compter du 14 au 18 septembre 1999, Monsieur Luc -Marie Constnnt GNACADJA , Ministre de l'Environnement, de l'Habitat et de l'Urbanisme est chargé de l'intérim du Ministre de l'Education Nationale et de la Recherche Scientifique pendant I'absence de Monsieur Zinsou Ilamien Modéran ALAHASSA.
