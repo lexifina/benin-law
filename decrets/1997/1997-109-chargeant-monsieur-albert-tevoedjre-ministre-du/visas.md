@@ -1,0 +1,5 @@
+# Visas
+
+REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE DECRET No 97-109 DU 4 uÀRs 1997 chargeant Monsieur Albert TEVOEDJRE Ministre du Plan, de la Restructuration Economique et de la Promotion de I'Emptoi de I'intérim de Monsieur Léonard Jijoho PADONOU Ministre de l'Education Nationale et de la Recherche Scientifique, pour compter du 04 Mars 1997.
+LE PRESIDENT DE LA REPUBLIQUE CHEF DE L'ETAT, CHEF DU GOUVERNEMENT, VU la Loi N" 90-032 du 11 Décembre 1990 portant Constitution de ta République du Bénin ; VU [a proclamation Ie 1er Avril 1996 par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du 18 Mars 1996 ;
+VU le Décret N' 96-728 du 09 Avril 1996 portant composition du Gouvernement. DECRETE Article ler : Pour compter du 04 Mars 1997, Monsieur Albert TEVOEDJRE, Ministre du Plan, de la Restructuration Economique et de la Promotion de l'Emploi est chargé de l'intérim du Ministre de I'Education Nationale et de la Recherche Scientifique pendant l'absence de Monsieur Léonard Jijoho PADONOU.
