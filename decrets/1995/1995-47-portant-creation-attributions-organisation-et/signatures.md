@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 20 Fé'rrier 1995 Par le Présitlent de 1a République, Chef de I'Etât, Chef du Couvernement, ,7 Désiré VIEYRA M/-k ç-----+7_-- Nicéohore SOGLO Lc IV{inistre d'Etat à la Présidence de la République, chargé cle la Coordination de I'Action Couvernementalc, et de la Défense Nationale, Le Ministre de I'Environnement, de I'Habitat et de l'Urbanisme Le Garde des Sceaux, Ministre de la Justice et de la législation, Le Minisre des Finances, U Picrre MEVI Paul DOSSOU Ampliations:PR6 AN4 CS2 CC2 HAAC2 MEPR-DN4 MF4 MJL4 MEHU4 Autres Ministères 15 SGG 4 Départements 6 DB-DCF-DSDV-DTCP DI 5 BN-DAN-DLC3 CCONB.DCCT.INSAE 3 BCP-CSM 2 UNB.ENA.FASJEP 3 JO 1 a Jean-Roeer AHOYO
