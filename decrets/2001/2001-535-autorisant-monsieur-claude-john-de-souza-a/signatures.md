@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 11 décenbre 20O1 Par le Président de la République, Chef de l'Etat, Chef du Gouvememenl Mathieu KEREKOU.- Le Ministre d'Etat, Ch 1a Coordination de I'Action Gou entale, de la Prospective et du Développement, Bruno AMOUSSOU.- Le Ministre des arres Etrangère setde o11, Le Garde des Sceaux, Minishe de la Justice, de la Législation et des Africaine Kolawo ID.II hH GN NLONFOUN,- AMPLIATIONS : PR 6 AN 4 CS 2 CC 2 CES 2 H{AC 2 MCCAG-PD 4 MAEIA 4 MJDLH 4 AUTRES MINISTERES : 18 SGG 4 DGBM-DCF-DGTCP-DGID-DGDDI 5 BN-DAN-DLC 3 GCOMB-DCCT-INSAE 3 BCP-CSM-IGAA 3 LTNB-ENA- FASJEP 3 INTERESSE OI JO I Droits de l'Homme,
