@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 05 Août 1999 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Mathieu KEREK u.- Le Ministre d' tat, chargé de Ia coordination de l'Action Gouvernementale, du Plan, du Développement et de la Promotion de l'Emploi, Le Minis A et de la Kol lé A. lDJl res Etr eres Le garde des sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, H. GNONLONFOUN.- J Ampliations : PR 6 CC 4 SGG 2 CS 1 MJLDH 4 AUTRES MINISTERES 15 DEPARTEMENT 6 DCCT 21 GCONB 2 FASJEP-UNB-ENA 3 DAN 5 INTERESSE 1 AMBASSADE DU BENIN 4 JORB -DACP/N/JLDH 6, Bruno AMOUSSOU.-
