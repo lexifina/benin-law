@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou ,le 1 4 mars 2000 Mathieu KEREKOU Amnliation : PR 6 AN 4 CC 2 CES 2 C2 MFE4 SGG4 MINISTERES I9 DEPARTEMENTS 6 TRESOR I INTERESSES 5 JORB I
