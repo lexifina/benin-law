@@ -1,0 +1,8 @@
+# Décret n° 1996-132 du 18 avril 1996 Chargeant Maître Adrien HOUNGBEDJI, Premier Ministre, Chargé de la Coordination de l'Action Gouvernementale et des Relations avec les Institutions de l'intérim du Président de la République pour compter du 18 Avril 1996
+
+R,EPUBLIALTE DU tsENIN PR,ESIDENCE DE LA REPUBLT]I.IE DECRET N. 96-112 du 18 Avrl1 1gg6 Chargeant Maltrc Àdrlen HOII{GBEDJI , Premier Ministre, Chargé de l-a Coordination de 1rÀction Gouvernementale et des Relations avec 1es f nstitu.,'_o,r:, de f intérira du Président de 1a Réoublique pour compter du 18 À\r--il 1996. LE PRESIDENT DE I,À REPUBLIQUE, C}EF DE LIETAT, CHEF DU GOIJVERIIS}IENT, VU La Loi No 90-Or2 du 11 Décembre 'l 99O portant Constitution de 1a République du Bénin ;
+VU La Proclanation Ie 1er Avril 1996 par Ia Cour Constj.tutionne1le des résultats définitifs de 1télecti,on présidentielle du 18 Mars 1996 ;
+VU Le Décret No 96-'1 28 du 09 Aw'i1 1996 portant composition du Gouvernement ;
+Articl-e 1er.- Pendant ltabsence de trlonsieur Ie Président de 1a République, Chef de 1 rEtat, Chef du Gouvernement, Maitre Adrien HOI.INGBEDJI , Premier Ministre, Chargé de Ia Coordination de lrAction Gcuvernementale et des Relatlons avec 1es Institutions est chargé C_rassurer 1r j.ntérim dès 1e départ de.Ia dél-égation présidentielle pour 1a République Fédéra1e du Nigéria" Arti,cle 2.- 11 est dé1égué au Maltre Àdrien I{OUNGBEDJI durant Cètteléiio 1e, 1es pouvoirs de Chef du Gouvernement.
+Article J.- Le présent Décret sera publi- é au Journal Officiel.
+Fait à Cotonou, 1e 18 Avril 1996 9EcRETE 1e de Par Chef Président de lrEtat, Chef Ia République, du Gouvernement, l Ampli a ti on s PR6ÀÀi4CS2CES2 2 HAAC 2 PMCAGRI 4 MISAT 2 5 DClMrL 2 JO 1.- AUTRES MIN]-TTERES 16 SGG 4 DEF.\RT 1J Mathieu IGREKOU.-
