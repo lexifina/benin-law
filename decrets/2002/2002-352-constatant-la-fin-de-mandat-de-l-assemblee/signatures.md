@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le z9 Juillet 2Oo2 Par le Président de la République, Chcf cle l'Etat, Chef du Couvenrement, Mathieu KEREKOU.- Le Ministre d'Etat C é dc la Coordination de l'Action Gouvernernenla le, de la Prospective et du Déve loppement, Ilruno AMC)USSOU.- Le Ministre des Finances et de 1'Economie, Le Ministre de l'Industrie, du Commerce et de la Prornotion de l'Emploi, 4Lv Grég 0trc LÂOTIROII.- Lazar OUETO.- AI{PLIATIONS: PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 MCCAG-PD 4 MIICPE-4-MFEZAUTRES MINISTERES : l8 SGG 4 DGBM-DCF-DGTCP- I)CID-DGDDI 5 BN-DAN.DLC 3 GCONB-DCC'T-INSAE 3 BCP-CSM-IGAA 3 IJAC-ENAM.F'ADESP 3 LINIPAR-FDSP 2 INTERESSES I2 JO I
