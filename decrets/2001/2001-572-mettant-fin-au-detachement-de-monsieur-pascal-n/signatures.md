@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 28 décembre 2oO1 Par le Président de 1a République, Chef de l'Etat, Chef du Gouvemement, Mathieu KEREKOU.- Le Ministre d'Etat Chargé de la Coordination de l'Action Gouvernementale, de la Prospective et du Développement, Bruno AMOUSSOU.- Le s des Finances et conomle, Le garde des sceaux, Ministre de 1a Justice, de la Législation et des Droits de l'Homme, Ab aye O-TCHANE.- Jo H. GNONLONFOUN.- AMPLIATIONS: PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 MCCAG-PD 4 MJLDH 4 MFE 4 AUTRES MINISTERES 18 SGG 4 DGBM-DCF.DGTCP-DGID DGDDI 5 BN-DAN-DLC 3 GCONB-DCCT-INSAE 3 BCP-CSM-IGAA 3 LINB- ENA-FASJEP 3 TNTERESSE 01 JO 1.- ::J-fu-æ )
