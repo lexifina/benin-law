@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à C010N0U, }e 22 Novembre 1995 par Ie Président de Ia République, Chef de ltEtat, Chef du Gouvernement, Nic ]rore SOGLO. - Le Ltj.n.i.s t;r'e d I Etat , Chargé de 1a Coorrlination de ltÀction Gouvernementa]-e et de fa Défense lrlationale, Dériré VITYRA Le Card.e des Sceaux, Ministre de ]a Justice et de la Législation' I t I Le Ministre des Finances, Paul DOSSCU.- N Le Minlstre de lrIntérieur' de 1a Sécurité et de l t Adninistration Territorlale, Antoine Alabi- GBEGAII .- Grâce C t A.MDIiAt1ONS : PR 6 AN 4 CS 2 CC 2 CES 2 }IAAC 2 ME-DN 4IUF 4I4ISAT 4 iAiffiS ITiUTS1TiNUS 16 SGG 4 DGBM- .]F-DGTCP-DGID-DGDDI 5 BN-BAN- -dlc I ccoun-DCCr-TNSAE i BUP-ÉsM-rcAA f UNE-ENÀ-FA§IEP 5 mGN 10 Jo '1 tl
