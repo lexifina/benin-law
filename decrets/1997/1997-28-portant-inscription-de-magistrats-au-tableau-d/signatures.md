@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou. le 29 JAIIVIER 1997 Par le Président de Ia République, Chef de l'Etat. Chef du Gouvemement alhieu KEREKOU Le Premier Ministre, Chargé de la Coordination de I'Action Gouvernementale et des Relations avec les Institutions Le N{inistre des Finances )l_ -,"r/*^1ntr Le Garde des Sceaux ,Ministre de la Justice de la Législation et des Droits de l'Homme I I f'l1^1 À I o l \4oïse N4ENSAH Isma Anrpliations PR 6 PM 4 AN 4 CS 2 SGG 4 MJLDH et Directions 20 Aurres \finistères l5 Départements 6 DGBN{-CFDEB-DGTCP-DI 15 4CC2 CES J HAC ] E DPE-INL-GCONB I ONLPI I UNB-FASJEP-ENA--3 CSM I lntéressés I l8 JORB I Adrien HOUlri-GBEDJI
