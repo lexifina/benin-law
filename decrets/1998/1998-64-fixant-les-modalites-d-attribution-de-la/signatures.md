@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à COTONOU, le 16 Février 1998 par le Président de la République, Chef de l'Etat, Chef du Gouvernement, a 5'- l'attestation du Ministre chargé de l'Intérieur constatant que le parti est en règle vis-à-vis des textes régissant les partis politiques ; Msthieu KEREKOU ^3.
+,t! Le Premier Ministre, chargé de la Coordination de l'Action Gouvemementale et des Relations avec les lnstitutions, Porte-Parole du Gouvemement, Adrien HOUNGBEDJI Le Ministre des Finances, Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, Mo Ismaël Le Ministre de l'Intérieur, de la Sécurité et de l'Administration Territoriale, Ampliations : PR 6 AN 4 CS 2 CC 2 CES 2HAAC 2 PM 4 MF 4 MJLDH 4 MISAT 4 AUTRES MINISTERES 14 SGG 4 DGBM-DCF-DGTCP- DGID-DGDDI5 BN-DAN-DLC 3 GCONB-DCCT-INSAE 3 BCP-CSM- IGAA 3 UNB-ENA-FASJEP 3 JO 1.- /-Mr Théoohile N'DA
