@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à COTONOU' Le 22 loit 1995 Par 1e Président de 1e RéPub1ique, Chef de lrEtat, Chef du Gouvernenent, Z, Nicéphore SOGLO.t- Le Mlnistre drEtât' Chargé de 1a coordinatlon de 1r Action Gouvernementale et de 1a Défense Nationale, Désiré VTEYRA.- Le Mlnlstre des Æfaires Etrangères et de Ia CooPération ' &tsar-Yves MONNOU. - Théodore HOLO. - le Garde des Sceaux, I4inistre de 1a Justice et de 1a Législation par intérimt Théodore HOLO. - Le Minlstre chargé des Relations avec les Institutions, Porte-Parole du Gouvernement, AMDIiAtiONS : PR 6 A}J 4 CS lCC 2 CES 2 HAAC 2 ME-DN 4IqAEC 4I"IJL 4 ffii-=ËfftUinË's' l,ur.üsrnnÉs-t Z scc 4 DGBIù1-DcF-DcTcP-DG ID-DGDDI 5 irï-oair-or,c i-ctôm-oôci-rr'tsrp, BcP-csM-lGAA I UNB-ENA-FASJEP l J0 1.-
