@@ -1,0 +1,15 @@
+# Décret n° 1988-470 du 29 novembre 1988 Portant création de la Commission ad hoc chargée de connaitre des faits reprochés à certains Camarades de la Direction du Centre National des Oeuvres Universitaires (CENOU) et la Direction des Bourses et Secours Universitaires (DBSU) (cas des 25 Agents ayant cumulé salaires et Bourses)
+
+/sr.
+FEPUBLI0UE PÔP1ILAIRË DU BENIN PRESIDENCE DE.LA.REPUBLIOUE W DECRET No BB-470 du 29 Novembxe 19BB ant port ad hoc char reprochés à Direction d Univers itai des Bourses (oesu) ( cas salaires et Bo on de la Commission de corgraitre des faits rtains Camarades de 1a entre National des Oeuvres ( CENoU) et la Direction Secours et Universitaires 25 Agents ayant cunulé urses).
+creati uC et des LE PRESÏDENT DE LA REPUBL]QUE, CHEF DE L'ETAT, PRESIDETTI DU CONSEIL E)GCTNIF NATIONAL, lt ordonrranc e t:là 77 -12 du 9 Septemb re 1977 portant'promulgation de la Loi Fonûarlentale de Ia Répub1lque Populalre du Bénin et les Lois Constitut ionnel-Ies qui 1r.ont modiflée ;
+le décret No B8-rl 5 du 29 Juil-l-et 1ÿ88'portant composition du Conseil- Exécutif N,tional et de son Comité Perrnanent i ltordonnance No 80-6 du 11 Février '1 9BO éd.ictant les dispositions en \rue de 1a répression discj.plinaire des détournements et cei:taines infractions commis.par 1es Agents de lrEtat et les Employés des Collectivités Locales, SUR Décision du Conseil Exécutif National en sa séance du Mercredl 5 Octobre 1S88, VU Ar ic].e '1 er répres si on à certains Oeuvres Uni et Seoours ayant cumul e vr 1er A.Lticle ?.- La composition de 1a comnnission est 1a suivante Pré s ident .- En application de f I ordonnance No 80-6 du 11 0 susvisée , i1 est créé une commission ad hoc de discipli.4aire chargé de connattre des faits reprochés Carnarade§de fa Direction clu Centre National des versitaires (CENoU) et de Ia Direction des Bourses Seolaires et Universitaires (DBSU) (cas des 25 Agents é salaires st Bourses ) Camarade Jacques MAYABA du Ivlinistère de la Justice et de ]-tlnspection des Entreprises Publiques et Semi-Publ1qües.
+.../ .t".
+DECRETE i{embres Camarades : - Jus'bin KÊUASSI de lflnspection Gtrré;:ale drEtat, Section Financière ;
+- Célestin ZEKPA de lrlnspectdon Génériilc drEtat, Section Arlmini strative,
+- Marcellj.11 BE1IOjI Ou Ministère du Travail et des Affaires Sociales ;
+- Huguette ADIAIJOHCLIN du l{inlstère des Einances i -Lieutenant Gustave SANNI et Premier Ilattre lii.caise T. AHLOU des Forces Armées Populaires du Bénin et
+- i{onorat I,lE},j-SA}i du Iÿiinistère des Enseignements irioyens et Supérieur. Art-i cJ-e 7.- La Commission qui déposera son rapport dans les 'Lrente (F6-)-î-oùËs clui suivront sa -saisiÀe indiquera 1à aate clr eff et .les mesures qu I elI-e aura préconisées.
+1i1!i-cf-e 4.- Le présent ciécret sera publ ié et commr.:niqué par"bout ou DesoJ.n sera.
+Fait à COTONOU, 1e "o lro valrlil :
+par l-e Président de 1a République, Chef de lrEtat, Président du Conscil Exécutif National, 19'li' ltqÜ{eu-5gBE40u Ampliationq : PR 6 SGCEN 4 PRNSIDEIÿI ET TÿIEMBRES 1O..
