@@ -1,0 +1,9 @@
+# Signatures
+
+Fait à Cotonou, le 06 Octobre 2004 L2 AG/SM REPUBLIQUE DU BENIN PRESIDENCE DE tA REPUBLIQUE DECRET N' Portant approbation des statuts de l,Agence Nationale de l'Aviation Civile (ANAC) LE PRESIDENT DE IÂ REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMET{T, VU la loi no 90-032 du 11 décembre 1990 portant Constitution de la République du Bénirr ;
+VU la Proclamation le 03 avril 2001 par la Cour Constitutionnelle des résultats définitifs de lélection présidentielle du 22 mars 2001 ;
+VU le décret no 2003-209 du 12 juin 2003, portant composition du Gouvernement ; VU le décret n" 2003-479 du 1'décembre 2003, fixant la structure-ÿpe des ministères ; VU le décret n" 200+034 du 29 janvier 2004, portant attributions, organisation et fonctionnement du Ministère des Travaux Publics et des Transports.
+Sur proposition du Ministre des Travaux Publics et des Transports, Le Conseil des Ministres entendu en sa séance du ...06 Octobre 2004.
+DECRETE Article ler : Sont approuvés, les statuts de l,Agence Nationale de llviation Civile (ANAC) tel qu'ils sont annexés au présent Décret.
+Article 2 : Le Ministre des Travaux Publics et des Transports et le Ministre des Finances et de l'Economie sont chargés chacun en ce qui le concerne de l,application des présents statuts.
+, Article 3 : Le présent décret qui abroge toutes dispositions antérieures contraires prend effet pour compter de la date de sa signature et sera publié au Journal Officiel. Fait à Cotonou, le PAT LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT Mathieu KEREKOU LE MINISTRE DES FINANCES ET DE L,ECONOMIE LE MINISTRE DES TRAVAUX PUBLICS ET DES TRANSPORTS Gréqoire LAOUROU Ahamed AKOBI AMPLIATIONS: PR6 AN4 CS2 CC2 CESZ HAAC2 MFEMTPT4 AUTRES MINISTERES 19 SGG 4 DGBM-DCF-DGTCP-DGID-DGDDI 5 BN-DAN-DLC 3 GCOMB-DCCT-INSAE 3 BCP-CSN-IGAA 3UAC-ENAM-FASJEP 3 UNIPAR-FDSP 02 JO 1.
