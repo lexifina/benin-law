@@ -1,0 +1,8 @@
+# Signatures
+
+Fait à COTONOU, le du 15 féwier 2000, Monsieur Abdouiaye BIO ces et de I'Economie est chargé de I'intérim du Rural pendant I'absence de Monsieur Théophile 7 février 2000.
+Par le Président de la République, Chef de t'Etat, Chef du Gouvernement, REK 4 -CS 2 .CC 2- CES 2. HAAC 2 - PIVi AGRI 4. MPSCF :T - SGG 4 - MF 2 - AUTRES MINISTERES I6 - DEPARTEMENTS 6 - JO. i.- PRESIDENCE DE LA REPUBLIQUE AMPLIATIONS a o REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE Vu Vu Vu LaLoi 90-32 du 11 Décembre 1990, portant Constitution de la République du Bénin, La Proclamation le l " Avril 1 996 par la cour constitutionnelle des résultats définitifs de l'élection présidentielle du 1 8 Mars 1996, Le Décret n" 99-309 du 22 Juin 1999, ponant Composition du Gouvemement, DECRET NO 2OOO.72 DU 14 EEVRIER 2OOO Chargeant Monsieur Joseph H. GNONLONFOUN Ministre de la Justice, de la Législation et des Droits de l'Homme, de l'intérim de Monsieur Séverin ADJOVI, Ministre du Commerce, de l,Artisanat et du Tourisme.
+LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT CHEF DU GOUVERNE]ITENT, Fait à Cotonou, 1s 14 Février 2O00 thieu KEREKOU {!!§.lÏ- 1 ?our comprer du 11 au 21 février 2000, Monsieur Joseph H.
+GNONLONFOLIN, Ministre de ra Justice, de ra Législation et des Droits de l'Homme est chargé de I'intérim du Ministre du commerce, de l'Artisanat et du Tourisme pendant son absence.
+DECRETE Article 2 : Le présent Décret sera publié au Joumal Officiel Par le Président de la République Chef de I'Etat, Chef du Gouvemement, Ampliations : PR 5, AN 4, CES2 ,HAA 17, SGG I , Intéressés 2.
+MCAT l, M.ILDH l, Autres Ministères
