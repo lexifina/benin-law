@@ -1,0 +1,25 @@
+# Visas
+
+., 't..
+RNPUBIIQIIE DU DAEOI\{EY A.IiTIC IE 1er. - Ia présent st euploi prrmanent, ont été ad.ninistrationg centraleg iles établlssenents publics ORIONNA]{CE N' 72-?1 d.ù 24 portant Statut Généra1 de Publique.
+JuiS-1et 1!J2 l.a Fonction ., IE CONSEI]., M.ESINENTBL, ïÜ l+ Déolaration du J0 avril 1ÿ'l0, instituart un Conseil Frésldentiell Yû l-t 0rdonnence I.o'lO-)\fCP d.u 7 Eai 19T0, portant Charte du Conseil Présidenticl; ..
+YU J-c Dëcrot noTO;|1fCP r1u-J nai J.ÿ10, portant fornétion du Oouvclnenent, ct 1c.Décret no71;149 du { aott Lÿ11 qui Ita uodlfié , SUR Rapport du L{ln-istrc de la Fonotion Pub lique et tlu Travail;
+Âprès Apis du Cou-ité Consulteitif de La Fonction Publiquo ;
+'t Ie Conseil des }Âinistros entend.u, 0RDONNE r TIIRE DISPOSITIONS GENEEJ,I,ES ^+tl do d ut srapplique aux perÊonnes guJ., notur!éeo dans ua tularisées dans ur:. grad,e do la hiérarohle tles lrEtat, des services extérierrs en df pend.ant, ou o 1r Etat.
+_ Toutefois, iI ne stapplique ni aux na,gistrats de lrOrdre Judioieire, ni ar:x oorps nilitai.res, rri. aux corps d.e police tte ta sùreté Nationare, nl aur persorulels tles ad.ninistrat j.ons, sexÿiôe§ êt étabLieeenents publics Ae ilEtat gui présentent un oaractère lnd.uetriel ou cobmexoiaL, dont 1e liste est fixée par' déoret.
+.4.8.[IC IE 2.- Dee àécrets fixcnt r Lo/- les Dod.alitéE drepplication du gnésent statut oounu:res à -ntp.r* s lrensernble des Le l- ? artlcle f personnels vloés au premier alinéa 2"/ - Les nrcdalités portant statuts particuliers du personnel de chaque admlnisüration ou selvice ainsi que J.e cas éctléan-t, du personnel appelé à être affectê dan6 p1u- 6i-eur6 adninistrations ou servlcee- Les fonctj-onnaires soumis au même statut particulier et nêmes gtades constituent un corp6.
+Les corps sont classés et répartls recxutefient en Ginq catégories désignées dans D E correspondant, pour 1es 4 premières, à des préclses à partir de certains diplômes minimum ARTICI,E 5.-, ÿoeation aux la formatlon ou 1e différents emp1oi6, pernanents Ileu que dans 1es condltions ayant êuiÿant leur niveau de lrordre hiérarchique A B C, fornations profe s sionne Ile 6 ou de leurs équlvatonts.
+plusieure grade€. Le grade est Iq droit à occuper,1ru:r des emplols Eervice constiùue Chaque corps cornpiend un tltbo qui confère à ses béaéficiai?ee qui leur sout réservé s..
+et un catégorles ARTTC],E +..
+E6â!ffii',t, La cir:quième cat6gorie E est cel1e des emplols pour lesquele correspond à un niveau de basê au noins éga} au C.E.P.E.
+Lleneemble des emplols drune même adminietration ou nÉceosl-tant une quallfi.cation professionnelle de même nature cadre..
+Daue chaque corps, 1e personnel est appelé à étire des déIéen nonbre éga1 avec Ies représentant6 de 1 t Adninistration, 1ee Commissions dravancement et les conseils de dlscllline.
+,:- Des décrets prls en application des dispositions du préEetrt artlele flxent 1a compétence, Ia compositton!, lrorgallsation et Ie fonctionnement du Comité Coneultatif de Ia Fonctlon pub3.ique, des Connieslons dravanceuent et des Conseilo de dlecipline.
+r,e e6Ù classement de chaque corps dans lrune ou lrautre des flxé par décret - xl en est institué un Coroité Consulüatif tle Ia Fonction Publique nombre égalr, Êæ représentante de t I Adminis trat ion et des représeatants des organisatiôns eyndicales de fonctionnaire6.
+gués quI, eonposent T T TB E I I NECXÜ.1IEME1$] T ARTICLE ,.- Lraccession aux ).rartltle ler ne peut avoir présent statut.
+mentloridéc à prévues au thutefois, un décret détermine, pour ,_!Ee!vlcer' les eEplois supérieure pour lesquels 1es " séee .À 1a décLsion du Gcuvernement.
+chaque adninibtration ou nominations sont lais- Ltaccession de non fonctionnalres à ces.emploie ntentralne Ieur tltuJ.arlsatlom dane un corp6 de 1l Adninistration ou du servicel qulelle6 concer- Ces nomlnatLons es sentie l-leoent r6vocables pa§ aent deg fonctionnaires ou des non fonctionnaires sont soumises aux prlnclpe6 statutai-reE de la hi6rarchi-e aCministratiÿei 4RTICLE 6.- I§:I. ne peut être nommé à un emploi publlc :
+sril ne possède Ia cltoyenneté îlcie des dioits attachês à Ia réserve des incapacitês prévues dahoméenne ou sril ne Bénéqualitô de dahoméen. §ous par J.a 1ol.
+sr iI ne moralité jouit de ses droits civiqueo eü sril nrest d.e bonne sril ne se trouve en position régulière sur Ie recrutement de lrarmée I âu regard de6 lois sril ne remplit les conditlono draptitude physique exigéee poùr l-rexercice de Ia fonctj.on et quril nrest reconnu soit indetrne de toute affection tuberculeuser, cancéreuser nerveuoer, poliooyêlitique ou Ièpreuser. soit définitivepent Buérl.r:.-.
+sril nrest âgé de 18 ans au moi-ns ou de JO ans au plusr.i' cette timite drâge pouvant être prorogée, jusqurà Jg anè au maximurnr, drune durée éga1e à celle du eervice militaire effec;L tué ou d.run an par enfànt à charge au 6ens de Ia règlèmentation des pensione. Pour Itapplicaüiom du présent statuür, aucune distinction nlest falQ entre 1ee deux sexes.
+ront, en Il ac cès [butefoist les statuts particuliers de certalno raison des sujétion,s propres à certains ernploisr, en aux candidats de lrun ou d.e l.autre sexe.
