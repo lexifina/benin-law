@@ -1,0 +1,9 @@
+# Décret n° 1985-407 du 10 octobre 1985 Chargeant le camarade André ATCHADE, Ministre de la Santé Publique, de l'intérim du camarade Zul-Kifl SALAMI, Ministre Délégué auprès du Président de la République, chargé du Plan et de la Statistique pour compter du 3 octobre 1985
+
+/BA : rrJEL-:irLrE POPULAIRI DU BENIN ,ILESIDENCE DE LA REPUBLIOUE DECRET No85-407 du 1o octobre 1985 charge de fa rade Z auprè s Chargé c ompte ant 1e Santé u1-Kif du Pr du PI rduJ Camarade André Publique. de lrin I SALAMI " Minist ésident de Ia Ré an et de 1a Stat Octobre '1 985 .
+ATCHADE,Iâniste térim du Cam:rre DéIégué publ ique , istique pour' LE PRESTDENÎ DE LA REPUBLIST]E, CHEF DE L'ETAT, PRESIDENT DU CONSEIL EXECUTIF NATIONAL, VU lrordonnance No 7?-32 du 9 Septembre 1977 portant promul-gation de Ia Loi Fondamentale de 1a RépuUltque Populaire du Bénin et l-es Lris Constltuti onnelles qr:i ltont modifiée ;
+VU fe décret No Ar-254 du 17 Juin 1985 portant composition du Conseil- Exécutif Natlonal et de son Comité Perrnanent ;
+VU Ie décret N" 85-J96 du 20 Septernbre 1985 chargeant fe Camarade Romain VILON-GUE2ô, Président du Comité PermaÀent de 1'Assembfée Nàtionale Révolutionnà ire, de l-tintérim du Président de la République; D E C R E T E:
+Ârticle 1er.- Pour compter du J Octobre 1985 IÎTn e f a Santé Pübl-lque. est chargé de Lé1égué auprès du Président dè Ia trépublique Statistique, pendant lrabsence du Camarade Zu ,1e I'i 1-K Camarade André ATCHADE , ntérim du lvlinistre 5argé du Plan et de la if1 SAI,AMI .
+Ârticle 2,- Le présent décret sera publié au Journal- Officie1.
+Fait à Cotonou, 1e 10 Octoirre 1985 Pour fe Frésident de 1a République, Le Président du Comlté P anent de 1' Assemblé e tiationâle voJ.utionnai-re, chargé de int érim, Ro a V1 Ampliations : PR 6 SA/CCIPRPB 4 CP/A.NR I+ SGCE PD2PPC2CPC6 4 BN-DÀN 4 DCCT- RBP 1.- MSP:MPS 6 AUTRES MINISTERES 1] DPE-DLC.INSAE N4S 6 IGE 6JO ONEPI-CDE CHANC. ] UI\B-FASJEP 4 BCP 2 PF.EFETS
