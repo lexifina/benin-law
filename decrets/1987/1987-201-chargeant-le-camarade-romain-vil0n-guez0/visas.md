@@ -1,0 +1,5 @@
+# Visas
+
+REPUBLIEUE POPULAIRE DU BENIN PRESIDENCE DE LA REPUELIOUE DECRET No 87-201 du 6 Juiuet 19BT chargeant 1e Camarade Romaln VIL0N-GUEZ0, Présldent du Comité Permanent de lrAssemb]ée Natlonale Révolutionnaire, de lrintérlm du Présldent de 1a Républlque pour compter du 6 Juillet 1987.
+LE PRESIDENT DE LA REPUBLIQUE, CHEF'DE LIETAT, PRESTDENÎ IXJ coNsEIL EXECUTIF NATIoNAL, VIJ lrordonnance No77-J2 du 9 Septernbre 19877 port promulgatlon de Ia Loj. Fondamentale de La Répub1lque PopuJ.alre du Bénln et Ies 1o1g constltutlonnelles quL lront modiflée, VU Ie décret NoBT-lB du 1l Février 1987 portant conposltlon du ConselL Exécutlf National et de son Comité Permanent, D c11ar ef Le Président de 1a Républioue.
+de 1 ? Etat, Présldent 'du Coriseil Exécutif Natlonal, Ie Camarade Romaln VfLON-GUEZO, Présldent du Comlté Permanent de lrAssemblée Nationale Révolutionnaire, assurera lrintérlm du Présldent de 1a Républlque, Chef de ltEtat, Présldent du Conseil Exécutlf Nationa1, pour compter du 6 Juillet 1987.
