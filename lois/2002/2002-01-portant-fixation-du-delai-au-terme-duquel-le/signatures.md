@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 12 février 2002 Par le Président de la République, Chefde l'Etat, Chefdu Gouvernement, Mathieu KEREKOU.- Le Ministre d'Etat Chargé de la Coordination de l'Action Gouvernementale, de la Prospective et du Développement, Bruno AMOUSSOU.- .GNONLONFOUN Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Ho .~ -TCHANE.- SylvainAdékpédjou AKINDES.- Le Ministre chargé des Relations avec les Institutions, la Société Civile et les Béninois de l'Extérieur, AMPLIATIONS: PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 MCCAG-PD 4 MJLDH 4 MCRI-SBE 4 MFE 4 AUTRES MINISTERES 17 SGG 4 DGBM- DCF-DGTCP-DGID-DGDDI 5 BN-DAN-DLC 3 GCOMB-DCCT-INSAE 3 BCP-CSM-IGAA 3 UNB-ENA-FASJEP 3 JO 1.
