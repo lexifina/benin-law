@@ -1,0 +1,9 @@
+# Décret n° 1988-429 du 28 octobre 1988 Chargeant le camarade Edouard ZODEHOUGAN Ministre délégué auprès du Président de la République chargé de l'intérieur, de la sécurité publique et de l'administration territoriale de l'intérim du camarade MARTIN DOHOU AZONHIHO Ministre de l'équipement et des transports pour compter du 25 octobre 1988
+
+TMI..
+REPUBIJOUE POPULAIRE DU BE}TIN aF----- PRES]DEITCE.DE LA REPUBLIOUE DECRET No 88-429 du 28 Octobre 1988 Chargeant le C:marade Edouard ZODEHOUGAI'I, Ministre DéIégué auprès du Président de 1a République, Chargé de lrIntérieur, de Ia Sécurj-té Pubfique et de 1r Administration Territoria- 1e, de 1l jltérjrn du Camarade Martin Dohou AZONHTHO, Ivllnistre de lrEquipement et des Transports pour compter du 25 Octobre 1988.
+I,E PRESTDET\iT DE LA REPUBLISUE, cItEF DE LTETAT, PRESIDEX'IT DU CONSETL EreCUTIF NAîIONAI,, lrt] 1r ordonnance No 77-12 du 9 Septembre 1977 portant promulgation de Ia Loi Fondamental-e de Ia République Populaire du Bénin et les Lois ConstLtutioruielles qui lront modifiée ;
+VU Ie décret No 8B-r15 du 29 Juillet 1988 portant composition du Conseil Exécutj-f National et de son Comité Permanent ;
+DECRETE ! Arlicle 1er.- Pour compter du 25 Octobre IIdoUffifZODEHOUGAN, Ministre DéIégué aupr 1988, }e Camarade ès du Président de 1a Sécurité Publique et de de l-r intérim du Mi-nis- République, Chargé de lrIntérieur, de 1a 1| Ad-u:-inistration Territoriale est chargé tre de lrEquipement et des Transports pe Camarade Martin Dohou AZOIJi{IHO.
+ndalt frabsence du A,rticle 2.- LÊ présent décret sera publié au Journal Officiel.
+Falt à COTONOU, pa.r le késldent de 1a République, Chef de lrEtat, Président du Consell Exécutj.f National, le 28 Octobre 1988 -ë'" -,1 , Mathieu KEREKOU Amplrallcas : FR 6 sA/cclPRm 4 cPlAxrR 4 sccEli 4 sPD 2 PPc 2 CPC6TISP-nÎ+æT 6 autres Ministères 14 DFE-Drc-TNSAE 6 IGE 4 BN-DAN 4 DCCT-ONEPI-Gde CHAIIC. , IINB-FÀSJEP 4 BCP 1 Préfets 6 JORPB 1.-
