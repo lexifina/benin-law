@@ -1,0 +1,8 @@
+# Décret n° 2000-340 du 19 juillet 2000 Chargeant Monsieur Joseph H. GNONLONFOUN, le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de I'Homme de I'intérim de Madame Ramatou BABA-MOUSSA, Ministre de la Protection Sociale et de la Famille pour compter du 18 au 28 juillet 2000
+
+t:\ REPUSLIQUE DU BENIN pRESTDENCEDELAREpUBLIeUE DECRETNoeooo-rAo Du 19 JUTLLET 2ooo Vu La Loi no 90-032 du 11 Décembre 1990 portant constitution de la République du Bénin ;
+Vu Le Décret no 99-309 du 22 Juin 1999 portant composition du Gouvemement;
+Article l*' : Pendant la MOUSSA, Monsieur Joseph H. GNONLONFOUN, le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme est chargé de l'intérim du Ministre de la Protection Sociale et de la Famille pour compter du 18 au 28 juillet 2000.
+FaitàCotonou, le 19 Ju11let 2oo0 Par le Président de la République, Chef de I'Etat, Chef du Gouvemement, Àmpliations: PR 6-AN 4-CS 2-CES 2 /TIrLl-l-S 6 -. Iôl) P x AUTRES MIMSTERES 16 * DEPARI- Chargeant Moosieur Joseph H. GNONLONFOUN, le Garde des Sceaux, Minislre de la Justice, de la Législâtion et des Droits de I'Homme ale I'intérim de Mâdâme Ramâtou BABA-MOUSSA, Ministre de Ia Protectiotr Sociale et de lâ Famille pour compter du 18 au 28 juillet 2000 LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT, Vu La Proclamation, le 1"'Avril 1996, par la Cour Constitutionnelle, des résultats définitifs de l'élection présidentielle du 18 Mars 1996 ;
+DECRETE période d'absence de Madame Ramatou BABA- Arficle 2 : Le présent Décret sera publié au Joumal Offrciel.
+Mathieu KEREKOU.- 2-MFE_MF 4_SGG 4
