@@ -1,0 +1,5 @@
+# Visas
+
+l{s REPUBLIOUE DU tsENlN PRESÏDENCE DE LA REPUBLI1UE DECRET N"96-248 du 21 Juin 1996 chargeant Flonsieur Ismaê1 îIDJANI SERPOS, Garde des Sceaux, Ministre de 1a Justice, de 1a LégisLation et des Droits de LrHomme de lrintérim de Monsieur Kamarou FASSASSI , Ministre des Travaux Publics et des Transports pour compter du 7 Juin 1996. LE PRESIDENT DET I,A REPUBLIOUE, CHEF DE LIETAT, CHEF DU GOUVERNEMENT, VU Ia Loi No90-012 du 11 Décernbre 199O portant Constitution de la République du Bénin ;
+VU 1a proclamation 1e 1er Avril 1996 par Ia Cour Constltutionnelle des résultats définitifs de 1rélection présidentiel-Ie du 18 Mars 1996 i VU le Décret No96-1 28 du 09 A'.ri1 1996 portant composition du Gouvernement I DECRETE Article '1 er. - Pour SERPOS, Garde des et des Droits de 1 Travaux Publics et Kamarou FASSASSI .
+compter du 7 Juin 1!ÿ6, Monsieu Sceaux, Ministre de 1a Justice, rHornme est chargé de lrintérim d des îransports pendant 1r absenc r Is de1 uMi ede maë1 TIDIANI a Législation nistre des Mo nsi eur
