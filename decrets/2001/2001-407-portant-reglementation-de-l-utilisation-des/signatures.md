@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 15 octobre 200 1 s dispositions antérieures signatLrre et sera publié au Par le Président de la République, Chef de I'Etat, Chef du Gouvemement, Mathieu KERIKOU Le Ministre d'Etat chargé de la Coordination de 1'Action Gouvemementale, de la Prospective et du Développementj Bruno AMOUSS U Le Ministre d'Etat chargé de la Défense Nationale, ierre o SHO.- -/- ) Le Ministrd des Finances, etd Economie, Le Minisire des Trayaux Prrblics et des TransPorts, h-" t. \ Abdoulayc BIO-TCHANI].- Joteph Sourou ATTIN.- Le Ministre de s Etrangères et de l'Int câ1ne Le Ministre de l'Intérieur, de la Sécurité et de la Décentralisatior Kolarvo I DJI.- Daniel TA\YEMA.- AMPLIATIONS : PR 6 AN 4 cs 2 cc 2 cES 2HAAC 2 MCCAG-PD 4 rviFE 4 MTPT 4 ÿIISD 4 MAEIA 4 AUTRES MINISTERTS i6 SGG 4 DGBM- DCF-DGTCP-DGID-DGDDI 5 BN-DAN-DLC 3 GCONB.DCCT-INSAE 3 BCP-CSM-IGAA 3 UAC-ET.IAM-FADESP 3 TINiPAR-FDSP UAC-ENAM.
+FADESP 3 LNVIPAR-FDSP 2 JO I.
