@@ -1,0 +1,6 @@
+# Signatures
+
+Fait à Cotonou.le 27 aofit zool Par 1e Président de la RéPublique, Chef de l'Etat, Chef du Gouvemement, athieu KEREKOU.
+i Le Ministre de l'Environnement.
+de l'Habitat et de l'Urbanrsrrre, le Ministre des Mines, de 1'Er.rergie, et de I draul ma u FASSASSI.- 1e Mi Culture. de Tor-n r Fréd HOU.- Le Garde des Sceaux, Ministre de la Justice , de la Législation et des Droits de l'Homme, g.eé"Z- Dorothé C. SOSSA Le Ministre de la Santé Publique, Luc-Marie Constant GNACADJA.- Le Ministre de l'Industrie. du Cornnrerce el de la Promotion et de l'Emploi, u AKPLOGAN.- Le Ministre des Finances et de l'Economie, Le M in ist re de l'lntérieur, de la Séculité et de la Décentralisation, Daniel T WEMA.- Yvettc Célinc SEIGN-ON KANDISSOTINON AMPLIATIONS: PR6 AN 4CC 2 CS 2 HAAC 2 CES 2 MJLDH4MFE4 lsanat et del d '* (\ I Grésoire L4OUROU.- MMEH 4 MEHU 4 MICPE 4 MCAT 4 MISD 4 MSP 4 AUTRES MINISTERES 13 DGBM-DCF- DGTCP- DGID- DGDDI 5 BN-DAN-DLC 3 GCONB-DCCT-INSAE 3 BCP-CSN -IGAA 3 UAC -ENAM- FADESP 3 UNIPAR-FDSP 2 JO 1.
+Valeurs limites d'émission pour certaines substances émtses lors de la combustion d'huiles usagées dans des unités d'une capacité thermique de combustion égale ou supérieure à 3MW (Valeur inférieure du pouvoir calorifique) Polluant Valeur limite en mg/Nmr L.O Ni t1 Cr 1,5 ou 5 Cu 1,5 ou 5 CI F Soz Poussière (total) 0,5 1 5ou5 ANNEXE ot\
