@@ -1,0 +1,13 @@
+# Décret n° 1996-327 du 6 août 1996 portant approbation du bilan et des comptes annexes de l'exercice clos au 31 Décembre 1996 du Bureau Béninois du Droit d'Auteur (BUBEDRA)
+
+TT'1.T - REzuBLTOUE DU BENTN PRESTDENCE DE LA REPI.ELIQUE VtJ Ia Loi No 90-012 1a République du UU 1e Décret No Gouvernement DECRET l{o 96-127 du 0b Aott 1996 portant aprobation du bilan et des comptes annexes de 1?exercice clos au Jl Décembre 199? du Bureau Béninois du Droit dtAuteur (eufnORa).
+LE PRESIDBNT DE IA REPI]BLTQUE, CT{EE DE L IETAT, CHEF DU GOWERNEI\iENT, I du Bé Décembre 1990 portent Constitution de nin VU VU \rU Ia Loi l'l o 94-009 du 28 Juill_ et 1994 portant création.
+tion et fonctionnement des offices à- caractère sociai, et scientifique ;
+1a Loi No 84-008 du 15 l4ars 1984 relative à 1a protectj-on du Drolt d tAuteur en République du Bénin ;
+1a proclamatlon 1e 1er rivril 1ÿÿ6 par la cour c onstitutionnelle des-résultats définitifs de 1rélection présidentiefle Ou-.ie tUars organi saculturel 96-12e du 09 Avril 1996 portant compositlon du lrtJ 1e Décret No 91 -271 du 17 Décembre 1991 portant attributionsr organisation et fonctionnement du Ministère de 1a cu]ture et de la Comrnunication i \IIJ le Décret No 92-63 dr.r 1O llars 1gg2 portant attributions.
+organlsation et fonctionnement du Ministère du plan et ée Ia Restructuration Economique ;
+1 99f portant attributions, organiureau Béninois du Droit d rÂuteùr VU l-e Décret No 9r-1 14 du 25 Mal sation et fonctionnement du B (BUBEDRA) ;
+SUR Rapport conjoint du l{inistre de tion et du lvlinistre du Plan, de et de 1a Promotion de lrEmpioi I,E C onseil des Ministres entendu en sa séance du 1 7 Juillet .\ _oÿ6 i la Culture et de fa C omnunica- 1a Restructuration Eccnonique l ( DECRETE Artlcle 1 er. - Sont approuvés, le Bilan et 1es Comptes Annexes de lrexercice clos au J1 Décembre 1991 du Br,reau Béninois du Droit d tAu'ceur tels qutils figurent en annexe à ce Décret.
+Fait à COToNOU, t-e 06 Aott '1996 i Far 1e Président de 1a République, Chef de ltEtat, Chef du Gouvernement, Mathieu KEREKOU.- 4t i Le Premier Ministre, chargé de la Coordinati-on de lrAction Gouvernenentale et des Relatj,ons avec 1es ï nstituti ons, ,d'i,:,0*,'.A-.r.
+Adrien HOUGBÉDJI.- Le Mini,stre du P1an, de 1a Restructurati on E c onomj-que et de la Promotion de 1 t Ennploi-, À{),, r Albert IEVOÈDJRE.- Timothée ZAI,trNOU. - AI'IIPLIATIONS : PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 PMCAGRI 4 }VlPREPtr-i'iCC B AUTRES MIX]TSTERES 16 SGG 4 DEPÀRTEI,IENTS 6 DGBM-DGrcP-DCF,_DGID-DGDDT 5 BN-DAN.DLC ] GCONB-DCCT-INSAE ] UNB.FASJEP-ENA f JORB 1.- I Artiçle 2.- Le présent Décret sera publié au Journal Officiel.
+Le llinistre de 1a Culture et de 1a C omnmnicati on,
