@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à CO'IONOU, le 29 décembre 2oo0 Par 1e Président de 1a République, Chef de l'Etat, Chef du Gouvernement, Mathieu KEREKOU Le Ministre d'Etat, chargé de la Coordination de l'Action Gouvemementale, du Plan, du Développement et de la Promotion de l'Emploi, Bruno AMOUSSOU Le Ministre chargé des Relations avec les Institutions, la Société Civile et les Béninois de 1'Extérieur, Lc dc onomle, tre des Finances et À Sl,lvain Adékpédjou AKINDES Ab AY o- CHANE Ampliations : PR6 AN 4 CS 2CCZ CES 2 HAAC 2 MECCAG 2 MCRI- SCBE 2 MFE 2 AUTRES MINISTERES 16 SGG 4 DGBM-DCF-DGTCP- DGID-DGDDI 5 BN-DAN.DLC 3 GCONB-DCCT-INSAE 3 BCP-CSM-IGAA 3 UNB-ENA-FASJEP 3 INTERESSES 5.JO I.-
