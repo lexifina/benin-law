@@ -1,0 +1,8 @@
+# Décret n° 1996-275 du 5 juillet 1996 Chargeant Maitre Adrien HOUNGBEDJI , Premier Ministre, chargé de la Coordination de l'Action Gouvernementale et des Relations avec les Institutions de l'intérim du Président de la République pour compter du 06 juillet 1996
+
+REPUBLIOUE DU BEN]N PRESIDENCE DE LA REPT'BLTQUE DECRET No 96-275 4u 5 Juillet 1996 Chargeant Maitre Adrien HoTINGBEDJI , Premier Ministre, chargé de 1a Coordinatlon de lrAction Gouvernementafe et des Relations avec 1es Institutibns de ltintérim du Président de 1a République pour compter du 06 iuillet 1996.- LE PRESIDENÎ DE LA REPUBLÏOUE, CHEF DE LrETAl, CIIEF DU GOuVERNH,IENT, W Ia Lol nc 9O-O12 du 1'1 Décenbre 1990 portant Constitution de 1a Répub11que du Bénin ;
+VtJ la proclamation 1e 1er Aw'il 1996 par la Cour Constitutionnelle des résultats déflnitifs de Irélection présldentielle du 18 Mars 1996 i VlJ Ie Décret nc %-128 du O9 Avril 1995 portant composition du G ouvernenent ;
+Arti,cle '1 er.- Pendant ]-tabsence de Monsieur 1e Président de 1a Républiquè, Chef de lrEta HoIJNGBEDJï, Premi-er Minis 1 rActlon Gouvernenentale t, Chef du Gouvernenent, Maitre Adrlen tre, chargé'de 1a Coordination de et des Relations avec 1es Insti-tutions Fait à COTONOU, 19 5 Julllet 1996 par 1e Président Chef de l rEtat, Ia Républiquet f du Gouverrrement, de Che Ma'lh i crr I{RREKOU Aqpliqllon§ : PR 6 AI\I 4 CS 2 CC 2 PM 4 MISAT'2 ^lUmrS MTNISÎERES 16 SffifDd"ÆL 2 DEPARTEMENTS 6 Jo ''t .- DECRETE est chargé drassurer lrintérin dès 1e départ de 1a délégation Présidentielle pour la Républlque Gabonaise;
+Àrtiçle2.- 11 est dé1égué à MaÎtre Àdrien HOIJNGBEDJI durant c-Iffiiode, les pouvôirs de chef de Gouvernement ;
+Article J.- Le présent Décret sera publié au J ournal Officie1.
+I
