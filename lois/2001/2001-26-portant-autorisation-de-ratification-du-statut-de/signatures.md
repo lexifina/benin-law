@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 09 août 2001 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Mathieu KERËKOU - Le Ministre d'Etat, chargé de la Coordination de l'Action Gouvernementale, de la Prospective et du Développement, Bruno AMOUSSOU.- Le Ministre des Affaires Etrangères ine et de l'Intégration Africaine,/ Kolawolé A. IDJL- Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, .Tosenh H. GNONLONFOU 1N.- Ampliations : PR 6 AN 4 CS 2 CC 2 CES 2 1IAAC 2 MECCAG-PD 4 MAEIA 4 MJLDH 4 AUTRES MINISTERES 18 SGG 4 DGBM-DCF-DGTCP-DGID- DGDDI BN-DAN-DLC GCONB-DCCT-INSAE BCP-CSM-1GAA UNB-ENA-FASJEP 3 JO 1.-
