@@ -1,0 +1,7 @@
+# Visas
+
+/an'- HEPI.ELISUE POPULAIRE DU BEN]N PRESIDENCE DE LA REPUBLIOTE DECRET N"86-458 du 6 Novembre 1986 Portant crciation de 1a Commlssion ad hoc chargi:e de connaître des faits reprochés aux Camarades théophile AKUESSON, Ex-Chef District Rura1 de Comér Mathias LOGBO, ex- Chef District Rura1 de LALO et consorts' tous Agents des Districts Ruraux de l-a Province du Mono.
+LE PRESIDENT DE LA RNPLIBL]QUE, CHEF DE L,IETAT, PRNSIDENT DU CONSETL EXECUTI}. NATIONI\L, ltOrdonnance no77 -12 du ÿ Septenbre 1977 portant promulgation de 1a Loi Fondamentale de Ia République Populaire du Bénin et les Lois Cons titu tionnelles qui 1?ont modifiée ;
+W W Ie décret no85-254 du 17 Juin 1985 portant composition du Conseil exécutif National et de son Comité Permanent ;... '' SUR déclsion du Comité Permanent du Conseil Exécutif National entendu en sa séance du 2 Juiffet 1986 ;
+W l r Ordonnance noBO-6 du 11 Février '1980 édictant les dispositions en vue de Ia répression disciplinaire des détournements et certaines infractions commis par 1es A'gents de I rEtat et les Employés des Coll-ectivités Locales ;
+DECRETE disciplinaire chargée de connaitre des faits reprochés aux Canarades ltréophile AKUESSON, ex-Chef Du District Rural de Comé, Mathias LOCBO, Ex-Chef du District Rural de LALO et consorts, tous Agents des Dlstricts Rura:.rx de La Provlnce du I'IONO, impJ-iqués dans des malversations et dé tournements de deniers publics perpétrés au préjudice desdits Districts.
