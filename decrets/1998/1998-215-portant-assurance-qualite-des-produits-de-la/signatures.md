@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 11 I'rai 1998 Par le Président de la République, Chef de I' Etat, Chef du Gouvernement, Mathieu KEREKOU Le Ministre du Développement Rural, le Ministre de l'lntérieur, de la Sécurité et de l'Administration territoriale, t Jérôme SACCA-KINA.- l2 Théophile N'DA ,l L Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de I'Homme, Délégué auprès du de la République Chargé se Nationale, lsmaèl TIDJANISERPOS.- AMPI|AIIONS: PR6AN 4 CS 2 CC 2 CES 2 HAAC 2 PM4 MDR4 MDN 4 MISAT4 MJLDH 4 nWneS MTNTSTERES 1B Scc 4 DCF-DGTCP-DGBM-DcID-DGDDI 5 BN-DAN-DLC 3 GCONB-DCCT-INSAE 3 BCP-CSM-IGAA 3 UNB-ENA-FASJEP 3 JO 1, n f P delad
