@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à cotonou, le 13 DECEBRE 1996 Par le Président de la République, Chef de I'Etat, Chef du Gouvernement.
+athi KE EK U t Le Premier Minisfre, chargé de la Coordination de l'Action Gouvernementale et des Relations avec des Institutions "/- Adrien HOUNGBEDJI Le Ministre du Commerce, de I'Artisanat et du Tourisme Le Minisüe des Mines, de lEnergie et de I'H dratilique ATuel LOU Le Ministre de l'Intérieur, de la Sécurité et de I'Administration Territoriale Théophil N'DA e Gatien HO GBEDJI Le Ministre des Finances Mo Amoliations:PR 6 -pM4 -AN4-cs2 -cES 2-cc2- cES 2 -HAAC 2 - MCAT 4 - MF 4 - MMEH 4 - MISAT 4 - AUTRES MINISTERES I 3 - SGG 4 - DGBM - DCF - DGTCP - DGID - DGDDI 5 - BN - DAN - DLC 3 - GCONB - DCCT - INSAE 3 - CSM.IGRR 2 UNB - ENA- FASJEP 3 SHELL BE].TiN S..A. 2. JORBI
