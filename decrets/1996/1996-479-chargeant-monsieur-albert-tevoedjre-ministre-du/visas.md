@@ -1,0 +1,4 @@
+# Visas
+
+\ REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE DECRET No 96-479 Drr 2r ocroBrE 1996 Chargeant Monsieur ALBERT TEVOEDJRE Ministre du Plan, de la Restructuration Economique et de la Promotion de I'Emploi de l'intérim de Monsieur Moise MENSAH Ministre des Finances pour compter du 22 Octobre 1996 LE PRESIDENT Df, LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT, VU la Proclamation le 1er Avril 1996 par la Cour Constitutionnelle des résultats déIïnitifs de l'élection présidentielle du 18 Mars 1996 ;
+VU le Décret N'96-128 du 09 Avril 1996 portant composition du Gouvernement I NECR[',TE Article ler.- Pour compter du 22 Octobre 1996 Monsieur Albert TEVOEDJRE Ministre du Plan, de la Restructuration Economique et de la promotion de l'Empoi est chargé de I'intérim du Ministre des Finances pendant I'absence de Monsieur Moilse Mf,NSAH.
