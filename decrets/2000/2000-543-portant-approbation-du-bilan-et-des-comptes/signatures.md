@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 6 novembre 2oOo Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Mathieu KEREKOU.- Le Ministre d'Etat, gé de la Coordination de l'Action Gouvernementale, du Plan, du Développement et de la Promotion de l'Emploi, Bruno AMOUSSOU.- Le Mini e Le Ministre du Développernent del nomle, Rural, "_) Abd 0 ve TCHANE.- ThéophileNATA.- AMPLIATION .- :PR 6 AN 4 CS 2 CC 2CES2 HAAC 2 MECCAG-PDPE 4 MDR 4 MFE 4 AUTRES MiNISTERES 16 SGG 4 DGBM-DCF-DGTCP- DGID-DGDDI5 BN-DAN-DLC 3 GCONB DCCT INSAE 3 BCP CSM IGAA 3 UNB FASJEP ENA 3 JO 1.- DECRETE des Finances et
