@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le -; ~ Par le Président de la République, Chef de ]'Etat, Chef du gouvernement, t ./~/j .'/ ,//) • ..' , Le ministre de l'Intérieur, de la sécurité et de l'administration territoriale, Ampliations.- PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 MISAT 4 AUTRES MINISTERES 17 SGG 4 DGBM-DCF-DGTCP-DGID-DGDDI 5 BN-DAN- DLC 3 GCONB-DCCT-INSEA 3 BCP-CSM-IGAA 3 UNB-ENA-FASJEP 3 JO 1.-
