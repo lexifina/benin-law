@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 7 octobre 1999 Mathieu KEREKOU PR AN CC CES HAAC MFE SGG MINISTERES DEPARTEMENTS TRESOR INTERESSES JO 1.
+Amnliation
