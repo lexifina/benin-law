@@ -1,0 +1,4 @@
+# Visas
+
+a a REPUBLIQUE DU BENIN PRESIDENCE DE III REPUBLIQUE DECRET No gg-227 DU 4 MAI lggg Chargeant Monsieur Félir Essou DANSOU, Ministre des Mines, de I'Energie et de I'Hydraulique, assurant l'Intérim de Monsieur Adékpédjou S. AKINDES, Ministre de I'Enüronnement, de I'Habitat et de I'Urbanisme LE PRESIDENT DE LA REPUBLIQUE CHEF DE L'ETAT, CHEF DU GOU!'ERNEMf,NT, vu la toi N' 90-032 du I I Décembre 1990 portant constitution de la République dr, Bénin vu Ia Proclamation le I er Avnl 1996 par la cour constitutionnelle des résultats définitifs de l'élection hésidentielle du l8 Mars 1996:
+vu le décret N'98-280 du l2 Juillet 1998 portant composition du Gouvemenrent DECR ETE Article ler : Pour compter du ,o Awil 1999, Monsieur, Félix Essou DANSOII Ministre des Mines, de l'Energre et de I'Hydraulique est chargé de I'intérim «lu Ministrr de I'Enüronnement, de lrlabitat et de lurbanisme pendant l'absence de Monsieur Adékpédjou S. AKINDES.
