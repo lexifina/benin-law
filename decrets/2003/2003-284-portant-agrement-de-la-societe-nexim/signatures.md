@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, 1e 04 août 2OO, par le Président de la Répubtique, Chef de l'Etat, Chef du Gouvemement, Mathieu KEREKOU.- Le Ministre d'Etat chargé du Plan, de la Prospective et du Développement Bruno,{NIOUSSOU Le Ministre des Finances et de l'économie, Le Ministre de l'Industrie, du Commerce et de la Promotion de I'Emploi, r o ROU.- Ea Lt AKPLOGAN. - Le Ministre de la Fonction Publique, du Travail et de la Réforme Administrative, Bou r AROUIiA AMPLIATIONS:PR6AN 4 CC 2 CS 2 HAAC 2 CES 2 MCPPD 4 MFPTRA 4 MICPE 4 MFE 4AUTRES MINISTERES 18 DGBM-DCF- DGTCP- DGID- DCDDI 5 BN-DAN-DLC 3 GCONB-DCCT-INSAE 3 BCP-CSN -IGAA 3 UAC-ENAM-FADESP 3 LTNIPAR-FDSP 02 JO I.
