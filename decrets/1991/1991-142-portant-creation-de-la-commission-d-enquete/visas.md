@@ -1,0 +1,6 @@
+# Visas
+
+JD REPUBLIOUE DU BH\IN PRESIDENCE DE LA. REPUBLIQUE DECRET No91-t42 du 1er Juillet 1991 Po rtant création drEnquête chargée sur lrorigS-ne et constatées dans I Journal Officiel 11 Décembre 199O de l.a République 1a Comarisslon faire l-a lumière s causes des erreurs publicatirn lar Ie l-a Loi No 90-J2 du rtant Constitution Bénin .
+de de 1e a de po du LE PRESIDM{T DE LA RBzuBLISUE, crmP DE LTETAT, CHEF DU GoUVERNEMn{T, VU Ia Lol No 90-f2 du 11 1a République du Bénln Décembre 199O portant Constiürtion de vU le Décret No 91-68 d Gouvernement Provlso DECRETE Artlcle 1er.- Il- est créé une Commission drenquête chargée de faire umière sur lrorlgine et l-es causes des erreurs constatées dans exte de LoL portant Constitution de 1a République du Bénin., mment ]-a modi-fication de lfarticle 5f a1lnéa f.
+Artlcle 2 La Comrnlssion est composée comme suit u 4 Avrtl 1991 portant corrpositfon du lre I la1 leT nota Présldent Un représentant du Président de 1a 19 Un représentant du Haut Consell Républlque 2o) Un représentant du Ministre de et de Ia Léglslation A') Un représentant du Ministre de tlon et des Comrmrnications.
+République de ]-a La Justice f t Informa- Membres Article J.- La Comnission devra déposer son rapport au p).us tard 1e 31 Jul11et 1991 au Président de Ia Républlque avec des propositions concrètes. I
