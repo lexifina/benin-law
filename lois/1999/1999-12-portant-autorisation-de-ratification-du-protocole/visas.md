@@ -1,0 +1,4 @@
+# Visas
+
+fE.- REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE LOI N° 99-012 DU OS FEVRIER 1999 portant autorisation de ratification du protocole d'accord entre le gouvernement de la République du Bénin et le gouvernement de la République populaire de Chine signé le 07 juillet 1995 dans le cadre de la fourniture d'un crédit d'assistance militaire par la Chine au Bénin.
+L'ASSEMBLEE NATIONALE a délibéré et adopté, LE PRESIDENT DE LA REPUBLIQUE promulgue la loi dont la teneur suit Article ler.- Est autorisée, la ratification, par le Président de la République, Chef de l'Etat, Chef du gouvernement, du protocole d'accord entre le gouvernement de la République du Bénin et le gouvernement de la République populaire de Chine, signé le 07 juillet 1995 dans le cadre d'un crédit d'assistance militaire pour un montant de trois millions (3.000.000) de dollars américains soit environ un milliard six cent cinquante millions (1.650.000.000) de francs CFA.
