@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le l0 avril 2OOf Par le Président de la République, Chef de l'Etat, Chef du Gouvemement, Le Ministre des Finances et de I'Economie, Le Ministre d'Et gé de la Coordination de l'Action Gouvernementale,, de la Prospective et du Développement, Bruno AMOUSSOU.- Mathieu KEREKOU.- Le MinisTre de l'Environnement, de I'Habitat et de I'Urbanisme, J UROU,- Luc-Marie Constant GNACADJA.- Ampliations:PR6AN4CS2 CC2 CES2 HAAC2 MCCAG-PD4 MFE4 MEHU 4 AUTRES MINISTERES 18 SCG 4 DGBM-DCF-DGTCP-DGID- DGDDI 5 BN-DAN-DLC 3 GCOMB-DCCT-INSAE 3 BCP-CSM-IGAA 3 UAC-ENAM-FADESP 3 LTNIPAR-FDSP 2 JO I.
