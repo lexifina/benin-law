@@ -1,0 +1,5 @@
+# Visas
+
+WI REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE DECRETNO9T-544 DT' 5 NOVEMBRE 1997 complétant le Décret No 97 -446 du 18 Septembre 1997 portant création d'une commission ad'hoc chargée de vérifier les informations faisant état de rapports conflictuels entre le Ministre du Commerce, de l'Artisanat et du Tourisme et le Directeur Général de la Société Nationale de Commercialisation des Produits Pétroliers (SoNACOP).
+LE PRESIDENT DE LA REPUBLIQTJE, CIIEF DE L'ETAT, CHEF DU GOUVERNEMENT, VU la Loi N' 90-032 du 11 décembre 1997 portant Constitution de la République du Bénin , VU la proclamation le l er awil 1996 par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du l8 mars 1996 ;
+VU le Décret N" 96-128 du 09 awil 1996 portant composition du Gouvernement Article ler : Il est demandé au Ministre du Commerce, de l'Artisanat et du Tourisme d'instruue la Direction Générale de la SONACOP de mettre à la disposition de la commission ad'hoc, les moyens matériels et financiers nécessaires à l'accomplissement de sa mission.
