@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 31 decembre 1997 Par le Président de la République, Chef de I' Etat, Chefdu Gouvemement, Mathieu KEREKOU.- Le Premier Ministre, chargé de la Coordination de I'Action Gouvernementale et des Relations avec les lnstitutions, Porte-Parole du Gouvernement, Adrien HOUNGBEDJI.- Le Ministre de la Fonction Publique, du Travail et de la Réforme Administrative, le Ministre des Finances, Assouma Amoliations: PR 6 AN 4 CS 2CC2 CES 2 HAAC 2 PM 4 MFPTRA4 MF de I'Emploi4 AUTRES MINISTERES 15 SGG 4 DCF-DGTCP-DGBM-DGID-DGDDI 5 BN.DAN.DLC 3 GCONB-DCCT-INSAE 3 BCP.CSM-IGAA 3 UNB-ENA.FASJEP 3 JO 1,
