@@ -1,0 +1,9 @@
+# Visas
+
+REPT]BLIQIJE DU BENIN PRESIDENCE DE LA REPUBLIQUE DECRET No 96 - 234 du 20 Juin 1996 Portant agément de 'E.A.O PETROLEIIM S.A' pour I'importation, le stockâge et la distribution des produits Éüoliers raffnés et leuls dérivés en République du Bénin.
+LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOWERNEMENT VU La Loi N'90-32 du I I Décembre 1990, portant Constitution de la Répubüque du Bénin ;
+VU La Loi N'90-005 du 15 Mai 1990, fixant les conditions d'exercice des actMtés de commerce en République du Bénin ;
+VU La Loi N"92-O23 du 06 Août 1992, portant détermination des principes fondamentaux de dénationalisation et des transferts de propriété d'entreprise du secteur public au secteur privé ;
+VU La Proclamation le ler Awil 1996 par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du 18 Mars 1996 VU Le Décret No96-128 du 09 Awil portant composition du Gouvernement , VU Le Décrot N'95-139 du 03 Mai 1995, portant modalités d'importation et de distribution des. produits pétroliers raffinés et de leurs dérivés en République du Bénin;
+VU L'Arrêté Interministénel N'24/MCTÀ{F^4EMIilMTPT/CAB du 03 Mai 1995 fixant les conditions d'application du Décret No95- 139 du 03 Mai 1995 ;
+VU L'Arrêté Intenninistériel N"25IIVICT/\4EMIVCAB du 03 Mai 1995, fixant les conditions d'accès aux installations de stockage à la disposition de la SONACOP et portant autres modalités de mise en oeuwe de l'ouverture du secteur des produits pétroliers au Bénin SUR proposition du Ministre du Commerce de I'Artisanat et du Tourisme LE Conseil des Ministres entendu en sa séance du 19 Juin 1996 DL, CIIE'I E ARTICLE I ER : La Société "E. A. O. PETROLEUM S.A.,', immatriculée au Registre du corrunerce N'20624-B du rr Juin 1996 à coroNou, est agréée pour imporler, stocker et distribuer eu République du Bénin les produits pétràtiers ratïinés et leurs dérivés.
