@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à C0TONOU, 1e 18 Octobre 1995 oar Ie Président de 1a RéPublique, 'Ch.f Ae ltEtat, Chef du Gouvernement, Le lrlini stre d t Etat, Chr;'gé de 1a Coordlnation de ].lAction GouvernementaJe et de Ia Ddfense iia-tionafe, Nic éphore SOGLO.- Le Ministre du Commerce et du Tourisme, DESITE V IL Yi{A . -' Le Mlni stre du Plan et de 1a Restructuration Economique t \Lr,l ert TAGNON.- Anroli-ati f,:rs : PR 6 AN l Cf, ffim-Es i,iir:ISi'rjRES 17 s('.! 4 D1ll\T--:-' - uvtji\.B-llcu.t''-INS,1E Sikiratou AGUEMON. - 2 CC 2 CNS 2 HAAC 2 MEDN 4 MCT-MPRE 8 SOl.lr:iCOP 10 DB-DCF-DSDV-DGTCP-DI 5 BN- f IINB-Fr\SJEP-ENA f JO 1.-
