@@ -1,0 +1,11 @@
+# Décret n° 1994-57 du 11 mars 1994 Portant approbation du Bilan et des Comptes Annexes de l'Exercice clos au 31 Décembre 1992 du Centre National de Production de Manuels Scolaires (CNPMS)
+
+/rs. - REPUBLIOUE DU BENIN DECmT N. g4-5ry du 11 Mars 1994 Portant approbation du Bilan et des Coinptes Ar:rrexes de lrExercice clos au J'l Décembre 1992 du Centre National de Production de Manuefs Scblaires (CNPMS).
+LE PRESIDENT DE LÀ FN},UBLIQUb];
+CHEF DE LIETÀT, CHBF DU C.OU\T]]Ti],{III.ENT, VU ÿU VU VtJ VU VU SUR LE 1a Loi No 90-J2 du 11 Décembre 1990 portant Constitution de ta République du Bénin ;
+Ia Lol No 88-OO5 du 26 Avril- 1988 relative à Ia création, à lrorganlsation et au fonctionnement des Entreprises publiques ét Semi-- Publiques;
+Ia Décision No g1-o42/HCR/pr du JO Irhrs 'lÿÿ1 portant proclamatiorr des résultats définitifs d.u deuxième tour- âes" éreàiioËÀ-piàiia."- tielles du 24 Mars 1991 i Ie Décret N' 9f-199 du O8 Septembre 'i993 portant composition du Gouvernement ;
+Ie Décret No 9O-1 46 du 29 Novembre 1990 pôrtant attiibutlons, organj__ sation et fonctionnement du iili-nistère d.e ]-rEducation Nationaie ;- 19-Qé-c-rg!. §" 92-6, du,-1o.I,Iars 1992 portant attributiôns, organisation èt- foàctioïnement du Ministère d.u pian et de la RestruciuràTion Economi,'-,ue ;
+Rapp-ort 'conjoint du ltinistre de lrEducation Nationale et du Ministre du Plan et de 1a Restructuration Economique ; - -:---- Conseil des Ministres entendu err sa séance.du 23 Févrler 1gg4 ? DECRET E Artic]-e 1er. - ce clos au 51 Scolaires (CNP Sont approuvés le Bilan et 1es Comptes Annexes d.e lrExerci_ Décembre 1992 d.u Centre National de prod.uction de Manuels MS) tels qutils figurant en annexe à àe Oécret. - PRESIDENCE DE LA REPUBLIOUE .Article 2. - Le présent Décret sera publié au Journal ..Of,fj_ciel_.
+Fait à COTONOU, le 11 Mars 'l 994 Par 1e Président de 1a Répub1i que, Chef de lrEtat, Chef du Gouvernement, Le Ministre trtat Nicéphore S0GL0 Le l{inistre de 1r Educatior:
+l'lationale, Karim L. DRAMAI,IE. - ,t) Le Ministre du Plan et de Ia Restructuration Econo ue bert TAGNON .t Irmpliations : PR 6 AN 4 CS 2 CC 2 i,E 4 I"{PRE-I{EN 8 ÀÜTRES MINISTERES 16 SGG 4 DP-INSAE 4 BCP 1 DTCP 4 SOCIETE 10 CCIB 2 DB.DCOF-DSOV-DI 4 UNB. FASJEP-ENA ] JORB 1.- Désiré VIEYRA
