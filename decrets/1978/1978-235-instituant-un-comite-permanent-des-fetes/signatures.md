@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à COTONOU, 1e 13 §eptemb -t I par Ie Président de Chef de lrEtat, Chef 1a République, du Gouvernement, Mathieu KEREKOU Le de de et de l-rI rli ent 10n N pour 1e Ministre F nces abs rtln DOHOU AZCN.{IHO ÀInp1iê-!i-a4§ PR I CC du PRPC 6 - MISON" P,:'c-.-inc es, Districts et Services 1O0 Se:i'vices 20 - Autres Ministères Comité Nat. 15 - MF--IVLA EC e-L .l-errrs SGG 4 SPD-2 DPE-DAJL-I)'ISÀE 6 fGE ê'r ses Sections 4 DCCT-OltiEPI-Grle Chanc.J-Cab.Mil . r Etats-Majors 6 BN-UNB-FASJEP6JORPB1 Ministre Dé1égué auprè 1a République, Chargé la Sécurité et dd l-'or s du Pré ent eur , at i onal e ent ,
