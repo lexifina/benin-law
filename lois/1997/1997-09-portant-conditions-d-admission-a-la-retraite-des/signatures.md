@@ -1,0 +1,6 @@
+# Signatures
+
+Fait à COTONOU, le 26 Mai 199 Le Président de la République, Chefde l'Etat, Chefdu Gouvernement, Le Premier Ministre, Chargé de ia Coordination, de l'Action Gouvernementale et des Relations avec les Institutions, Adrien HOUNGB6DJl..- .../...
+'.
+• .. :,': :.
+e Ministre de la Fonction Publique, du Travail et de la Réforme Administrative, o Le Ministre de l'Education Nationale et de la Rec e Scientifique, Le Ministre des Finances, Ampliations PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 PM 4 MENRS 4 MR 4 MFPTRA 4 AUTRES MINISTERES 15 SGG 4 DGBM-DCF-DGTCP- DOOD-DGDD 5 BN..DAN-DLC 3 GCONB-DCCT-INSAE 3 BCP-CSM- IGAA 3 UNB-ENA-FASJEP 3 JORB 1...
