@@ -1,0 +1,3 @@
+# Visas
+
+REPI,,BLIOIJE POPULAIRE DU BENIN PRESIDENCE DE LA REPTIBLIQTJE DECRET IJo B1-1 14 du 18 Avril 1981 portant création de la commisslon ad hoc chargée de 1a réception offlcielle de matériels, don de La Jamahiriyâ Arabe Libyenne Populaire et Socialiste. LE PRESIDENT DE LA REPUBLIQUE, CI{EF DE LIETAT, PRESIDENT DU CONSEIL EXECT'TIF NATTONAL, VLI lf ordorrnance No77-r2 du 9 Septembre 1977 portant promulgatlon de Ia Loi Fondamentale de la Répub).ique Populaire du Bénln, W Ie décret NoSO-ltg du 12 Février 198O portant composition du Consell Exécutif National et de son Comité Fermanent, ettre No299/4/B4C/FAP/4223 du 11 ÀÿriL 1981 du Chef d'Etati^ Général des Forces l.rmées Populaires du Bénin, DECRElE 1a1 MaJo VU
