@@ -1,0 +1,4 @@
+# Visas
+
+REPUBLIOUE POPULAIRE DU BEIiI]T.I PRESIDENCE DE LA REPUBLIQUE DECRET No 84-520 du 27 Décembre .1 ÿ84 chargeant fe Camarade André ATCHADE, Ministre du Travaif et ries hffaires Sc ciafes de ltintérim d.u Camarade Girigissou GADO, Ministre de ltEquipement et des Transports pour compter du 27 décembre 19A4.- LE PRESIDENT DE LA REPUBLIOUE, CHEF DE LIETAT, PRES]DENT DU cot§sEIL EXECUîIF NÂTION L, vu lrordonnance no 77-32 du 9 septembre 1977 portant promurgation d.e la Loi Fondamentale de 1a Républlque populâire au Èénin èt l-es Lois Con stitutionne IIes quj- lront- modifiée, w Ie décret no 84-122 du J aott 1ÿ84 portant composition du conseil Exécutif National et de son Comité Fermanent, - DECRETE gjæ.
+- Pour compter du 27 décembre 1Ç84, 1e Camarade André 4T-CHADE' Flinistre du Travaif et des .Affaires sôciales, est chargé de 1r intérim du Ministre de ltEquipement et des Transports pendant lrabsce du Camarade Girlgissou GADO.-
