@@ -1,0 +1,7 @@
+# Visas
+
+W w w w PRESIDLNCE DE LA REPUBLTOUE W W §uivants-de 1a loi No B8-OO 6 x dispositions des articles 66 et au 26 Avril 1988 modlfiant et compléctobre 1981 , 1e Colonel Gaston CoO 1/I compter du'1er Juillet 1ÿ88 pour une labres' ,../...
+DECRET No BB-530 du 29 Décombre 19BB portant malntlen en activité du Colonel C00Vl Gaston poUr compter du 1er Juillet 1988.
+LE PRESTDENT D]j LA REPUBLIQUE.
+CHEF DE 1'ETAT. PRESIDENT UJ.
+CONSEIL EXTCtJl]F I,IAT]ONAL, l rordorueance No 77 -1? du 9 Septemhre 1977 portant prornrlgation de la Loi Fondamentale de Ia République Populaire àu BénIn et 1es lois c ons ti tutionnelles qui lront modiflée, l r ordorurance No 77-1 4 6u 2! Mars 19?7 portant création des Forces Armées Populaires 6u Béninl l_a lo1 No 81 -O14 6u 10 Octobre'1 9e1 portant Statut Général des Personnels Militaires des Forces Arm-ées Populaires du Bénin, 1e décret No BB-f15 du 29 Jui].let 1988 portant composition du Consell- Exécutif National et de son Comtté Permaneàt, le décret No 86-1 61 6u 2 Mai 1986 portant maintien en activité du Lleutenant-Col-one1 Gaston C00 VJ; Chef drEtat-lvlaJor des Porces de Défense Nationale, la loi No Ba.o06 du 26 Avril .199e modifiant et complétant 1a loi No 81 -O14 6ç 10 Octobre 1981 portant Statut GéàéraI des Personnels Mllitaires des Forces Armées Populaires 4u Bénine SUR 6éq1si6n du Bi-reau Pollticue du Comité Central du Parti de Ia Révolution Populaire du Bdnin, Ls Comlté Permanent du Conseil Exécutif National entendu en sa séance du 27 Octobre 1988, DECRETE:
