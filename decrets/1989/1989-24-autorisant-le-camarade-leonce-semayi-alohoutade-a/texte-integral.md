@@ -1,0 +1,12 @@
+# Décret n° 1989-24 du 23 janvier 1989 autorisant le Camarade Léonce Sèmayi ALOHOUTADE à perdre la nationalité béninoise
+
+TTVLI..
+REzuBL]OUE POzuLAIRE DU BETIIN PRESIDENCE DB LA REPUBLIOUE VU VU w VU SUR LE DECRET No 89-24 6ç 2J Janvier 1989 autor.isant Ie Camarade Léonce Sèmayi ALOHOUTADE à perdre 1a nati:na11té béninoise.
+e 1er.- Le Camarade Léonce Sèrnayi ALOHOUTADE, né le 18 Juin a HODONOU, de6e Fédérale drAl noi.se.
+NOVO. fils de Kougnintandé ALOHOUTADE et de Gantien a . -^^^ -.
+'- urarlt, a ,uuu Hannovre 1r Plauener Str 31 (République lemagne), est autorisé à-perdre 1a nationalité béni- Artic Le présent décret prend effet à 1a date de sa signature sarls toutefois quril soit porté a'bteinte à 1a validité des actes yi ni aux droits acquis Par les tion sur .l-e fonderoent de la nat passés par ALOH0UTADE Léonce Sèma tiers antérieurement à sa Publica nalité béniloise de I t intéressé.
+.1O- I,E PRESIDENT DE LA REPUBLISI.IE, CHEF DE LIETÀT, PRESIDEIJT DU CONSEIL EXECUTIF NATfONAL, ltordonn.ance No 77-32 du 9 Septembr"e 1977 portant promulgation de la Loj- Fondamental-e de Ia République Populaire du Bénin et 1es Lois Constitutionirelies qui fr ont modifiée ;
+1a Loi N' 65'17 du 2i Juin 1965 portant Code de la Nationalité Béninoise et Ie décret llo 272 PC/WL du '1 1 Aott 1965 fixa]lt 1es modalités drappllcation du Cocle de ]-a Nationafité Béninoise et des instructiôns du Garde das Sceaux, l4inistre de 1a Justice et de 1a Légisfation i 1e décret No 88-f1 5 du 29 Juille-b 1988 portant composition du Consell Exécutif National et cle son Comité Permanent I 1a requ6te en date du 'ler Juin '1 988 du Camarade Léonce Sèmayi ALOHOUTADE et frensemble des pièces produites ;
+proposition du irU-ni s tre de l-a Jurstice, Chargé de 1r Tnspection des Entreprises Publi.ques e'c Semi-Publiquës; , ' Côrnité Permanent du Conseil Exécutif National entendu en... -a s éaice du 'l l Janvier 1 9B9 r -t.
+DECRETE Arti c1q ].- Le présent décret scra publié et comrnuniqué partout où EEsôfn sera.
+par 1e Président de 1a RéPublique, CÀef de lrEtat, Président du Conseif Exécutif Nationa.l, Fait à COTONOU, 1s 2J Janvier 1989 Mathi eu KER-EKOU te Ministre de fa Justice, Ch .9Ê 'de 1r lnspection des EYrtreP? Publi"ques et Semi-PubliquqPi Saliou IEOUDOU ,a , r /,/ ,,ry Amn.lJatiors : PR 6 SA/CC 4 ANR 4 CPC 2 PPC 2 SGCEN I+'I{AEC-MJIEPSP I aüffimiïi"ia"u" 14 'cEAp 6 DB-DCF-DIcP-DSDV-DI 10 DPE-rü.c-nisAE l BN-DAN 2 UNB.FASJEP 2 JORPB 1 TITTERESSM 1.-
