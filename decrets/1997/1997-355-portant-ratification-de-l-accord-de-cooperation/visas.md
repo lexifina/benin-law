@@ -1,0 +1,13 @@
+# Visas
+
+/ÿs IiEPUBLIOUE DU BEN]N :rll-.IiIDENCE DE rA REPUBLIAUE Ar-uicle 1er.- Es DECRET N. 97-355 iU 21 JUILLET 1gg7 portant ratification de lrLccord de Coopération entre la Républicue du Bénin et I'Etat dTISRAEL siené à Jérusalem, le 22 Février 1991 .
+W 1a Loi No90-OJ2 du'1 1 Décembre 1990 portant Constitution de la République du Bénin ;
+VU fa Loi No97-O18 du 1O Juin 1997 portant autori_-sati_on de ratif ication de lrAccord de Coopération entre Ia République du Bénin et ltEtat d'ISRAEL sigrné à Jérusalen, 1e 22 FÉvriei l99j.
+VU la Froclamation l-e 1er Àvril 1996 par. l-a Cour Constitutionnelle des résultats définitifs cle 1téIecîion présidentielle du 1B i,iars 1996 i VU 1e Décret N:.96-1 28 du 09 .{vrlf 1996 portant composition dü' Gouvernement' ;
+LE PRESIDENT DE I.A, REPIIBLIOUE, CI{EF D]] L'ETAT, CHEF DU GCU\1IR}JEMENT, DECRETE t ratifié l-rAccord de Coopératinn entre t J.rEtat dt ISRAEL signé à Jérusa1em, 1e pu vr la Ré tt ra blique ôu Eérin e 1991 et dont Ie texte se trouve ci-joint.
+.A.rtrc].e .- Le présent Ddcret sêra publié au Journal Officiel.- Fait à CCIOIIOU, fe 21 JUILLET 1992 par 1e Président de 1a Répuplique, Chef de lrEtat, Chef du Gor-rvernement, r:.thieu KEREKOU ( Le Premier l,{inistre, Chargé de Ia Coordination cle ltAction Gouvernernental-e et des Relations avec 1es Institutions , !, {" Adrien I{OUI'IGBDJI Le Ministre des Àffaires Etrangères et de 1a Coopération, D Arnp iatipns : PR .6 Ai{ 4 CS 2 CC 2 CES 2 IIALC 2 pt'îL 4 MÀEC 4 AUTRES IVTINTSTERES 16 SCG 4 DGBM-.DCF-DGîCP.DGTD-DGDDf 5 BN-DAN-DLC ] GCONB- DCCT-INSAE.] BCF-CSM.IGAA ' IN{B.ENA.FASJEP 3 J9 1..
+t Hri-Qs-lIQ 'I AccoÂD GOUVEBTEMETT DE ET LE GOUVEBü}I DE COOPEEATIOTI Er{TAE LE LA REPUBLIQUE DU OE J, I;
+XT DE L'ETAT D'IS,A}.EL E ACCOED DE COOPEBATIOII LE GOUVERI{ET,IEHT DE LA REPUBLIOUE DU BE}I I X ET LE GOUVESIII'IEIIT DE L'ETAT D'ISRAEL I Le Gouvernenent Gouverneoent de Oê Iâ RepuDllque Ou Benln I'Etat d'IsraëI d'autre O'uns pârt et l€ part, c1- après dênoEDês "Ies dêux Part,les Contractantês", Tenant compte de I'Accord de Coopérât1on Têchn1gu6 du 2A septeDbre I96.L entre I6s deux pays i Cons 1dêran t RêpubI l gue Ies r€Iatlons amlcales gu1 exlgtent entre la du Eénln et I'Etat d'Israëli Déslreux de consollder êt d'approfondlr ces relatlona par une coopération fructueuse dans 1es doDalnes poIltlgue, écononlque, sci,entlf 1que, t6chn1gu6, cult.urêI et soclal;
+necorlrralssant los âvantages pour les deux Etats d'une coopérat lon polltlgue.
+écono[1gue, sc1ent1flque.
+tochnigue, culturelle ot soclale sur Ia base du respect des prlnclpes de l'êgal1té eE de I'avantago réclproquei Sont convenus de ce qul 9u1t
