@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 07 avril 2005 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Mathieu KEREKOU.- I4 J Le Ministre de l'lntérieur, de la Sécurité et de la Décentralisation, ç1 Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de I'Homme, ./> -- ÿrvalca ou MAMA SIKA.- Ampliations : PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 MISD 4 MJLDH 4 AUTRES MINISTERES 19 SGG 4 DGBM-DCF-DGTCP.DGDDI-DGID 5 BN- DAN-DLC 3 GCONB-DCCT-INSAE 3 BCP-CSM-IGAA 3 UAC-UNIPAR- ENAM 3 FADESP-FDSP2 PG/COTONOU 2 PG/PARAKOU 2 PROCUREUR DE LA REPUBLIQUE 2 REGISSEURS PRISONS 8 JO 1.- f Dorothé C. SOSSA.-
