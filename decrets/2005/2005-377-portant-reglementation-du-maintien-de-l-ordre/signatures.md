@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 21 juin 2005 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement hieu KEREK Le Ministre d'Etat chargé de la Défense Nationale, Le Ministre de I'lntérieur, de la Sécurité et de la Décentralisation, Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, o h Séid A SIKA /t.' '2=.*é*'z-,- Dorothé C. SOSSA AMPLI IONS PR6 AN4 CS2 CC2 CES2 HAAC2 MECDN4MISD4 MFE 4 AUTRES MINISTERES 17 SGG 4 DGBM-DCF-DGTCP-DGID- DGDDI 5 BN-DAN-DLC 3 GCONB-DCCT-INSAE 3 BCP-CSM-IGAA 3 UAC- ENAM-FADESP 3 UNIPAR-FDSP 2 JO 1.- o Pierre OSHO
