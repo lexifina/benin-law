@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 22 décembre 2005, par le Président de la République, Chefde l'Etat, Chefdu Gouvernement, Mathieu KEREKOU.- Le Ministre de l'Intérieur, de la Sécurité et de la Décentralisation, Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, g~ Dorothé C. SOSSA Le Ministre chargé des Relations avec les Institutions, La Société Civile et les Béninois de l'Extérieur, r --~-- AMPLIATIONS: PR 6 AN 4 CC 2 CS 2 HAAC 2 CES 2 MISD 4 MJLDH 4 MCRI-SCBE 4 AUUŒS MINISTERES 18 DGBM-DCF- DGTCP- DGID- DGDDI5 BN-DAN-DLC 3 GCONB-DCCT-INSAE 3 BCP-CSN -IGAA 3 UAC- ENAM-FADESP 3 UNJPAR-FDSP 02 JO 1.
