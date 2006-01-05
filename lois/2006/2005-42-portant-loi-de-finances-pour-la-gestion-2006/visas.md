@@ -1,0 +1,6 @@
+# Visas
+
+/ " .' "/ ~,- TMJ.· REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE ..~'" "..
+( LOI N" 2005-42 DU 05 JANVIER 2006 Portant loi de finances pour la gestion 2006.
+L'Assemblée Nationale a délibéré d adopté, Le Président de la République promulgue la loi donlla teneur suit:
+PREMIERE PARTIE CONDITIONS GENERALES DE L'EQUILIBRE FINANCIER TITRE 1 DISPOSITIONS RELATIVES AUX RESSOURCES 1-IMPOTS ET REVENUS AUTORISES A - DISPOSITIONS ANTERIEURES
