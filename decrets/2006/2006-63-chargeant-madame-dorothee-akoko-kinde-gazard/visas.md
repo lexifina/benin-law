@@ -1,0 +1,5 @@
+# Visas
+
+REPUBLIQUE DU BENIN DECRET N" zoo6-o6rr Dü 2a FEvRTER 2006 PRESIDENCE DE LA REPUBLIQUE Chargeant Madame Dorothée Akoko KINDE.GAZARD, Ministre de la Santé Publique, de I'lntérim de Madame Léa D. AHOUGBENOU HOUNKPE, Ministre de la Famille, de la Protection Sociale et de la Solidarité.
+LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT, VU la Loi n' 90-032 du 11 Décembre 1990 portant Constitution de la République du Bénin ; VU la Proclamation le 03 Avril 2001 par la Cour Conslitutionnelle des résultats définitifs de l'élection présidentielle du 22 Mars 2001;
+VU Le Décret N' 2006-031 du 27 janvier 2006, portant composition du Gouvernement ; VU le Décret N' 2006-063 du 20 février 2006 chargeant Monsieur Martin C. Dohou AZONHlH0, Ministre d'Etat chargé de la Défense Nationale de l'intérim du Président de la République ; DECRETE Article 'lu, : Pour compter du lundi 20 février 2006 jusqu'au vendredi 03 mars 2006, Madame Dorothée Akoko KINDE-GAZARD, It/inistre de la Santé Publique, est chargée de I'intérim du Ministre de la Famille, de la Protection Sociale et de la Solidarité, pendant l'absence de Madame Léa D. AHOUGBENOU HOUNKPE.
