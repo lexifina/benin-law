@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 18 mai 2oo6 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI.- Le Ministre du Développement, de l'Economie et des Finances, Le Ministre Délégué chargé des Transports, des Travaux Publics et de I'Urbanisme auprès du Président de la République, I.--, i l'i L'-'' I Alexandre Kpédétin DOSSOU.- fi,e, p,c, Pascal lrénée KOUPAKI.- AMPLIATIONS:PR 6AN 4 CC 2CS2 HAAC2 CES 2 MDEF 4 MDCTTPU/PR 4 MDCB/MDEF 4 AUTRES MINISTERES 19 DGBM-DCF. DGTCP- DGID- DGDDI 5 BN-DAN-DLC 3 GCONB-DCCT-INSAE 3 BCP-CSN -IGAA 3 UAC-ENAM-FADESP 3 UNIPAR-FDSP3 CNERTP2 JO1.
