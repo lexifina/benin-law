@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 18 nai 20 Boni YAYI.- Le Ministre de l'lndustrie et Le Ministre de l'Agriculture, de du Commerce, l'Elevage e de la Pêche I+L_ -) o r Moudiâidou I u SOUMANNOU.- Le Ministre du Développement, de I'Economie et des Finances, Cossi Gaston DOSSOUHOUI.- Le Ministre de la Justice chargé et des Relations avec les lnstitutions, Porte-parole du Gouvernement, Pascal lrénée K Me Ab am ZIN INDOHOUE Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Ministre Délégué chargé du Budget auprès du Ministre du Développement, e I'Economie et d Finances Le Ministre de la Sécurité Publique Locales, et des Collectivité non H B Edqard Charlemaqne ALIA.- AMPLIATIONS:PR6 AN4 CS2 CC2 CES2 HAAC2 MAEP4MDEF4MIC4 MJCRI-PPG 4 MSPCL 4 AUTRES MINISTERES 16 SGG 4 DGBM-DCF-DGTCP-DGID- DGDDI 5 BN-DAN.DLC 3 GCONB.DCCT-INSAE 3 BCP.CSM-IGAA3 UAC.ENAM.
+FADESP 3 UNIPAR -FDSP 02 IJO 1.-
