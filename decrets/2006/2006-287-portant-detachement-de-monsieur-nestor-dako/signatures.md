@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 29 juln 2006 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Ministre du Développement, de I'Economie et des Finances, Ministre de la Justice chargé des Relations avec les lnstitutions, Porte-parole du Gouvernement, I'tîr"J,^,lt *+- Pascal lrénée KOUPAKI.- Me Abraham ZINZINDOHOUE Le Ministre délégué chargé du Budget auprès du Ministre du Dév ppement 'Econ mie et de ES, t ert Sèqbéqnon HOUNGBO AMPLIATIONS:PR 6 AN 4 CS 2 CC 2CÉ52 HAAC 2 MDEF 4 MDCB/MDEF 4 AUTRES MINISTERES 19 SGG 4 DGBM-DCF-DGTCP-DGID-DGDDI 5 BN-DAN- DLC 3 GCOMB-DCCT-INSAE 3 BCP-CSIU-IGAA 3 UAC- ENAM - FADESP 3- UNIPAR _ FDSP 2 INTERESSE 01 JO 1.- DrBoni YAYI
