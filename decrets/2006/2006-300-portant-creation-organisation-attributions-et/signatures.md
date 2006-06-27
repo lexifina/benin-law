@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 27 juin 2006 Par le Président de la RéPublique Chef de l'Etat, Chef du Gouvernement, r Boni YAYI Le Ministre du DéveloPPement, de l'Economie et des Finances, Le Ministre Délégué chargé des Transports, des Travaux Publics et de I'Urbanisme auPrès du Président de la RéPublique.
+C* Pascal lrénée KOUPAKI AM PLIATIONS: PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 MDEF 4 4 AUTRES MINISTERES 20 SGG 4 DGBM.DCF-DGTCP- MDCTTPU/PR DGID-DGDDI 5 BN-DAN.DLC 3 GCOMB-DCCT-INSAE 3 BCP-CSM-IGAA 3 UAC- ENAM _ FADESP 3- UNIPAR - FDSP 2 JO 1.- pour l'accompllssement de sa mission (Consultants, Directions Techniques des Ministères, Agences d'exécution, etc.) Article '19: Le présent décret qui abroge toutes dispositions antérieures contraireq prend effet à compter de la date de sa signature et sera publié au journal officiel , Alexandre Kpédétin DOSSOU
