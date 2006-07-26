@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le z6 Juillet 2006 \ AMPLIATIONS:PR 6-AN4 . CC 2. CES2-HAAC2- MDN 2-MSPCL4-SGG4 -AUTRESI/INISIRES 22,
