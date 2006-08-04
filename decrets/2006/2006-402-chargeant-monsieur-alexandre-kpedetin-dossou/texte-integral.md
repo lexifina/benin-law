@@ -1,0 +1,8 @@
+# Décret n° 2006-402 du 4 août 2006 Chargeant Monsieur Alexandre Kpèdétin DOSSOU, Ministre Délégué chargé des Transports des Travaux Publics et de l'Urbanisme auprès du Président de la République, de l’intérim de Monsieur Jean-Pierre BABATOUNDE, Ministre de l’Environnement., et de la Protection de la Nature pour compter du 25 Juillet 2006
+
+REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE DECRêI No 2006-402 DU 04 AoUT 2006 Chargeant Monsieur Alexandre Kpèdétin DOSSOU, Mlnistrc Dé1égué chargé des lranlportsr dcs lravaux Publics et de llUrbanlsme auprès du Présldgnt de 1a République, de lllntérln de Monsleur Jean-Plerre BABATOUNDE, Ministre de 1r Envlronnement., et de la Protectlon de 1â Nature pour conpter du 25 Juilfet 2006.
+Article l" : pour compter du Mercredi 25 at 31 Juillet 2006, Monsieur Alexandre Kpèdéti DOSSOU, :rssurera l'intérim de Monsieur Jean-Pierre BABATOLINDE, Ministre de l'Environnement et de Protection de la Nature, pendant son absence.
+Ârticle 2 : Le présent décret sera publié au Joumal Offrciel.
+LE PRESIDENT DE LA REPUBLIQT]E CHEF DE L'ETAT CTIEF DU GOUVERNEMENT' VU la Loi 90-032 du 1 I décembre 1990 portant Constitution de la République du Bénin ; W la proclamation le 03 Avril 2001 par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du 18 mars 2001 ;
+VU le Décret n" 2006 - 178 du 08 Avril 2006 portant composition du Gouvemement. Fait à Cotonou, le 04 août 2006 Par le Président de la République, Chef de l'Etat, Chef du Gouvemement, r Boni Amoliation : PR6-AN 4- CS 2- CC 2-HAAC2 -PM 4-MEPN 4-MAEIA 4- SGG 4 - AUTRES MINISTERES 16 _ DEPARTEMENTS 6.
+DECRETE
