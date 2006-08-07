@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 07 août 2006, Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Ministre de la Santé, ~ Flore GANBGO Le Ministre Délégué chargé de la Communication et des Nouvelles echnologie uprès du Président de la Républiq e, NIGLA y A Y 1.- il . J--- \"'ç Edgard Charlemagne AllA Le Ministre de la Justice Chargé des Relations avec les Institutions, Porte-parole du Gouvernement, ZINDOHOUE AMPLiATIONS : PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 MJCRI-PPG 4 MS 4 MSPCL 4 MIC 4 MDCCTN/PR 4 AUTRES MINISTERES 17 SGG 4 DGaM-DCF-DGTCP- DGID-DGDDI 5 BN-DAN-DLC 3 GCONB-DCCT-INSAE 3 BCP-CSN-IGAA 3 UAC- ENAM-FADESP 3 UNIPAR-FDSP 02 JO 1.
