@@ -1,0 +1,7 @@
+# Visas
+
+DECRE T N..eoo6 -5it 7..DU.. :t :1.. sEp rEi\tsRE 2 006 REPUBLIQUE DU BENIN Chargeant Monsieur Gaston Cossi DOSSOUHOUI, Ministre de l'Agriculture, de I'Elevage et de la Pêche, de I'intérim de Monsieur Soumanou SEIBOU TOLEBA, Ministre du Tourisme et de I'Artisanat, pour compter du lundi 11 au vendredi l5 septembre 2006 PRESIDENCE DE LA REPUBLIQUE Vu la loi n' 90-032 du 1 I décembre 1990 portant Constitution de la République du Bénin ; Vu la proclamation le 29 mars 2006 par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du l9 mars 2006;
+V t. décret no 2006-178 du 08 avril 2006 portant composition du Gouvemement et le décret 2006- 414 du 17 août 2006 qui la modifié ;
+Article l"': Monsieur Gaston Cossi DOSSOUHOUI, Ministre de l'Agriculture, de l'Elevage et de la Pêche, est chargé de I'intérim de Monsieur Soumanou SEIBOU TOLEBA, Ministre du Tourisme et de I'Artisanat du lundi ll au vendredi 15 septembre 2006.
+FaitàCotonou, le 11 septembre 20O6 le Président de la République, Chef de I'Etat, Chefdu Gouvernement D YAYI AMPLIATIONS: PR IO AN 6 CS 2 CC2 CES2 HAAC 2 SGC 4 MINISTERE 22 PREFETS 12 COMMLNES 79 EMGÆAB + ETATS.MAJORS + CAB.MIL + SG/D 23 INTERESSES 22 SPD 2 DGB- DCF-DGTCP.DGID.DGDDI 5 DPE-DLC.INSAE 6 DGCST 2 BCP I ONIP.GCONB-ABP 3. BN-UAC. ENAMM-FADESP.UNIPAR.FDSP.CCIB 1J.O I.
+l/ LE PRESIDENT DE LA RE,PUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT DECRETE
