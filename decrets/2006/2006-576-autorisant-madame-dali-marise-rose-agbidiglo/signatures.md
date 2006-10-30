@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 10 bre 2006 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, oni YAYI Le Ministre de la Justice chargé des Relations avec les lnstitutions, Porte- Parole du Gouvernement, Mariam ALADJ BONI-DIALLO.- Me Abr am ZINZINDOHOUE Le [/inistre Délégué chargé de l'lntégration Africaine et des Béninois de l'Extérieur auprès du lVinistre des Affaires Etrangères, e+{o1t AIVPLIATIONS : PR6AN 4 CC 2 CS 2 HAAC 2CES 2HAC 2 HCJ 2 MJCRI-PPG 4 MAE 4 IVDCIABE/IVAE 4 AUTRES IVINISTERES 19 AMBASSADE BENIN/ALLEIVAGNE 2 DGBIM-DCF- DGTCP- DGID- DGDDI 5 BN-DAN-DLC 3 GCONB-DGCST-INSAE-IGE 4 BCP-CSN -IGAA 3 UAC.ENAM-FADESP 3 UNIPAR-FDSP 02 INTERRESEE 1 JO 1, t\ Le Ministre des Affaires Etrangères, Albert AGOSSOU
