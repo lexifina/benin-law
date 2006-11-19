@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 19 novembre 2006 Par le Président de la République, Chef de l'Dtat, Chef du Gouvemement, Dr Boni AMPLIATIONS : PR 10 AN 6 CS 2 CC 2 HCJ 2CES 2 HAAC 2 SGG 4 MIMSTERES 23 PREFETS 12 COMMUNES 77 EMGÆAB + ETATS-MAJORS + CAB-MIL + SG/D 23 INTERESSES 23 SPD 2 DGB.DCF-DGTCP-DGID-DGDDI 5 DPE-DAN-DLC 3 GCONB- YAYI.-
