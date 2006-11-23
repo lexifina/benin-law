@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou,le z1 ovenbre 2006 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, t Le Ministre du Développement, de l'Economie et des Finances, Le Ministre de la Réforme Administrative et lnstitutionnelle, (,c*,^* 4== Pascal lrénée KOUPAKI io Gounou IN a Dr BoniYAYI a Le Ministre Délégué Chargé du Budget auprès du Ministre du Développement, de l'Economie et des Finances, Albert Sèqbéonon HOUNGBO Ampliations: PR6-AN 4-CC2- HCJ 2-CS2 -CES 2-HAAC 2HCJ2 MDEF2 MRAI 4 MDCB/MDEF 4 AUTRES MINISTERES 19 SGG 4 - DGB.CF-DGTCP-DGID- DGDDI 5 _ BN-DAN-DLC 3 - GCONB-DGCST-INSAE-IGE 4 - BCP-CSN.IGAA 3 - UAC- ENAM-FADSEP 3 - FASEG-UP 2 - CNCRA 22 JO 1.
+2l a RGANTGRAMME DU MINISTERI DE I,A REFORMÉ .ADMINISTRATIVE ET INSTITUT SP CCM AM 5(Ju I()NNE SI SPA CPMP DPRA CP CP CP DPRI CP CP CP DOPR CP CP CP SEPS SPCSP DPP SCT IGM CPMP SGM Assistant DC SGA DAC SA S SCB DRFM SFSV DRH SM r ! \ M in istre SRU S
