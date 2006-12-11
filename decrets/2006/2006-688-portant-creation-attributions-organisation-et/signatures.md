@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 11 déceËbre 2 Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, BoniYAY| LeM in istre du Développement, de l'Economie et des Finances, /"# Me Abra m ZINZINDOHOUE Bio Gounou ldrissou SINA Ampliations:PR6AN 4 CS 2 CC2 CES 2 HAAC 2 HCJ 2 MRAI 4 MDEF4 MJCRI.PPG 2 AUTRES MINISTERES 20 SGG 4 DGBM-DCF-DGTCP-DGDDI.DGID 5 BN-DAN-DLC 3 GCONB-DGCST.INSAE-IGE 4 BCP-CSN/-IGAA 3 UAC.UNIPAR- ENAM 3 FADESP-FDSP 2 JO 1.- Le Garde des Sceaux, Ministre de la Justice, Chargé des Relations avec les lnstitutions, Porte-parole du Gouvernement, Pascal lrénée KOUPAKI Le Ministre de la Réforme Administrative et lnstitutionnelle,
