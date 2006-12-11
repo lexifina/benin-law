@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 11 décembre 2006 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI.- DECRETE s l Le Ministre de I'Intérieur, de la Sécurité Publique et des Collectivités Locales, Le Ministre du Développement, de 1'Economie et des Finances, Edeard Pasca I Irénée KOUPA Le Garde des Sceaux, Ministre de la Justice, Chargé des Relations avec les Institutions, Porte-Parole du Gouvernement, Maître A raham ZINZINDOHOUE.- AMPLIATIONS: PR6 AN 4CS 2 CC 2 CES 2 HCJ 2 HAAC 2 MJCRI-PPG4 MISPCL 4 AUTRES MINISTERES 21 SGG 4 DGB-DCF-DGTCP-DGID-DGDDI 5 BN-DAN-DLC 3 GCONB-DCCT-INSAE- 3 BCP-CSM-IGAA-IGE 4 UAC- ENAM-FADESP 3 LINIPAR-FDSP 2 JO I.
