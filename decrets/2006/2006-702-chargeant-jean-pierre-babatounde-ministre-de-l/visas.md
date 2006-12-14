@@ -1,0 +1,7 @@
+# Visas
+
+o REPUBLIQUE DU BENI PRESIDENCE DE LA REPUBLIQUE DECRETNO 2006-702 DU 14 DECMBRE 2006 Chargeant Jean-Pierre BABATOUNDE' Ministre de l'Environnement et de lâ Protection de lâ Nâture l'intérim de Monsieur Frânçois Gbènôukpo, Ministre Délégué chârgé de I'Urbanisme, des Logements, de la Réforme Foncière et de Ia Lutte contre l'Erosion Côtière Auprès du Président de la République.
+LE PRESIDENT DE LÀ REPUBLIQUE CHEF DE L'ETAT CHEF DU GOUVERNEMENT, VU VU la Loi 90-032 du 11 décernbre 1990 portant Constitution de Ia République du Bénin; la Proclamation le 29 mars 2006 par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du 19 mars 2006 ;
+le Décret N' 2006-613 du 19 novembre 2006, portant composition du Gouvernement et le décret N'2006-622 dr 29 novembre 2006 qui l'a modifié ;
+, Ie Décret N" 2006-680 du 10 décembre 2006 chargeant Monsieur Issifou KOGUI N'DOURO, Ministrc de la Défense Nationale, de l'intérim du Président de la République pour compter du l0 décembre 2006.
+VU VU , Article l" : Pour con.tpter du Mardi 12 au Jeudi 14 décembre 2006 . Monsieur Jean-Pierre BABATOLTNDE , Ministre de l'Environnement et de la Protection de la Naturb est chargé de t'intérim de Monsieur François C. NOUDEGBESSI, Ministre Délégué chargé de I'Urbanismc, des Logements, de la Réforme Foncière et de la Lutte contre I'Erosion Côtière auprès du Président de la République pendant son absence.
