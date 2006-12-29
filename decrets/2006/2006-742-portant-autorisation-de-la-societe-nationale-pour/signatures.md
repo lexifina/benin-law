@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le A9 décenbre 2006 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, DrBoni YAYI.- Le Ministre de l'lndustri Le Ministre de l'Agriculture, de du Commerce I'Elevage e delaP he, Moudiaid u lsso u SOUMANOU.- Roqer DOVONOU.- L Le Garde des Sceaux, Ministre de la Justice, Chargé des Relations avec les lnstitutions, Porte-Parole du Gouvèrnement, /oun *- Me b zt NDOHOUE et des Coll ivités Locales, Ed ard Charlem e ALIA.- AMPLIATIONS:PR6 AN4 CS2 CC2 CES2 HAAC2 HCJ2 MAEP4MDEF4 MIC 4 MJCRI-PPG 4 MISPCL 4 AUTRES MINISTERES 18 SGG 4 DGBM-DCF- DGTCP-DGID-DGDDI 5 BN-DAN.DLC 3 GCONB.DGCST-INSAE-IGE 4 BCP-CSM.
+IGAA 3 UAC.ENAM-FADESP 3 UNIPAR -FDSP 02 JO 1.- Le Ministre du Développement, de I'Economie et des Finances, Pascal lrénée KOUPAKI Le Ministre de I'lntérieur, de la Sécurité Publique
