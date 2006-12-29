@@ -1,0 +1,5 @@
+# Signatures
+
+Fait à Cotonou, le 2 d c re 2006 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, DrBoni YAY!.
+Le Ministre des Affaires Etrangères, Le Garde des Sceaux, Ministre de la Justice chargé des Relations avec les lnstitutions, Porte- Parole du Gouvernement, Mariam ALADJI BONI-DIALLO.- Le Ministre Délégué chargé de I'lntégration Africaine et des Béninois de l'Extérieur auprès du Ministre des Affaires Etrangères, AMPLIATIONS : PR 6AN 4 CC 2 CS 2 HAAC 2 CES 2HAC 2 HCJ 2 MJCRI-PPG 4 MAE 4 MDCIABE/MAE 4 AUTRES MINISTERES 20 AMBASSADE BENIN/ALLEMAGNE 2 DGBM.DCF. DGTCP. DGID- DGDDI 5 BN-DAN.DLC 3 GCONB-DGCST.INSAE-IGE 4 BCP-CSN .IGAA 3 UAC-ENAM-FADESP 3 UNIPAR.FDSP 02 INTERRESEE 1 JO 1.
+,2 Article 2 : Le présent décret prend effet pour compter de la date de sa signature sans qu'il soit toutefois porté atteinte à la validité des actes passés par le nommé Clément Enock Marie HOUSSOU, ni aux droits acquis par les tiers antérieurement à sa publication sur le fondement de la nationalité béninoise de l'intéressé. Me Abraham ZINZINDOHOUE Albert AGOSSOU
