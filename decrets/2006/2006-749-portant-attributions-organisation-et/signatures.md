@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 51 décerbre 2006 Par le Président de la République, Chef de I'Etat,Chef du Gouvernement Le Ministre du Développement, de l'Economie et des Finances, r BoniYAYI.- Le Ministre de l'lntérieur, de la Sécurité Publique et dr Collectivités Locales, Le Ministre de la Réforme Administrative et lnstitutionnelle, W Pascal lrénée KOUPAKI.
+Edqard Charlemaone ALIA Le Ministre Délégué Chargé du Budget auprès du Ministre du -du Développement, de I'Economie et des Finances, L Sèqbéqnon HOUNGBO Bio Gounou lDRl U SINA AMPLIATIONS: PR 06-AN 04 - CC 02- CS 02-CES 02 - HAAC 02- HCJ 02 _ MSPCL 04 _ MDEF 04_ MDCB/MDEF 4 MRAI 4 AUTRES MINISTERES ,I9 - SGG 04 _ IGE O1 - DGBM-DCF-DGTPCP.DGID 05 _ BN-DAN-DLC 03 - GCONB-DGCST-INSAE-|GE 04 - BcP-cstv-tGAA 03 - uAc : BU - ENAM - FADESP 03 - UP:BU - FDSP 02 - JO 01.
