@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le l1 décerbre 2006 r BoniYAYI Le Garde des Sceaux, Ministre de la Justice, chargé des Relations avec les lnstitutions, Porte-parole du Gouvernement, Le Ministre du développement, de l'Economie et des finances, îw Me raham ZINZINDOHOUE Le Ministre de I'lntérieur, de la Sécurité Publique et des Co ectivités Locales, Edqard Charl emaqne ALIA Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Pascal lrénée KOUPAKI AMPLIATIONS: PR6AN 4 CS2CC2 CES 2 HAAC 2 HCJ 2 MDEF4 GS/MJCRI- PPG 4 MISPCL 4 AUTRES MINISTERES 20 SGG 4 DGBM.DCF-DGTCP-DGID- DGDDI 5 BN.DAN-DLC-IGE 4 GCOMB.DGCST-INSAE-IGE 4 BCP-CSM.IGAA 3 UAC- ENAM-FADESP 3 UNIPAR-FDSP 2 JO 1.
