@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 06 mars 2007 Pour le Président de la République, Chef de l'Etat, Chef du Gouvernement absent, Le Ministre du Développement, de l'Economie et des Finances assurant l'intérim, a o Pascal Irénée KOUPAKI AN1PLIATIONS: PR4-AN 4{S 2 -CES 2- HCJ 2 -HAAC 2 IYECPPD 4- 1.4[4ËH 4 SGG-N1SP 6-AUTRES I'IINISTERES 22 - DEPARTEI.4ENTS 6-lO. 1 w DECRET No2§Z:l!q_qL06 MARS 2oo7 Chargeant N4onsieur Théophile I4ONTCHO, Ministre de la Culture, des Sports et des Loisirs de l'intérim de N4onsieur locelyn DEGBEY, Ministre des Mines, de l'Energie et de l'Eau pour compter du 06 mars 2007
