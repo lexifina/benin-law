@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le Q1 maL 2OO7 Pour le Président de la RéPublique, Chef de l'Etat, Chef du Gouvernement Dr YAYI a I AM IATION PR6 AN 4 CS 2 CC 2 HCJ 2 CES 2 HAAC 2 SGG 4 MINISTERE 22 PREI]ETS 12 COMMLINE 79 EMG/FAB + ETATS-MAJORS + CAB.MIL + SG/D 23 INTERESSES2SPD2DGB.DCF.DGID.DGDDI 5 DPE.DLC.INSAE 3. J.O I
