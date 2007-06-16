@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le in 2007 Par le Président de la Republique, Chef de I'Etat, Chef du Gouvemement, Dr Boni YA Le Ministre Délégué Chargé de I'Urbanisme, Le Minisfe de la Santé des Logements, de la Réforme Fon ere et de la Lutte contre I'Erosion Côti auprès du Président de la ique sæ NOUDEGBESSI.- Flore GANGBO.- Le Ministre de I'Intérieur, de la Sécurité Le Garde des Sceaux, Ministre de la Justice, Chargé des Relations avec les Institutions, Porte-Parole du Gouvememcnt, Publique et des lectivités Locales, Edeard Ch sne ALIA.- Nestor D AMPLIATIONS : PR6 AN4 CS2 CC2 CES2 HAAC?HCJ2 AUTRES TUTTT\IISTÈNTS ZI SGG 4 DGBM -DCF.DGTCP-DGID.DGDDI 5 BN-DAN-DLC 3 GCOMB _ DCCT-INSAE 3 BCP.CSM.IGAA 3 UAC.ENAM-FADESP 3 UNIPAR.FDSP 2 JO 1.
