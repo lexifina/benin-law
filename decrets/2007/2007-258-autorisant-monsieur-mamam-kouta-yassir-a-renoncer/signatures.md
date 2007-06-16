@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 16 j ui.n 20O7 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, r Boni YAYI Le lilinistre des Affaires Etrangères, Le Garde des Sceaux, Ministre de la Justice chargé des Relations avec les lnstitutions, Porte- Parole du G ouvernement, Mariam ALADJI BONI-DlALLO.- Nes Le [\4inistre Délégué chargé de l'lntégration Africaine et des Béninois de I'Extérieur auprès du Ministre des Affaires Etrangères, c2>D 'L Albert AGOSSOU AMPLIATIONS : PR 6AN 4 CC 2 CS 2 HAAC 2 CES 2 HAC 2 HCJ 2 MJCRI-PPG 4 MAE 4 MDCIABEiMAE 4 AUTRES MINISTERES 20 AMBASSADE BENIN/ALLEMAGNE 2 DGBM.DCF- DGTCP- DGID- DGDDI 5 BN-DAN-DLC 3 GCONB-DGCST-INSAE-IGE 4 BCP-CSN -IGAA 3 UAC-ENAM-FADESP 3 UNIPAR-FDSP 02 INTERESSE 1 JO 1,- DA
