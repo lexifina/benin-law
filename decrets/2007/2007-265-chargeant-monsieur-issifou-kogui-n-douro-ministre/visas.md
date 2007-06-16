@@ -1,0 +1,5 @@
+# Visas
+
+o a REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE DECRETNO 2007-265 DIX 16 JUIN 2OO7 Ciargeant Monsieur Issifou KOGUI N'DOURO, Ministre cle la D§fense Nationale de f intérim de Monsieur Albert ACOSSOU, Ministre Délégué Chargé de 1'Intégration Africaine et des Béninors de l'Extérieur auprès du Ministre des Affaires Ehangères et de Madame Mariam ALADJI BONI, épouse DIALLO Ministre des Affaires Etrangères, pour compter du Vendrecli 1* au Vendredi 8 juin 2007 inclus.
+Ie Président de la République Chef de l'Etat, Chef du Gouvernement Vu la loi N"90-032 du 11 Décembre 1990 portant Constitution de la République du Bénin ; Vu la proclamatron le 29 mars 2006 par la Cour Constitutionnelle des résultats définitifs du deuxième tour de l'électron présidentielle du 19 mars 2006 ;
+Vu Arti(Ie l. : Pour compter du vendredi 1". au vendredi 8 juin 2007 inclus, Monsieur Issifou KOCUI N'DOURO, Ministre de la Défense Nationale, est chargé d'assurer l'intérrm de Monsieur Albert AGOSSOU, Minishe belegue Charge de l'lntégrarion Africaine et des Béninois de l'Extérieur et de Madame Maîiam ALADJI BONI, épouse DIALLO Ministre des Affarres Etrangères.
