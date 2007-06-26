@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 26 juin 2007 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Ministre d'Etat chargé de l'Economie, de la Prospective, du Développement et de l'Evaluation de l'Action Publictue, ~~ Pascal Irénée KOUPAKI Le Ministre de l'Industrie, du Commerce, et des Pe· s et Moyen s Entreprises, / Gré aire AKOFODJ .- Le Ministre des Finances, Saulé Mana LAWANI.- AMPLIATIONS: PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 HCJ 2 . MMICPME 4 MF 4 MINISTERES 24 SGG 4 DGBM-DCF-DGTCP-DGID-DGDDI 5 BN-DAN-DLC 3 GCOMB-DGSCT-INSAE-IGE 4BCP-CSM-IGAA 3 UAC-ENAM-FADESP 3 UNIPAR-FDSP 2 1 JO 1.
