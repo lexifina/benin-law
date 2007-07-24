@@ -1,0 +1,9 @@
+# Visas
+
+o REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE DECRET N'2007- 340 DU 24 JUILLET 2OO7 portant ratification de l'Avenant à l'Accord de prêt signé le 13 septembre 2002 entre la République du Bénin et la Banque Arabe pour le Développement Economique en Afrique (BADEA) dans le cadre du financement partiel du Projet d'aménagement et de bitumage de la route Akpro-ti/'lissérété-Dangbo- Adjohoun-Bonou-Ouinhi-Kpédékpo.
+LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT, Vu la loi n'90-032 du 11 décembre 1990 portant Constitution de la République du Bénin ;
+Vu la loi n" 2007-13 du 17 juillet 2007 portant autorisation de ratification de l'avenant à l'Accord de prêt signé le 13 septembre 2002 entre la République du Bénin et la Banque Arabe pour le Développement Economique en Afrique (BADEA) dans le cadre du financement partiel du Projet d'aménagement et de bitumage de la route Akpro- tVissérété-Dangbo-Adjohoun-Bonou-Ouinhi- Kpédékpo ;
+Vu la proclamation le 29 mars 2006 par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du 19 mars 2006 ;
+Vu le décret n' 2007-300 du 17 juin 2007 portant composition du Gouvernement;
+DECRETE:
+Article 'l "' : Est ratifié, l'Avenant de prêt d'un montant d'un million huit cent cinquante mille (1 .850.000) dollars des Etats-Unis équivalant à neuf cent vingt cinq millions (925.000.000) francs CFA signé le 04 juin 2007 entre la République du Bénin et la Banque Arabe pour le Développement Economique en Afrique (BADEA) relatif à l'accord de prêt signé le 13 septembre 2002 entre la République du Bénin et la Banque Arabe pour le Développement Economique en Afrique (BADEA) dans le cadre du financement partiel du projet d'aménagement et de bitumage de Ia route Akpro-Missérété-Dangbo-Adjohoun-Bonou-Ouinhi- Kpédékpo et dont le texte se trouve ci-joint o o a
