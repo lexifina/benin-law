@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 1 6 août 2007 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, et P/l Ntlinistre d'Etat, Chargé de l'Economie, de la Prospective, du Développement et de l'Evaluation de I'Action Publique o t%ù{ Pascal lrénée KOUPAKI DECRETN"2007-188 DU'1 6 AoUT 2007 Chargeant Monsieur Pascal lrénée KOUPAKI lVinistre d'Etat, Chargé de l'Economie, de la Prospective, du Développement et de l'Evaluation de l'Action Publique de I'intérim de lt/onsieur lssifou KOGUI N'DOURO, Ministre d'Eat Chargé de la Défense Nationale pour compter du mardi '14 août 2007 AMPLIATIONS:PR6-AN4-CC2-CES2-HAAC2-[/DN2-IVECEPDEAP4-SGG4-AUTRESIVINISTRES24
