@@ -1,0 +1,6 @@
+# Décret n° 2007-408 du 31 août 2007 portant agrément de la société "NATURE BRIQUE SARL" au régime "B" du Code des Investissements pour son projet d'unité de production de briques en terre cuite à TANWE-HESSOU (Commune de Zogbodomey, Département du Zou)
+
+- Source : Secrétariat général du Gouvernement du Bénin (sgg.gouv.bj), documenthèque, <https://sgg.gouv.bj/doc/decret-2007-408/download>
+- Date : 2007-08-31 (date du texte dans son intitulé (promulgation/signature) ; la date de publication au Journal officiel n’est pas donnée par la source)
+- Couche texte : fournie par l’éditeur sur un document numérisé (non relue)
+- Unités : 7 articles
