@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 24 septembre 2007, Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Ministre des Finances Soulé Mana LAWANI Le Ministre de l'Urbanisme, de l'Habitat, de la réforme F cière et de la Lutte con re l'Eros' Côtière, Le Ministre de la Décentralisation, de la Gouvernance Locale, de l'Administration et de l'Aménagement du Territoire, AMPLIATIONS: PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 HCJ 4 MUHRFlCEC 4 MDGlAAT 4 MF 4 AUTRES MINISTERES 23 SGG 4 DGBM-DCF-DGTCP-DGID-DGDDI 5 BN-DAN-DlC3 GCONB- DGCST-INSAE-IGE-ONACVG 5 BCP-CSM-IGAA 3 UAC-ENAM-FADESP 3 UNIPAR FDSP 02 JO 1.
