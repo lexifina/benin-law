@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 02 oc br Par le Président de la RéPublique, Chef de I'Etat, Chef du Gouvernement, Dr ni Le Ministre des Finances' So lé Mana LAWANI Le Ministre de la Réforme Administrative et lnstitutionnelle' B ou Le Ministre Délégué auprès du Président de la République, Chargé des Transports et des Travaux Publics, zt H E Le Ministre Délégué auprès du Ministre des Finances, Chargé du Bu I n HO NG Amoliations : PR 6 AN 4 CS 2 CC 2 CES lHCJ ?HAAC 2 MECEPDEAP 4 iiEëm-pR 4 MtcpME tAures Ministères 18 SGG 4 DGBM-DCF-DGfCP- DGID-DGDDI 5 BN -DAN-6r-ô àêCOi{E'DCCT-INSAE 6 BCP-CSM- IGAA 3 ÜÀC--e-ruÀrvr r'rr- FAD E S P - U N I PAR-F DS P-CC I B 1 - J' o 1' a t'7 (_
