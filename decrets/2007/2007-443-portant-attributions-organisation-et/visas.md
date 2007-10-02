@@ -1,0 +1,17 @@
+# Visas
+
+REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE DECRET N" 2oO7-443 DU 02 oCTOBRE 2007 Portant attributions, organisation et fonctionnement du Ministère de l'Enseignement Primaire, de l'Alphabétisation et des Langues Nationales.
+LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT' laloin.go-o32du11décembrelgg0portantConstitutiondela République du Bénin ;
+la proclamation le 29 mars 2006 par la cour constitutionnelle des iêriitt"tr définitifs de I'élection présidentielle du 19 mars 2006 ;
+ledécretn"2007-300dulTjuin200TportantComPositiondu èour"in"rànt et le décret 2007_30-a uu oe août 2007 qui t'a moditié ;
+le décret n. 2006-268 du 14 juin 2006 fixant la structure-type des Ministères ;
+Ie décret n" 200641O du 14 aoot 2006 portant attributions, organisation el -ionctionnement du Ministère de l'Enseignement Primaire et Secondaire ;
+le décret n" 2006-615 du 23 novembre 2006 portant.aftributions' àrgàniràtion et ionctionnement du Ministère de la Culture, des Sports et Vu Vu Vu Vu Vu Vu Loisirs ;
+Sur proposition du Ministre de l'Enseignement Primaire, de l'Alphabétisation et des Langues Nationales ;
+Conseil des Ministres entendu en sa séance du 29 août 2007 DECRETE:
+ET B CHAPITRE l: DES MISSIONS Le ARTIGLE l"' : Le Ministère de I'Enseignement Primaire, de l'Alphabétisation et des ffionales(MEPALN)qpoqrmissionslaconception,la.miseenæuvre et lisuivi de la politique générale'de i'Etat en matière d'éducalion, d'enseignem.ent, àà'i-iiàiiô", â'ârpiiâ-ÈÀtËàtiàn et des iansues nationales conformément aux lois et règlements en vigueur en République du Bénin' { t ART]CLE 2: Le Ministre de l'Enseignement Primaire, de l'Alphabétisation et tes Langues Nationales est le premier responsable de l'exécution des politiques, décisions et instructions du Gouvernement dans les domaines des enseignements maternel et primaire, de l'alphabétisation et des langues nationales. ll rend compte de ses activités au Chef du Gouvernement.
+A RTICLE 3 : Pour assurer les missions assignées à son département, le Ministre de l'Enseignement Primaire, de l'Alphabétisation et des Langues Nationales : . prépare et propose au Gouvernement les politiques, stratégies et plans d'actions répondant aux objectifs d'éducation et couvrant les domaines de sa compétence. ll en assure Ia mise en oeuvre, une fois adoptés ;
+' initie et propose les mesures législatives et réglementaires nécessaires à la mtse en ceuvre des politiques nationales en matière d'éducation, d'alphabétisation et des langues nationales et veille à leur application ; . organise l'administration centrale et les structures déconcentrées placées sous son autorité et veille à leur fonctionnement rationnel et efficient ' . initie et met en place le système d'information ainsi que le sysième de contrôle et d'évaluation des activités relevant de sa compétence, en définit Ies objectifs, I'organisation et les moyens ;
+. évalue les besoins en moyens humains, matériels et financiers du Ministère dans le cadre des procédures budgétaires nationales et en assure la gestion conformément aux lois et règlements en vigueur. ll assure également le contrôle de la gestion administrative et financière de tout projet du secteur dont il a la charge ;
+t propose la mise en place de toute instance de concertation, de coordination interministérielle ou de tout autre organe de nature à permettre une meilleure prise en charge des missions qui lui sont confiées. ll en formule les attributions, la composition et Ie mode de fonctionnement.
+c PITRE Il : DES ATTRIBUTIONS DU MINISTERE

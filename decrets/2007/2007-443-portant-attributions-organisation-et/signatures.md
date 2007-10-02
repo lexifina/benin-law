@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le O2 octobre 2OO7 Par le Président de la RéPublique Chef de I'Etat, Chef du Gouvernement, Dr. Boni YAYI.- Le Ministre des Finances, Le Ministre de l'Enseignement Primaire, de l'AlPhabétisation et des La ues nales, Soulé Mana LAYVANI.- n UIN VI Le Ministre Délégué auprès du Ministre Le Ministre de la Réforme Administrative et Institutionnelle, ces, Chargé udget, nH Amoliatloné: PR 6 AN 4 cs 2 cC 2 CES 2.H Ac 2 MEPALN 4 !'lf 91.1{DPUF 04 MRAI 04 iffiE5-rr,trllrsTEREs zz -scc ï oo+cr-ooTcP-DGDDI 5 BN-DAN-DLC 3 GcONB-DccT- ir'rsAsl scp.cSMJcAA s ÙÀCetüM-rnsEe s UP-FDSP 2 UAc-ENEAM-FADE§P 3 JO 1' )6, a
