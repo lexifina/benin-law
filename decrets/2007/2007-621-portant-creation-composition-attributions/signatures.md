@@ -1,0 +1,5 @@
+# Signatures
+
+Fait à Cotonou, le .]1 décembre Z)OT Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, D o Le Ministre d'Etat Chargé d Défense Nationale *) L- lssifou KOGUI N'DOURO Le Ministre de l'Economie et des Finances, Le Ministre Délégué auprès'tlti Président de la République, Chargé des Transports et des Travaux Publics, rman NDOHOUE Le Ministre de lAgriculture Le Ministre de l'Environnement et de la Protection de la Nature, de l'Elevage et de la êche, Le Ministre de la nté, Le Ministre de I'lntérieur et de la Sécurité Publique, TCHALA SA Félix Tisso SSOU Le Ministre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de I'Extérieur, ry' Moussa LA AIITPLIATIONS: PR6AN4 CS 2 CC 2 CES 2 HAAC2 HCJ 2 MECDN4 MEF4 MDCTTP/PR + I EPru4 MAEP 4 MISP4 MAEIAFBE4 MS4 AUTRES MINISTERES 7 SGG 4 DGBM.
+DCF-DGTCP-OGID.DGDDI 5 BN-DAN-DLC 3 GCONB.DGCST-INSAE-IGE 4 BCP.CSM-IGAA 3 UAC-ENAM-FADESP 3 UNIPAR-FDSP 2 JO1.
+Soulé Mana LAWANI Roqer DOVONOU Juliette BIAO KOUDENOUKPO
