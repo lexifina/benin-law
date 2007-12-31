@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le l1 décembre 200'7 Par le Président de la RéPublique' Chef de l'Etat, Chef du Gouvernement, DrBoni YAYI.- Le ttlinistre d'Etat Chargé de l'Economie, de la Prospective, du Développement et de I'Evaluation de l'Action Publique, a tv W6*t,oK^ t-- Le Ministre des Finances, Soulé Mana LAWANl.- Le Ministre des Jvlines, de I'Energie et de l'Eau, SaccaLAFl AMPLIATIONS:PR6 AN4 CS2 CC2 CES2 HAAC2HJC2MECEPDEAP4MMEE 4MF4 ÂüïRES tütNtSTERES 23 SGG 4 DGBM-DCF-DGTCP-DGID-DGDDI 5 BN-DAN-DLC 3 GCONB-DGCST-INSAE.IGE 4 BCP.CSM-IGAA 3 UAC-ENAM.FADESP 3 UNIPAR 'FDSP 02 JO 1.- Pascal lrénée KOUPAKI
