@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 30 janvier 2008, Pour le Président de la République, Chef de l'Etat, Chef du Gouvernement, absent, le Ministre d'Etat Chargé de la Défense Nationale, chargé de l'intérim, Issifou KOGUI N'DOURO Le Ministre de l'Economie et des Finances, Le Ministre de l'Enseignement Supérieur et de la Recherche Scientifique, Issa Démonlé MOI Ministre intérimaire fcentia BOCO AMPLIATIONS : PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 HCJ 2 MESRS 4 MEF 4 AUTRES MINISTERES 24 SGG DGBM-DCF-DGTCP-DGID-DGDDI BN-DAN-DLC GCONB- DGCST-INSAE-IGE BCP-CSM-IGAA UAC-ENAM-FADESP UNIPAR-FDSP INTERESSE 01JO1.-
