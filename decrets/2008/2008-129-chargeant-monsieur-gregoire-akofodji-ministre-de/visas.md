@@ -1,0 +1,4 @@
+# Visas
+
+REPUBLIQUE DU BENIN PRESIDENCE DE I,A REPUBLIQUE DECRETN.2008-1 29 DU 1j UARS 2009 Chargeant Monsieur Grégoire AKOFODJI, Ministre de l'Industrie et du Commerce de I'intérim de Monsieur SouIé Mana LA\{ANI, Ministre de I'Economie et des Finances pour compter du mercredi 12 mars 2008.
+LE PRESIDENT DE I,A REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOIJVERNEMENT, Vu la Loi n"90'032 du 11 décembre 1990, portant constitution de la République itu Bénin avu la Proclamation le 2g mars 2007 par la cour constitutionnelle des résultats définitifs de l'élection présidentielle du 19 mars 2006 i Vu le Décret n' 2o07'540 du 02 novembre 2007 portant composition du Gouvernement i vu Ie Décret n"2008-127 du 12 mars 2008 chargeant Monsieur pascal Irénée KPOUPAKI, Ministre d'Etat, chargé de ra prospective, du Déveroppement et de l'Evaluation de lâction publique de l'intérim du président de ù-République pour compter du 12 mars 2008 i DECRETE
