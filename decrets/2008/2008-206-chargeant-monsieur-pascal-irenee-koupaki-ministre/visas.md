@@ -1,0 +1,4 @@
+# Visas
+
+REPUBLIQUE DU BENIN PRESIDENCE DE LE REPUALIOUT DECRETN" zooe-zo5 DU il AVRIL 2oog Chargeant Monsieur Grégoire AKOFODJI, Ministre de l'lndustrie et du Commerce, de I'intérim de Monsieur Soulé Mana LAWANI, Ministre de I'Economie et des Finances, pour compter du jeudi 10 avril 2008 LE PRESIDENT DE LA REPUBLTQUE, CHEF DE L'ETAT CHEF DU GOUVERNEMENT, VU La Loi n. g0-032 du 11 décembre 1990, portant Constitution de la République du Bénin ; O VU La proclamation le 2g mars 2006 par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du 19 mars 2006 ;
+vu Le Décret n" 2007-540 du 02 novembre 2007, portant composition du Gouvernement ; vu Le Décret n" 2008-205 du 10 avril 2008, chargeant Monsieur Pascal l. KouPAKl, Ministre d'Etat chargé de la Prospective, du Développement et de lEvaluation de l'Action publique de I'intériri du Présideni de la République pour compter du ieudi 10 avril 2008 ; DE CRETE
