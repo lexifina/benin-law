@@ -1,0 +1,3 @@
+# Visas
+
+REPUBLIQUE DU BEMN PRESIDENCE DE I,A REPUBLIQUE DECRET No 2oc8-208 DU 15 AVRIL 2008 Chargeant Monsieur Grégoire AKOFODJI, Ministre de l'Industrie et du Commerce d.e l'intérim de Monsieur Soulé Mana LA\ryANI, Ministre de l'Economie et des Finances pour compter du lundi 31 mars 2008 LE PRESIDENT DE I,A REPUBLIQUE, CHEF DE I.iETAT, CHEF DU GOI]VERNEMENT, ov" ,Ia Loj,n'90-032 du 11 décembre 1g90, portant constitution de ra Hépublique du Bénin vu la Proclamation Ie 2g mars 2007 par la cour constitutionnelre des résultats définitifs de l'élection présidentielle du 1g mars 2006 i vu le Décret n' zo07-b40 du 02 novembre 2007 portant composition du Gouvernement i DECRETE
