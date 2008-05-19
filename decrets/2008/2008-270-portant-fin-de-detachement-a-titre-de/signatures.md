@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 19 nai UUIJ Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Ministre de I'Economie et des Finances, Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, Soulé Mana LAWANI- Gustave ANANI C A AMPLIATIONS: PR6AN 4CS2 CC2CES2 HÀqC 2 MEF4 GS/MJLDH 4AUTRES MINISTERES 24 SGG 4 DGBI/-DCF.DGTCP.DGID-DGDDI 5 BN-DAN-DLC 3 GCOMB-DCCT.INSAE 3 BCP.CSM.IGAA 3 UAC. ENAM _ FADESP 3. UNIPAR - FDSP 2 INTERESSE 01 JO 1.- Article 1"': Conformément aux dispositions de l'article 77 dela loi n'2001-35 du 21 février 2003 portant statut de la magistrature, il est mis fin à titre de régularisation au détachement de Monsieur Razaki AMOUDA ISSIFOU, I\4agistrat, précédemment Conseiller Technique Juridique et Directeur du Contentieux et de l'Agence Judiciaire du Trésor au Ministère en charge des Finances.
+DrBoni YAYI
