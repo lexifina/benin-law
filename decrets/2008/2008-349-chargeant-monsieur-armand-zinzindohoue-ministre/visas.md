@@ -1,0 +1,6 @@
+# Visas
+
+REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE DECRETN' 2aos-149 DU fo i'IAr 2co8 Chargeant Monsieur Armand ZINZINDOHOUE, Ministre Délégué, Chargé des Transports et des Travaux Publics Auprès du Piésident dà la République de l'intérim de Madame Juliette BIAO KOUDENOUKPO, Ministre de I'Environnement et de la Protection de la Nature pour compter du 27 mai 2008.
+LE PRESIDENT DE LA R,EPUBLIQUE' CHEF DE L'ETAT, CHEF DU GOUVERNEMENT.
+Vu la loi 90-032 du I I décembre 1990 portant constitution de la République du Bénin ; la proclamation le 29 mars 2006, par la cour constitutionnelle des résultats définitifs de l'élection Présidentiel du l9 mars 2006 ;
+Vu vu le décret no 2007-540 du 02 novembre 2007 portant composition du gouvernemenl; vu le décret n" 2008-342 du 25 mai 2008 chargeant Monsieur Issifou KoGUI N'DOURO, Ministre d'Etat Chargé de la Défense Nationale de I'intérim du Président de la République pour compter du 25 mai 2008 DECRETE Article I.': Pour compter du Mardi 27 mai au dimanche l* juin 2008, Monsieur Armand ZINZINDOHOUE, Ministre Délégué, Chargé des Transports et des Travaux Publics Auprès du Président de la République est chargé de t'intérim du Ministre de I'Environnement et de lâ protection de la Nature, Madame Juliette BtAo KoUDENOUKPO, pendant son absence.
