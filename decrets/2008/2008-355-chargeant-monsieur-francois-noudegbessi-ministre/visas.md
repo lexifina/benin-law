@@ -1,0 +1,6 @@
+# Visas
+
+REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE Chargeant Monsicur François NOUDEGBESSI, Ministre de l'Urbanisme, de I'Habitat, de Ia Réforme Foncière et de la Lutte contre I'Erosion Côtière de I'intérim de Madame Juliette BIAO KOUDENOUKPO, Ministre de I'Environnement et de la Protection de la Nature pour compter du 09 juin 2008.
+LE PRESIDENT DE LA REPTIBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT.
+la loi 90-032 du I I décembre 1990 portant constitution de la République du Bénin; la proclamation le 29 mars 2006, par la Cour Constitutionnelle des résultats définitifs de l'élection Présidentiel du 19 mars 2006;
+le décret no 2007 -540 du 02 novembre 2007 portant composition du gouvemement; le décret n" 2008-354 du 0? juin 2008 chargeant Monsieur Issifou KOGUI N'DOURO' Ministre d'Etat Chargé de la Défense Nationale de I'intérim du President de la République pour compter du 07 juin 2008 DECRETE Article l": Pour compter du 09 au 12 juin 2008, Monsieur François NOUDEGBESSI, Ministre de l,Urbanisme, de l'Habitat, de la Réforme Foncière et de la Lutte contre I'Erosion Côtière est chargé de I'intérim du Ministre de l'Environnement et de la Protection de la Nature, Madame Juliette BIAO KOUDENOUKPO, pendant son absence.
