@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 1tl ju.ln 2COB Pour le Président de la République, Chef de l'Etat, Chef du Gouvernement absent, Le Ministre de la Défense Nationale assurant l'intérim \-- lssifou KOGUI N'DOURO AMPLIATIONS: PR 6 - AN 4 - CS 2- CES 2 - HAAC 2 - MDCTTP-PR 4 - SGG 4 - AUTRES NTINISTERES 2 1 - DEPARTEIV1ENTS 12 - JORB 1, Ctageant lt/orn*:u Françob G. NOUDEGBESSI, Ministre de l'Urbanisme, de l'Habitat, de la Réforme Foncière et de la Lutte contre I'Erosion Côtière de l'intérim de Monsieur Armand ZINZINDOHOUE, Ministre Délégué auprès du Président de la République Chargé des Transports et des Travaux Publics pour compter du mardi 10 juin 2008.
