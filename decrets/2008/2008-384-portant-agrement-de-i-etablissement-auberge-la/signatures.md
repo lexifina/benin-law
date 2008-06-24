@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 24 juin 2ooe Par le Président de la RéPublique, Chef de l'Etat, Chef du Gouvernement, DrBoni YAYI.- Le tvlinistre d'Etat Chargé de la Prospective, du Développement et de I'Evaluation de l'Action Publique, 1«* K" Pascal lrénée KOUPAKI Lê tr/inistre de I'Economie et des Finances, Le Ministre de I'lndustrie et du Commerce, Gréqo ire AKOFODJI Le lvlinistre de l'Environnement et de la Protection de la Nature, Le Ministre du Travail et de la Fonction Publique, Czdtut :PR6AN 4CC 2CS2 HAAC2CES 2 HAAC 2 HCJ 2 MECPDEAP 4 MIC 4 MEF 4 MTFP 4 AUTRES MINISTERES 21 DGBM.DCF- DGTCP- DGIO. DGDDI 5 BN-DAN -DLC 3 GCON B.DGCST-I NSAE-IGE 4 BCP-CSN -IGAA 3 UAC.ENAM-FADESP 3 UNIPAR-FDSP 02 IHSB 02 JO1 nue Soulé Mana LAWANI (/.() (' Juliette BIAO KOUDENOUKPO
