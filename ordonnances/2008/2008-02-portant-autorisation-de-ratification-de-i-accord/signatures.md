@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 28 juillet 2008 Par le Président de la République, Chef de l'Etat. Chef du Gouvernement, Dr Boni Y A Y 1.- Le Ministre d'Etat Chargé de la Prospective, du Développement et de l'Evaluation de l'Action Publique, Pascal IrénéeKOUPAKI.~~~ Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, Le Ministre de l'Economie et deS5f~M Saulé Mana LAWANI.- Le Ministre chargé des Relations avec les Institutions, Porte-parole du Gouvernement, J~....-nlexandre HOUNTONDJI.- AMPLIATIONS: PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 HCJ 2 CSM 2 MINISTERES SGG 4 DGBM-DCF-OGTCP-DGID-DGDDI 5 BN-DAN-DLC 3 GCONB-OCCT-INSAE 3 BCP-CSM-3 UAC-UNIPAR-ENAM 3 FADESP-FDSP 2 JO 1.-
