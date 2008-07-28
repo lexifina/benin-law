@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 28 juillet 2008 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, DrBoni YAYI.- Le Ministre d'Etat Chargé de la Prospective, du Développement et de I'Evaluation de l'Action publique, Pascal lrénée KOUPAKI.- Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, Le [Ministre de l'Economie et des Finances, ustave ANAN ORDONNE {7 Soulé Mana LAWANI.- r{ J Le Ministre chargé des Relations avec les lnstitutions, Porte-parole du Gouvernement, n Alexandre HOUNTONDJI.- AMPLIATIONS:PR6 AN4 CS2 CC2 CES2 HAAC2 HCJ2CSM2 MINISTERES 26 SGG 4 DGBM-DCF-DGTCP-DGID-DGDDI 5 BN-DAN.DLC 3 GCONB-DCCT-INSAE 3 BCP.CSM-3 UAC-UNIPAR-ENAM 3 FADESP-FDSP 2 JO 1.- , ,r, -§
