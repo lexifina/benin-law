@@ -1,0 +1,58 @@
+# Visas
+
+5F*Û AA-- BLIQUE DU BEN IN o a PRESIDENCE DE LA REPUBLIQU E DEGRET N" 2OO8-5I7 DU 08 SEPTEMBRE 2OO8 Portant transmission à l'Assemblée nationale pour autorisation de ratification de l'Accord de financement additionnel signé entre la République du Bénin et l'Association lnternationale de Développement (AlD) dans le cadre du Projet de Fourniture de Services d'Energie (PFSE) LE PRESTDENT DE LA REPUBLIQUE, GHEF DE L'ETAT, GHEF DU GOUVERTTIEMENT, Vu la loi n"90-032 du'l 1 décembre 1990, portant Constitution de Ia République du Bénin ;
+Vu la proclamation le 29 mars 2006 par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du 19 mars 2006 ;
+Vu le décret n"2007-540 du 02 novembre 2007 portant composition du Gouvernement;
+Vu l'Accord de financement additionnel signé le 03 juillet 200B entre la République du Bénin et l'Association lnternationale de Développement (AlD) dans le cadre du Projet de Fourniture de Services d'Energie (PFSE) , Sur proposition du Ministre de l'Economie et des Finances ;
+Le Conseil des fi/inistres entendu en sa séance du 06 août 2008 ;
+DEGRETE:
+L'Accord de financement additionnel, signé avec I'Association lnternationale de Développement (AlD), le 03 juillet 2008 à Washington (Etats-Unis d'Amérique), sera lY o présenté à t'Assembl.ée Nationate pour autorisation de ratification par [e Ministre de l.,Economie et des Finances, te Ministre des Minesrde ['Energie et de ['Eau et [e Ministre Chargé des Retations avec tes lnstitutions, Porte-Parote du Gouvernement, qui sont individuettement ou conjointement chargés d'en exposer tes motifs et d'en soutenir [a discussion.
+EXPOSE DES MOTIFS Monsieur le Président de l'Assemblée Nationale, Mesdames et Messieurs les DéPutés, I- HISTORIQUE DU PROJET Dans te cadre de [a recherche de sotutions aux probtèmes énergétiques que connaît ta Répubtique du Bénin et faisant suite aux échanges avec [a Banque Mondiate lors de ta revue à mi-parcours du Projet de Fourniture de Services d'Energie (PFSE) en octobre 2007, it a été retenu entre autres, [a restructuration de ce Projet et ['at[ocation d'un financement additionnel pour [e rendre ptus performant au regard des retards observés dans [a mise en æuvre de certaines de ses activités ainsi que de ['adapter aux nouveaux besoins du secteur de t'énergie induits par [es réformes qui sont en cours. En réaction à ta requête du Gouvernement du Bénin contenue dans [a lettre n' 1102-c/MEF IDC/CAA du 16 avrit 2008, t'Association lnternationa(e de Dévetoppement a accepté de mettre en ptace un financement additionnel pour renforcer les objectifs du Projet.
+II- PRESENTATION DU PROJET DE FOU RNITURE DE SERVICES D' ENERGIE a A - Obiectifs du Proiet :
+Les objectifs de ce financement additionnel sont, entre autres, te renforcement de ta Centrate d'Akpakpa, Le bouctage du réseau d'interconnexion Cotonou-§akété- Onigboto-Bohicon-Nangbéto-Athiémé et t'acquisition des têtes de cellule de 33 KV des postes de Djougou et de Parakou nécessaires à t'interconnexion Nord Bénin-Nord Togo financée par te Fonds Nordique de Dévetoppement (NDF), [a réatisation des études relatives au barrage hydroél.ectrique d'Adjarala, t'étude du secteur gazier et [e démantèl.ement du site pétrotifère de Sèmè.
+6.
+o o È - Description et comoosantes du Proiet de Four nitures de Services d'Enerqie: Le Projet initiat est décrit à travers [es six (06) composantes ci-après: 1'l Réforme du secteur de l'énergie cettecomposanteprévoitdesétudeset[amiseenplaceprogress,ivedesmesures suivantes:
+- [a séparation des activités tiées à l"eau de cettes tiées à t'étectricité de La SBEE afin de mieux dévetopper chacun de ces secteurs ;
+-[acréationd,uneAutoritéderégulationdessecteursdet,étectricitéetde [,eau afin de contrôler et d'assurer t'équité entre les principaux acteurs ;
+- [,ouverture du secteur de t,éLectricité à ta participation du secteur privé ; .tacréationd,uneAgenced,Etectrificat.ionRuraleafindepromouvoiretde supervisertesactivitésd,él'ectrificationdeszonesdéfavorisées.
+2'l Etudes d'ingénierie Ce votet met t'accent sur tes activités ci-après :
+- une étude retative à ta définition de ta stratégie du Bénin en matière d'étectrification hors réseau ;
+-uneétudedefaisabititépour[atignedetransportél'ectriqueentreSakétéet Parakou;
+-uneétudesur[agestiondetachargeett,efficacitéénergétiquedesbâtiments administratifs;
+- une étude d,ingénierie détaittée et l.a préparation des dossiers d'appet d'offres pour [a rénovation, [e renforcement et ['extension du réseau de distribution étectrique et
+- t,évatuation environnementate, les études d'ingénierie et ta préparation des dossiers d,appet d'offres pour [a construction d'une tigne de transport é[ectrique entre Sakété et Porto-Novo.
+3 " / lnYestissement Cette composante prévoit les volets ci-après :
+- [,extension du poste d'Atakpamé et ta construction d'un nouveau poste à Kara, en Répubtique Togotaise ;
+- [a construction de deux (02) postes à ciet ouvert à Djougou et à Parakou
+- ['extension du réseau de transport étectrique Djougou-Parakou ;
+4.
+o o
+- [a construction de [ignes de transport étectrique tatérates de Djougou à Natitfngou et de Parakou à Bembèrèkè ;
+['achat et t'instaltation de l'équipement permettant d'amétiorer t'efficacité énergétique des bâtiments administratifs.
+4'l Aspects environnementaux et sociaux Le Projet prévoit une étude environnementale pour [e déptacement de [a turbine à gaz de Cotonou à Maria-G[éta et un audit environnementat de ta SBEE.
+5'l Renforcement des capacités institution nelles Cette composante vise à renforcer les capacités i nstitution netles et techniques de ta SBEE et de [a CEB à travers l'adoption d'un manuel concernant ['admi nistration, [a comptabitité et [a passation des marchés conforme aux exigences de [a Banque Mondiale. Ette prévoit [a formation du personnel du Ministère des Mines, de ['Energie et de ['Eau notamment dans les domarnes suivants: p[anification de ['énergie., économies d'énergie, énergies renouvelabtes, électrification rurate, réglementation et administration.
+6'l Energie Biomasse et Combustibles de Substitution La composante biomasse-énergie permettra d'assurer un approvisionnement durabte des ménages en énergie domestique de cuisson et de dévetopper [a production et les utitisations des énergies "modernes" de [a biomasse.
+Cette composante prévoit aussi un soutien à [a création de [a Commission Nationate des Combustibtes Domestiques et l'Agence lntercommunale de Gestion des Ressources Naturel[es en assurant une formation pertinente pour étaborer des méthodes et des systèmes de planification analytique et de dévetoppement.
+II - MODIFICATIONS PRISES EN CHARGE PAR LE FINANCEMENT ADDITIONNEL A - Obiectifs du financement additionnel Le financement additionne[ attendu de ['Association lnternationate de Dévetoppement (AlD) a pour but d'appuyer l'extension des activités du Projet de Fourniture de Services d'Energie qui renforceront te Programme, amétiorant ainsi, de manière rentabte, les résuttats attendus. l[ permettra surtout de conforter les résultats obtenus par les différentes composantes du Projet.
+{y a o B - Composantes financées ' 1 '/ Composante 2 : Etudes d'lngénierie ' lt est prévu :
+- [e financement de t'étude de faisabilité pour [e choix de Maria Gtéta comme site de ta Centrate Régionate de 400 MW : 0,5 miltion USD
+- ta préparation de ta Centrate Hydro-étectrique d'Adjarala : 0,5 mitlion USD 2"/ Composante 3 : lnvestissement Les investissements à réaliser sont :
+- ta réhabititation des organes de coupure et de protection de ta Centrate d'Akpakpa : 1,25 mittion USD
+- [a construction de [a tigne de transport d'énergie à Cotonou pour amétiorer [a fiabitité du service étectrique et réduire les coupures de courant inutites : 0,85 mittion USD
+- t,instattation des équipements de protection dans les sous-stations pour permettre le fonctionnement du réseau de distribution sud du Bénin : 1,4 mitlion usD
+- [a fourniture de têtes de câbtes pour relier les sous-stations de Djougou et Parakou aux tignes moyenne tension : 0,5 mittion USD
+- l,extension des contrats de supervision pour prendre en compte les tâches supptémentaires ci-dessus : 0,50 mittion USD 3'l Composante 4 : Aspects environnementaux et sociaux Ette concerne [e financement de t'audit environnementat des champs pétrotifères de Sèmè : 0,5 mittion USD 4'l Composante 5 : Renforcement des capacités institutionnelles Le renforcement des capacités prévoit :
+- l,assistance technique pour [a gestion financière de ta sBEE (sous [a conduite d'un consultant internationat) afin d'amétiorer ta rapidité et [a qualité des rapports financiers : O,3 miltion USD
+- [a formatron cté au profit du personnel de ta SBEE à t',instar de ce qui a été fait pour [e personnel du lÂ/v1EE et de ta CEB sous te PFSE: 0,2 million USD ) q o III - COUT ET SOURCES DE FINANCEMENT 1" I - Schéma de financement Le coût gtobat hors taxes des opérations de renforcement du PFSE qui est évatué à 7 mittions de dottars des Etats-Unis, soit 4,3 mittions de Droits de Tirage Spéciaux équivatant à 2.940.000.000 FcFA environ, est entièrement couvert par un crédit additionnet de t'Association lnternationate de Dévetoppement' 2'l Caractéristi ques du rêt Les caractéristiques du financement additionnet de t'AlD se présentent comme suit:
+- Durée de remboursement : 40 ans dont 10 ans de différé
+- Commission d'engagement : 0,50 % t'an
+- Commission de service : 0,75 % t'an
+- Etément don : 6O,57 7o L'Accord de financement additionnet prévoit ta rétrocession du crédit par t'Etat à ta Société Béninoise d'Energie El.ectrique (SBEE) et à [a Communauté Etectrique du Bénin (CEB) dans [es mêmes conditions que cetui du prêt initial soit
+- Pour [a SBEE Durée : 20 ans Différé: 5 ans Taux :5%
+- Pour la CEB Durée : 20 ans Différé : 5 ans Taux :, 3 % a tv- INTERET POUR LE BENIN La réatisation de ce Projet s'inscrit dans ta dynamique des actions engagées par [e Gouvernement en vue de réduire ta pauvreté et ta dépendance énergétique du Bénin à travers ['utilisation de t'étectricité pour assurer [a croissance économique et amétiorer [a quatité de vie et les services sociaux dans [es zones périurbaines et rurates qui sont Peu ou pas desservies.
+L'entrée en vigueur de t'Accord de prêt est subordonnée à l'accomptissement des formatités habituettes d'autorisation de ratification par ('Assemb[ée Nationale, de ratification par te Chef de t'Etat, de pubtication au Journal Officiet et d'obtention de t'Avis juridique de ta Cour Suprême.
+Ér 4.
+.
+Eu égard à ce qui précède et afin d'accélérer les formalités d'enlrée en vigueur du prêt, nous avons l'honneur, Monsieur le Président de I'Assemblée ttationale, lVtesdames et lVlessieurs les Députés, de soumettre à I'appréciation de Votre Auguste Assemblée le présent Accord de financement en vue d'obtenir l'autorisation de sa ratification.
+Fait à Cotonou, le 0B septembre 2008 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, o o Le Ministre des [/ines, de l'Energie et de I'Eau, Le [V]inistre de I'Economie et des Finances, Sacca LAFIA Le Ministre Chargé des Relations avec les lnstitutions, Porte-parole du Gouvernement, J xandre HOUNTONDJI AMPLIATIONS : PR 6 - AN 85 - CC 2- CS 2 - CES 2 - HAAC 2 - HCJ 2 - tvll\4EE 4 - lVlCRl 4 - IVEF 4 . SGG 4 - AUTRES À/INISTERES 23 . JO 1..
+4/ DrBoni YAYI Soulé Mana LAWANI . AA.- RE.PUBLIQUE DU BENIN ***:t********* ASSEMBLEE NATIONALE o LOI il' Portant autorisation de ratification de l'Accord de financement additionnel signé entre la République du Bénin et l'Association lnternationale de Développement (AlD) dans le cadre du Projet de Fourniture de Services d'Energie (PFSE) L'Assemblée nationale a délibéré et adopté en sa séance du la loi dont la teneur suit :
