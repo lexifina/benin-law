@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le septembre Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI Le Ministre d'Etat Chargé de la Défense Nationale, A Issifou KOGU1 N'DOURO Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, Le Ministre Chargé des Relations avec les Institutions, Porte Parole du Gouvernement, Gustave ANANI C Jean Alexandre HOUNTONDJI AMPL1ATIONS : PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 HCJ 2 MECPDEAP 4 MUHRFLCEC 4 MEF 4 MCRI-PPG 4 GS/MJLDH 4 AUTRES MINISTERES 24 SGG 4 DGBM-DCF-DGTCP-DGID-DGDDI BN-DAN-DLC GCOMB-DGCST-INSAE- BCP-CSM-IGAA UAC- ENAM FADESP UNIPAR-FDSP2 JO 1.-
