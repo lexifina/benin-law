@@ -1,0 +1,6 @@
+# Visas
+
+REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE A SUBSTITUER A L'ANCIENNE COPIE LOI N° 2008-04 DU SEPTEMBRE .
+Portant autorisation de ratification de l'Accord de prêt signé le octobre à Cotonou entre la République du Bénin et la Banque d'Investissement et de Développement de la Communauté Economie des Etats de l'Afrique de l'Ouest (BIDC) dans le cadre du financement partiel du Projet de route frontière du BurRinà-faso Kérémou-Banikoara Kandi - Ségbana - frontière Nigeria au Bénin.
+L'ASSEMBLEE NATIONALE a délibéré et adopté, LE PRESIDENT DE LA REPUBLIQUE promulgue la loi dont la teneur suit :
+Article 1er.- Est autorisée, la ratification par le Président de la République de l'Accord de prêt d'un montant de sept millions deux cent dix huit mille cent trente une (7.218.131) Unités de comptes (UC) équivalent à cinq milliards cinq cent millions (5.500.000. OOO) de FCFA, signé le 09 octobre 2007 à Cotonou, entre la République du Bénin et la Banque d'Investissement et de Développement de la Communauté Economique des Etats de l'Afrique de l'Ouest (BIDC) dans le cadre du financement partiel du projet de route frontière du Burkina-faso - Kérémou - Banikoara - Kandi - Ségbana - frontière Nigeria au Bénin.
