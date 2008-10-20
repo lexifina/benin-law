@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 2C crtcl-rre 2CoE Par le Président de la RéPtrblique, Chef de l'Etat, Çhef du Gouvernement, Dr Boni YAYI.- Le [Vlinistre du Travail et de Ia Fonction Publique, Le l\4inistre de lVlaternel ig neme nt aire, Christi ne A. l. Nouqbodé OUINSAVI- m an Le tt4inistre de l'Economie et des Finances, Soulé Mana LAWANI.- AM PL IONS : PR lO.AN 06 _CC 02 -CS 02 -HAAC 02- CES 02- HCJ 04- MTFP 04. AUTRES MINISTERES 23 DGTCP 02 DPRV 02 DGID 02 DGDDI 02 MEI\,'IP DGCST Ol.INSAE 01. IGE O1 CSM 01 IGAA O'I 04- MEF 04 DGB 02 DCF 02- SGG 04 BN 01. DAN 01. GCOIV1B 01 UAC-ENAM-FADESP : 04- UNIPAR-FDSP: 02 JO 01 - .-ffil'fu
