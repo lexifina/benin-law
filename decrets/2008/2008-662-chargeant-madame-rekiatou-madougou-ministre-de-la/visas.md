@@ -1,0 +1,3 @@
+# Visas
+
+REPUBLIQUE DU BENIN DECRET N' zooe-662 DU 04 DECEI{BRE 2oog PRESIDENCE DE LA REPUBLIQUE Chargeant [/adame Rékiatou MADOUGOU, Ministre de la lVicro Finance et de l'Emploi des Jeunes et des Femmes de l'intérim de Madame Mamatou MEBA Bl0 DJOSSOU, lVinistre de la Famille et de la Solidarite Nationale pour compter du Lundi 17 au Dimanche 30 Novembre 2008 LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT, DECRETE Article lu,: Pour compter du Lundi 17 au Dimanche 30 Novembre 2008, Madame Rékiatou MADOUGOU, Ministre de la Micro Finance et de l'Emploi des Jeunes et des Femmes est chargée de l'intérim de Madame Mamatou MEBA BIO DJOSSOU, Ministre de la Famille et de la Solidarité Nationale
