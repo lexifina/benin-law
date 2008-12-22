@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou,le zz décembre 2OOB Par le Président de la RéPublique, Chef de l'Etat, Chef du Gouvernement, tt/linistre d'Etat Chargé de la Prospective, du Développement et de l'Evaluation de I'Action Publique, Article 11 : Le Ministre chargé du Développement et le tVlinistre chargé des finlnffiveittent à l'application des dispositions du présent décret qui abroge \l(*- Dr BoniYAY| Pascal lrénée KOUPAKI ,t Le Ministre de l'Economie et des Finances, Soulé Mana LAWANI AMPLIATIONS:PR 6AN 4 CS2 CC 2 CES2 HAAC2 HCJ 2 MECPDEAP 4 IVIEF 4 AUTRES MïillETEHeEla SGG 4 DGBM-DCF-DGTCP-DclD-DGDDI 5 BN-DAN-DLC-lGE 4 GCoMB-DGCST- INSAE.IGE 4 BCP-CSM-IGAA 3 UAC-ENAM-FADESP 3 UNIPAR-FDSP 2 JO 1'
