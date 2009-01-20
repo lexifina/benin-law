@@ -1,0 +1,4 @@
+# Visas
+
+REPUBLIQUE DU BENIN PRESIDENôE DE LA REPUBLIQUE DECRE-IL N: 2OO9-O1O DU 20 JANVIER 2OO9 Chargeant Monsieur lssifou KOGUI N'DOURO, Ministre d'Etat chargé de la Défense Nationale, du mardi 20 janvier 2009 jusqu'à son retour, de l'intérim de Monsieur Pascal l. KOUPAKI, Ministre d'Etat, chargé de la Prospective, du Développement et de I'Evaluation de l'Action Publique LE PRESIDENT DE LA REPUBLIQUE , CHEF DE L'ETAT CHEF DU GOUVERNEMENT, VU La Loi n" 90-032 du 1 1 décembre 1 990, portant Constitution de la République du Bénin ; VU La Proclamation le 29 mars 2006 par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du 19 mars 2006 ;
+VU Le Décret n" 2008-637 du 27 octobre 2008, portant composition du Gouvernement ; VU Le Décret n' 2009-009 du 20 janvier 2009 chargeant Monsieur lssifou xoout N'DoURo, Ministre d'Etat, chargé de la Défense Nationale, de l'intérim du Président de la République pour compter du 20 janvier 2009 ;
