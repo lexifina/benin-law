@@ -1,0 +1,10 @@
+# Décret n° 2009-12 du 21 janvier 2009 Chargeant Madame Rékiatou MADOUGOU, Ministre de la MicroFinance et de l'Emploi des Jeunes et des Femmes de l'intérim de Monsieur Nicaise K. FAGNON, Ministre Délégué auprès du Président de la République chargé des Transports Terrestres, des Transports Aériens et des Travaux Publics pour compter du jeudi 22 Janvier 2009
+
+REPUBLIQAE DU BENIN PRESIDENCE DE LA REPUBLIQUE DECRET N" 2OO9-012 DU 21 JANVIER 2OO9 Chargeant Madame Rékiatou MADOUGOU, l\ilinistre de la MicroFinance et de l'Emploi des Jeunes et des Femmes de l'intérim de Monsieur Nicaise K. FAGNON, Ministre Délégué auprès du Président de la République chargé des Transports Terrestres, des Transports Aériens et des Travaux Publics pour compter du jeudi 22 )anviet 2009.
+LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEIVENT, VU la loi n' 90-032 du 1 1 décembre 1990, portant Constitution de la République du Bénin ;
+VU la proclamation le 29 mars 2006 par la Cour Constitutionnelle des résultats définitifs de l'Election Présidentielle du 19 mars 2006;
+VU le Décret n' 2008-637 du 27 octobre 2008 portant composition du Gouvernement ' VU le Décret n"2009-009 du 20 janvier 2009 chargeant Monsieur lssifou KOGUI N'DOURO, Ministre d'Etat Chargé de la Défense Nationale de l'intérim du Président de la République pour compter du 20 janvier 2009 ;
+DECRETD Article 1e' Pour compter du jeudi 22 janvier 2009, Madame Rékiatou chargé de l'intérim, AMPLIATIONS : PR 6-AN 4-CS 2-CES 2- HAAC 2_MDCEMTMIP-PR4-SGG 1 - AUTRES MINISTERES - 21 - DEPARTEMENTS 6 MADOUGOU, Ministre de la MicroFinance et de l'Emploi des Jeunes et des Femmes est chargé{de l'intérim de Monsieur Nicaise K. FAGNON, Ministre Délégué auprès du Président de la République chargé des Transports Terrestres, des Transports Aériens et des Travaux Publics.
+!11!9!e2: Le présent Décret sera publié au Journal Officiel.
+Fait à Cotonou, le 21 j anvier 2009 Par Ie Président de la République, Chef de l'Etat, Chef du Gouvernement et P.O.
+Le lvlinistre d'Etat Chargé de la Défense Nationale <- lssifou KOGUI N'DOURO
