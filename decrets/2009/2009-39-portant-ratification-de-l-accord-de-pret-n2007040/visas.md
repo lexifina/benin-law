@@ -1,0 +1,5 @@
+# Visas
+
+AA.- REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE DECRET N'2009-039 DU 24 FEVRIER 2OO9 portant ratification de l'Accord cie prêt n" 2OOTO4OIPR BN 2007 1B 00 signé entre la République du Bénin et la Banque Ouest Africaine de Développement (BOAD) dans le cadre du financement partiel du projet de micro crédit aux plus pauvres pour la promotion d'activités génératrices de revenus en République du Bénin.
+LE PRESIDENT DE LiA REPUBLIOUE' GHEF DE L'ETAT' CHEF DU GOUVERNEMENT, Vu la loi n'90-032 du 11 décembre 1990 portant Constitution de la République du Bénin ;
+la loi n" 2009-01 du 16 janvier 2009 portant autorisation de ratification de l,Accord de prêt n" 2OO7 040/PR BN 2007 18 00 signé entrelaRépubliqueduBéninetlaBanqueouestAfricainede Développement(.eono)danslecadredufinancementpartieldu projet dà micro ciédit aux plus pauvres pour.la promotion d'activités génératrices de revenus en République du Bénin' Vu Vu la proclamation le 29 mars 2006 par la Cour Constitution nelle desrésultatsdéfinitifsdel'électionprésidentielledul9mars2006' Vu le décret n"2008-637 du 27 octobre 2008 portarrt composition du Gouvernement :
