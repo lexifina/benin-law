@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 02 mars 2009 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, AMPLIATIONS: I'}R 6 AN 4 CS 2 CC 2 CES 2 IIAAC 2 HCJ 2 MINISTERES 30 SGG 4 DC/MIL 2 DEPARTEMENTS 6 JO I.
+Dr Boni YAYI.-
