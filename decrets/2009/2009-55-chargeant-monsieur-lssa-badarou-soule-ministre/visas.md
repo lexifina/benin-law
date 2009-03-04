@@ -1,0 +1,5 @@
+# Visas
+
+DECRET N"2009-o55 DU 04 IUARS 2009 Chargeant l/onsieur lssa BADAROU SOULE, Ministre dêlégué auprès du Président de la République, chargé de l'Economie Maritime, des Transports Maritimes et lnfrastructures Portuaires, de I'intérim de lVonsieur Jean- Marie EHOUZOU, Ministre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de l'Extérieur pourcompter du lundi 02au lundi 09 mars 2009, REPUBLIQUE DU BENIN VU la Loi N'90-032 du 11 décembre 1990 portant Constitution de la République du Bénin ;
+VU la proclamation le 29 mars 2006 par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du 19 mars 2006 ;
+VU le Décret n" 2008-637 du 27 Octobre 2008, portant composition du Gouvernement, vu le Dêcret n.2009-053 du 02 mars 2009 portant intérim du Président de la République ; DECRETE Par Le Président de la RéPublique, Chef de l'Etat, Chef du Gouvernement absent, Le Ministre d'Etat chargé de la Défense Nationale assurant l'intérim, Issifou KOGUI N'DOURO Ampliations : PR 6-AN 4 - cc 2- csz-cES 2- HAAC 2-HcJ 2' MAEIAFBE 4-
