@@ -1,0 +1,4 @@
+# Visas
+
+REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE DECRET No 2cc9-o55 :U 04 I''\RS 2cC9 Chargeant Monsieur lssifou KOGUI N'DOURO, Ministre d'Etat chargé de la Défense Nationale, du lundi 02 mars 2009 jusqu'à son retour, de I'intérim de Monsieur Pascal l. KOUPAKI, Minishe d'Etat, chargé de la Prospective, du Développement et de I'Evaluation de I'Action Publique LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT CHEF DU GOUVERNEMENT, VU La Loi n' 90-032 du 1 1 décembre 1 990, portant Constitution de la République du Bénin ; VU La Proclamation le 29 mars 2006 par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du 19 mars 2006 ;
+VU Le Décret n" 2008-637 du 27 octobre 2008, portant composition du Gouvernement ; VU Le Décret n" 2009-053 du 02 mars 2009 chargeant Monsieur lssifou xoeut N'DouRo, Ministre d'Etat, chargé de la Défense Nationale, de I'intérim du Président de la République pour compter du 02 mars 2009 ;
