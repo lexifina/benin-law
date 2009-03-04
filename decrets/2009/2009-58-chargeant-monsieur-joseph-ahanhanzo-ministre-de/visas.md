@@ -1,0 +1,7 @@
+# Visas
+
+REPUBLIQUE DU BENIN PRESIDENGE DE LA REPUBLIQUE DECRET N" 2009-058 DU 04 IiÀFiS 2009 Chargeant Monsieur Joseph AHANHANZO, Ministre de la Réforme Administrative et lnstitution nelle, de l'intérim de Monsieur Zakari BABA BODY, Ministre Chargé des Relations avec les lnstitutions pour compter du Mardi 03 mars 2009 LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT Vu la Loi n' 90-032 du '1 '1 décembre 1990, portant Constitution de la République du Bénin ;
+Vu la Proclamation le 29 mars 2006 par la Cour Constitutionnelle des résultats définis de l'élection présidentielle du 19 mars 2006 ;
+Vu le décret 2008-637 du 27 octobre 2008 portant composition de Gouvernement ; Vu le décret 2009-053 du 02 mars 2009 chargeant Monsieur lssifou KOGUI- N'DOURO, Ministre d'Etat Chargé de la Défense Nationale de l'intérim du Piésident de !a R.épublique pcur cornpter ciu luncii 02 mars 2009.
+DECRETE Article 1e': Pour compter du mardi 03 mars, Monsieur Joseph AHANHANZO, Ministre de la Réforme Administrative et lnstitution nelle, est chargé de I'intérim du Ministre Chargé des Relations avec les lnstitutions, Monsieur Zakari BABA BODY pendant son absence.
+Fait à Cotonou, le 04 mars 20oÇ Pour le Président de la République, Chef de I'Etat, Chef du Gouvernement, Le Ministre d'Etat Chargé de la Défense Nationale, assurânt l'intérim lssifou KOG I.N'DOURO AMPLIATIONS : PR 6- SGG 2- AN 2- HCJ 2- CS 2- CC 2- CES 2- HAAC 2- MlC4- MEF 2- MCAT 2- AUTRES MINISTERES 23. JORB 1
