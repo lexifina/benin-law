@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 18 mars 2009 Pour le Président de la République, Chef de I'Etat, Chef du Gouvemement r Boni YAYI AMPLIATIONS: PR 6 AN 4 CS 2 CC 2 HCJ 2 CES 2 HAAC 2 SGG 4 MINIS'IERE 22 PREFETS 12 COMMUNE 79 EMGÆAB + ETATS-MAJORS + CAB-MIL + SG/D 23 INTERESSES 2 SPD 2 DGB-DCF.DGID.DGDDI 5 DPE-DLC.INSAE 3. J.O 1 DECITETE
