@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le o3 avril 2oo9 Dr Boni YAYI Y Le Ministre de l'Economie Le Ministre de l'Energie et de I'Eau, et des Finances, Soulé Mana LAWANI Sacca LAFIA AMPLIATIONS : PR 6 AN 4CS2CC2CES2 HAAC 2 HCJ2 MEF 4 MEE 4 AUTRES MINISTERES 28 SOE+OOEU-OCF-DGTCP-DGID-DGDDI 5BN-DAN-DLC3GCOMB.DGCST.INSAE.3BCP-CSM-IGAA 3 UAC. ENAM _ FADESP 3- UNIPAR - FDSP 2 JO 1.-
