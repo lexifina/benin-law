@@ -1,0 +1,3 @@
+# Visas
+
+REPIIBLIQUE DU BEMN PRESIDENCE DE LA REPUBLIQUE DECRETN'2009-117 DU 07 AVRIL 2OO9 Chargeant Monsieur Grégoire AKOFODJI Ministre de l'Industrie, de I'intérim de Monsieur Soulé Mana LAWANI, Ministre de l'Economie et des Finances pour compter du sameü 21 au dimanche 29 mars LE PRESIDENT DE I,A REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOI.MERNEMET{I, Vu la Loi n'90-032 du 11 décembre 1990, portant Constitution de la République du Bénin Vu Ia Proclamation le 29 mars 2006 par la Cour Constitutionnelle des résultats définitifs de l'éIection présidentielle du 19 mars 2006 i Vu le Décret n" 2008-637 du 27 octobre 2008 portant composition du Gouvernement i DECRETE
