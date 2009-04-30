@@ -1,0 +1,5 @@
+# Signatures
+
+Fait à Cotonou, le 30 avril 2009 Dr Boni YAYI Le Ministre de I'Economie et de l'Economie.
+Sou lé Mana LAWANI PR6 AN4 CC2 CS2HCJ2 HAAC2 CES2IV1EE4IVIEF4AUTRES DGB-CF.DGTCP.DGDDI 5 BN.DAN'DLC 3 GCONB-DGCST-INSAE 3 3 UAC.ENAM-FADESP 3 UP.FDSP 02 JO 1..
+t.r
