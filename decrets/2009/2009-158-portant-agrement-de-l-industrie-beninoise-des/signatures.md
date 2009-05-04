@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le oa nai 2oo9 Le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Ministre d'Etat, Chargé de la Prospective, du Développement et de l'Evaluation q# Le tt/ nistre de l'lnd strie, Gréq oire AKOFOD Le Ministre de l'Environnement et de la Protection de la Nature, Justin Sossou ADANMAYI Le tv'linistre du Travail et de la Fonction Pu que, ( Le tvlinistre du Comme Chris tn SAVI Le lVlinistre de I'Economie et des Finances, AMPLIATIONS : PR6 ; AN 4 , HCJ 2; CS 2 ; CC 2 : CES 2 i !4AC 2 ; MPDEAP 4 i MÊF 4 ; MTFP 4 ; MEPN 4 ; iwîT|acfiurREs MtNtSTEREs zq; sée 4; DGBM- DCF DGTCP- DGID - DGDDI 5; BN- DAN - DLC 3 ; ôco'r'.rà - oôcr - trusne 3; BCÈ - csM - cpt - tcAA 4 i UNB - ENA-FASJEP 3;Jo 1 i Industrie Béninoise des Plastiques (lBP) SARL 1 .
+Dr. Boni YAYI de l'Action Publique, Pascal lrénée KOUPAKI Soulé Mana LAWANI Christophe Kint AGUIAR )
