@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 05 mai 2009 Par le Président de la RéPublique, Chef de l'Etat, Chef du Gouvernement' oni YAYI trl9 Le Ministre d'Etat chargé de la Prospective, du Développement et de l'Evaluation de l'Action Publique, Pascal lrénée KOUPAKI C Le ttlinistre de I'Economie et des Finances, Soulé Mana LAWANI ) Le tvlinistre de la Micro Finance et de I'Emploi des Jeunes et des Femmes' Le tVlinistre de la Réforme Administrative on nelle, h AN z I AMPLIATIoNS:PR6.AN4-cc2.cS2.cES2-HAAC2-HcJ2-MCPDEAP4MEF4MMFEJF4-AUTRESMINISTERES ii:E6ê-4_lcE4-Dc"_cr-oCrcp"-'oôià:;côôi-DGAÈ-DèML.-.DNMP-rGF-CAÂ10-BN-DAN-DLc3-GCoNB- DGCST_ INSAE 3 - DGPD - OOSp - rcie-I- ett--csÎ.r -|GAA3-UAC-UNIPAR-ENAM-ENEAM-FADESP-FASEG- FLASH 7-JO1,- *
