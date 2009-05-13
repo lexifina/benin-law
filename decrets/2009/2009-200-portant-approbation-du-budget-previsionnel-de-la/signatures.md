@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 13 mai 2009 Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, Le Ministre de I'Economie et des Finances, Le tVinistre Délegué auprès du Président de la RépubliqLre, Chargé des Transports Terrestres, des Transports Aériens et des fravaux Publics Soulé Mana LAWANI Ni se K otc rnl GNON AMPLIATIONS: PR 4 - AN 4 - CS 2 -CC 4 - HAAC 2 Fc:J2 - CES 2 - GCONB 1 SGG 4 - IVIDCTTTATP-PR 4 - l\,1EF 4 - AUrRES MINISTERES 28 - DCF DSDV-DGB-DTCP Dl ! - IIGAE DGCPE2_DPE.INSAE-DLC3'UAC-FASEG-ENAM'UNIPAR-INIAI!45-IGAA-DCCTGCONB3 CSIV 1 JO '1 - Société SMTP S A 4 I Dr Boni YAYI -ô.^az
