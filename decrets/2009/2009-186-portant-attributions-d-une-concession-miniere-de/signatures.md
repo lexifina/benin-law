@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou. le 13 mai 2 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, DrBoni YAYI Le l\4inistre d'Etat Chargé de la Prospective du Développement et de l'Evaluation de l'Action Publique,loy' Le Ministre de I'Economie et des Finances, Soulé Mana LAWANI Le lVl istre de I'lndustrie Gréqoire AKOFOD Pascal lréné KOUPAKI Le re m rr e rce.
+Ch n UINSAVI Le lVlinistre des Recherches Pétrolières et lvlinières Ba a KASSA Le Ministre de I'Environnenrent et de la Protection de la Nature, Justin Sossou ADANMAYI AMPLIATIONS, PR6 AN4 CC2 CS2IIÇ,J2 HAAC2 CES 2I\,4RPIü 4 N,IECPDEAII .1 - I,4I 4 MC 4 - MEF 4 - I\4EPN 4. AUTRES MINISTERES 25 DGB CF,DGTCP.DGDDI 5 BN-DAN,I]LC 3 GCONB-DGCST.INSAE 3 BCP - CSN-IGAA 3 UAC-ENAM.FADESP 3 UP-FDSP 02 DEP/PLATEAU 4 _ COMI!1UNE D'ADJA.OUERE 4 . JO ,1 .
