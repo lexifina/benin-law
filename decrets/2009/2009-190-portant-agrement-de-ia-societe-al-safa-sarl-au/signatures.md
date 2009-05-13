@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 13 mai 2009 Par le Président de la RéPublique, Chef de l'Etat. Chef du Gouvernement, Boni YAYI Le lVlinistre d'Etat Chargé de la Prospective, du Développement et de l'Evaluation de l'Action Publique, &se Pascal l. KOUPAKI Le tVlinistre de l'Economie et des Finances, \-'/ Soulé Mana LAWANI Le [Vlinistre de I'Environnement et de la Protection de la Nature, Le lVlinistre de l'lndustrie, Gréqoire AKOFO JI Le IVlinistre du Travail et de la Fonction Pub que, Justin Sossou ADANMAYI Christophe Kint AGUIAR Le [Vlinistre de l'Energie et de l'Eau, S cca LAFIA AMPLIATIONS : PR 6 - AN 4- CS 2 - CC 2- CES 2 - HAAC 2 - HCJ 2 - LAFE 4 -IVIECPDEAP 4 - IV]TFP4- IUEPN 4- [/I 4 _IVEE 4. AUTRES MINISTERES 24 _ SGG 4_ DGBIV-DCFDGTCP-DGID DGDDI 5_BN.DAN.DLC 3- GCONB_ DCCT_ INSAE 3_ BCP_CSI\4_CPI _ IGAA4. UNB-ENA
+- FASJEP 3 - JO 1- « Ia Société AL SAFA SARL 1
