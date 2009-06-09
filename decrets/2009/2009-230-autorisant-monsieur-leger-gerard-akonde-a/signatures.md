@@ -1,0 +1,3 @@
+# Signatures
+
+Fait a Cotonou, le 09 j uin 20 pai'le Président de la RéPublique, Chef de l'Etat, chef du Gouvernement, Le Garde des Sceaux, tVlinistre de Le Ministre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de l'Extérieur, l rr-.,- Je n-Marie EHOUZou.- Victor Prude nt TOPANOU.- la Justice, de et des Droits Porte- parole d la on e, ement, U AMPLIATIONS; PR 6 AN 4 CC 2 CS 2 HAAC 2 CES 2 HAC 2HCJ2 GS/NIJLDH 4 MAEIAFBE 4 ÀuïnEsîir'rrsrERES 24 AMBASSADE BENIN/ALLEMAGNE 2 DGBtul-DCF- DGTCP- DGID- DGDDI 5 eù-onN-orc 3 ccoNB-DGCST-INSAE-IGE 4 BCP-CSN -IGAA 3 UAC-ENAM-FADESP 3 UNIPAR-FDSP 02 INTERRESE 1 JO 1, IS l'Hom ouve Dr BoniYAY|.-
