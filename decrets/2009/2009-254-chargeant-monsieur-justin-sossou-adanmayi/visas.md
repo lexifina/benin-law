@@ -1,0 +1,5 @@
+# Visas
+
+REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE DECRET N'2009-2s4 DU 09 JUrN 2009 Chargeant Moasieur Justin Sossou ADANMÂYI, Minisre de I'Environnemeat et de la Protection de la Nature, de I'intédm de Monsieut François Gbènoukpo NOUDEGBESSI, Ministte de l'Urbanisme, de l'Habitat, de la Réforme Forcière et de lâ Lutte contre l'Etosion Côtiète.
+LE PRESIDENT DE I.A REPUBLIQUE CHEF DE L'ETÂT CHEF DU GOUVERNEMENT, \.U la Loi 90-032 du 11 décembre 1990 portant Constitution de la Répubüque du Bénin ; \tr h Proclamation le 29 rnats 2006 pxla Cour Constitutionnelle des résultats déEnitifs de l'élection présidentielle du 19 mats 2006 ;
+\-L.r le déuet no2008-637 û21 octobre 2008 portant composition du Gouvemement I Article f' : Pour compter du samedi 16 au ieudi 2l mù 2009, Monsieur Justin Sossou ADANMAYI, Ministre de I'Environnement et de la Protection de la Nature, est châr# de I'intérim de Monsieur François G. NOUDEGBESSI, Nfinistre de l'Urbanisme, de l'Habiat, de la Réforme Foncière et de la Lutte conüe l'Erosion Côuère pendant son absence.
