@@ -1,0 +1,3 @@
+# Signatures
+
+Fait a Cotonou, le os j uin 2oo9 par le Président de la RéPublique, Chef de l'Etat, chef du Gouvernement, Le Ministre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de l'Extérieur, / n-Marie EHOUZOU.- Le Garde des Sceau stre de la Justice, de la et des Droits de Porte- parole du Go ent, n AMPLIATIONS: PR 6 AN 4 CC 2 CS 2 HAAC 2 CES 2 HAC 2HCJ2 GS/MJLDH 4 MAEIAFBE 4 Âurncs rlit n rrsrERES 24 AMBASSADE BENIN/ALLEMAGNE 2 DGBIVI-DCF- DGTCP- DGID- DGDDI 5 EN-ORT.]-OLC 3 GCONB.DGCST-INSAE.IGE 4 ECP-CSN -IGAA 3 UAC-ENAM-FADESP 3 UNIPAR-FDSP 02 INTERRESE 1 JO 1, égislati 'Homm rne Dr Boni YAYI.- Victor Prudent TOPANOU'-
