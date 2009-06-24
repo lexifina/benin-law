@@ -1,0 +1,8 @@
+# Visas
+
+CS..
+REPUBLIOI.JE DU BENIN PRESIDENCE DE LA REPU BLIQU E DECRET N" 2009- 275 DU 24 JUIN 2009 portant détachement de lVlonsieur François Mathieu NOUDEVIWA, lVlagistrat pour servir à la Commission Nationale de Recouvrement des Créances des lnstitutions de Micro finance LE PRESIDENT DE LA REPUBLIQUE, GHEF DE L'ETAT, GHEF DU GOUVERNEMENT, Vu la loi n" 90-032 du '1 1 décembre 1990 portant Constitution de la République du Bénin ;
+Vu la loi n" 2001-35 du 21 février2003 portantstatutde la magistrature; Vu la Proclamation le 29 mars 2006 par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du 19 mars 2006 , Vu le décret n" 2009-260 du 12 juin 2009 portant composition du Gouvern ement Vu le décret n'2OO7-491 du 02 novembre2007 portant attributions, organisation et fonctionnement du lVlinistère de la Justice, de la Législation et des Droits de l'Homme ;
+sur proposition du Garde des sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, Porte Parole du Gouvernement, après avis conforme du Conseil Supérieur de la ttlagistrature en sa session des 25, 26 et 29 mai 2009 ;
+Le Conseil des tVlinistres entendu en sa séance du 24 juin 2009 ;
+DECRETE Article 1u': Conformément aux dispositions des articles 76 et 77 de la loi n'2001- 35 du 21 février 2003 portant statut de la magistrature, Monsieur François Mathieu NOUDEVIWA, magistrat, est placé en position de détachement pour servir au lVlinistère de la lVlicro finance en qualité de Coordonnateur de la Commission Nationale de Recouvrement des Créances des lnstitutions de lVlicro fin ance.
