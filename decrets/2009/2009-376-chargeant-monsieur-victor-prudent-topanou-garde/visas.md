@@ -1,0 +1,5 @@
+# Visas
+
+REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE DECRETNo 200e-376 DU 16 JUTLLET 2009 Chargeant Monsieur Victor Prudent TOPANOU, Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de I'Homme, Porte-Parole du Gouvernement, du jeudi 25 juin 2009 jusqu'à son retour, de I'intérim de Monsieur Pascal l. KOUPAKI, Ministre d'Etat, chargé de la Prospective, du Développement de I'Evaluation des Politiques Publiques et de la Coordination de I'Action Gouvernementale.
+LE PRESIDENT DE I.A REPUBLIQUE, CHEF DE L'ETAT CHEF DU GOUVERNEMENT, VU La Loi n' 90-032 du 1 1 décembre 1990, portant Constitution de la République du Bénin ; VU La Proclamation, le 29 mars 2006 par la Cour Constitutionnelle, des résultats définitifs de l'élection présidentielle du 19 mars 2006 ;
+VU Le Décret n" 2009-260 du 12 juin 2009, portant composition du Gouvernement ; VU Le Décret n" 2009-277 du 25 juin 2009 chargeant Monsieur Armand ZINZINDOHOUE, Ministre de I'lntérieur et de la Sécurité Publique, de I'intérim du Président de la République pour compter du 26 juin 2009 ;
