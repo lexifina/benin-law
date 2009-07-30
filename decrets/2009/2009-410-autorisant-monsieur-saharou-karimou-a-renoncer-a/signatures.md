@@ -1,0 +1,3 @@
+# Signatures
+
+Fait a Cotonou, le 30 j ui11et 2 009 par le Président de la République, Chef de I'Etat, chef du Gouvernement, Le [Vlinistre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de I'Extérieur, Le Garde des Sceaux, ltlinistre de la Justice, de la Législation et des Droits de l'Hom Porte- parole du Gouvern t, L Jea -Marie EHOUZOU.- Victor Pru nt TOPANOU.- AMPLIATIONS: PR 6 AN 4 CC 2 CS 2 HAAC 2 CES 2 HAC 2HCJ 2 GS/l\ilJLDH 4 MAEIAFBE 4 NTNNES UII'IISTERES 24 AMBASSADE BENIN/ALLEMAGNE 2 DGBM-DCF- DGTCP. DGID- DGDDI 5 BN-DAN-DLC 3 GCONB-DGCST.INSAE.IGE 4 BCP.CSN -IGAA 3 UAC-ENAM.FADESP 3 UNIPAR.FDSP 02 INTERRESE 1 JO 1, Dr Boni YAYI.-
