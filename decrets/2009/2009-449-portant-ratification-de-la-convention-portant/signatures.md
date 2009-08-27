@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou,lc 27 A Par le Président de la Républicluc, Chef de I'Etat, Chef du Gouvernement, l)r lloni YAYI Le Ministre d'Etat Chargé de 1a Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvemementale, î,^g, Pascal Irénée KOUPAKI Le Ministre des Affaires Etrangères, de 1'Intégration Africaine, de la Francophonie et des Béninois de l'Extérieur, Le Ministre de l'Energie et de l'Eau, Jean-Marie EHOUZO ca LAF A AMPLIATIONS: PR 6 AN 4 CC 2 CS 2 HAAC 2 CES 2 HAC 2 HCJ 2 ,) MECPDEPPCAG 4 MAEIAFBE 4 MEE 4 AUTRES MINISTERES 27 DGBM-DCF-DGTCP-DGID- DGDDI 5 BN-DAN-DLC 3 GCONB-DGCST- INSAE-IGE 4 BCP-CSM-IGAA 3 UAC-ENAM-FADESP 3 UNIPAR-FDSP 02 JO 1.
