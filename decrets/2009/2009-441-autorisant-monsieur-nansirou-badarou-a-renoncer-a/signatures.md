@@ -1,0 +1,3 @@
+# Signatures
+
+Fait a Cotonou,le 27 AOUT 2009 par le Président de la République, Chef de l'Etat. chef du Gouvernement, oniYAY!.- Garde des Sceaux, la Justice, de la Légis tre de n et des Droits de I'Hom Porte- parole du Gouvern ment, Jea arie EHOUZOU Victor Prudent TOPANOU.- AMPLIATIONS:PR 6 AN 4 CC 2 CS 2 HAAC 2 CES 2 HAC 2HCJ 2 GS/MJLDH 4 MAEIAFBE 4 AUTRES MINISTERES 24 AMBASSADE BENIN/ALLEMAGNE 2 DGBM-DCF. DGTCP- DGID- DGDDI 5 BN-DAN-DLC3GCONB.DGCST.INSAE.IGE4BCP.CSN.IGAA3UAC.ENAM-FADESP3UNIPAR-FDSP 02 INTERRESE 1 JO 1, Le Ministre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de I'Extérieur, u
