@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou,le 27 AoUT 2009 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le lVinistre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de l'Action Go u ve rn e menta le.
+0^r* -+- Le Garde des Sceaux, lVlinistre de la Pascal lrénée KOUPAKI s Droits Le [t4inistre des Affaires Etrangères de l'lntêgration Africaine de la Francophonie et des Béninois de l'Extérieur, J ustice, cle la Législation de l'Homme, Po du Gouverne ,r" Victor Prudent TOPANOU Jean-Marie EHOUZO AMPLIATIONS : PR ô , AN 4;CC 2;CS2; HCJ 2, CES 2; HAAC 2, - I\IECPDEPPCAG 4 GS/IVIJLDHPPG 4- IVAEIAFBE 4 - AUTRES IVI 'JISTERES 27 - SGG 4, IGE-DEP IN SAE 3, DSIA2, DGBIV]-CF-DGI.CP-DSDV8, BN-DAN'DLC 3;GCONB-DGCST 2;BCP-CSI\,4-IGAA 3. UAC ENAIII-FADESP 3. UNIPAR-FDSP 2, JO 1, Dr Boni YAYI
