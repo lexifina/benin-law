@@ -1,0 +1,4 @@
+# Signatures
+
+Fait a Cotonou, le 27 AOUT 2009 par le Président de la RéPublique' Chef de l'Etat, chef du Gouvernement, Le Ministre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de I'Action Gouvernementale, /,,ry' Pascal lrénée KOUPAKI Le Ministre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de I'Extérieur, Jea n arie EHouzou.- AMPLIATIONS: PR 6 AN 4 CC 2 CS 2 HAAC 2 CES 2 HAc 2 HCJ Â-urRes utrlsrERES 24 AMBASSADE BENIN/ALLEMAGNE 2 DGBM- aù-oeùDLc 3 ccoNB-DGCST-INSAE-IcE 4 BcP-csN -lcAA 3 UAC-E Le Garde des Sceaux, Ministre de la Justice, de la Lég et des Droits de l'H Porte- parole du Gouv en Victor Prudent TOPA ou.- 2 GS/MJLDH 4 MAEIAFBE 4 DCF. DGTCP. DGID- DGDDI 5 NAM-FADESP 3 UNIPAR-FDSP t, t a o me.
+e 02 INTERRESEE 1 JO 1 Dr Boni YAYI.-
