@@ -1,0 +1,4 @@
+# Signatures
+
+Fait a Cotonou, le Par le Président de la RéPublique, Chef de I'Etat, Chef du Gouvernement, 27 AOü1 2009 Dr Boni YAYI.- ective, du DéveloPPement, ues et de la Coordination Le Ministre d'Etat Chargé de de l'Evaluation des Politiqu bliq de l'Action Gouvernementale, Le Ministre des Affaires Etrangères, de I'lntégration Africaine, de la Francophonie et des Béninois de I'Extérieur, 4 MAEIAFBE 4 AUTRES MINISTERES 27 DGTCP- DGID. DGDDI 5 BN.DAN-DLC 3 GC 2,ryn Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de I'Homme, Porte- p le du Gouvernement, Jean HOUZOU.- Victor Prudent TOPANOU.- AM PL TIONS : PR 6 AN 4 CC 2 CS 2 HAAC 2 CES 2 HAC 2 HCJ 2 MECPDEPPCAG 4 GS/MJLDH AMBASSADE BENIN/ALLEMAGNE 2 DGBM-DCF.
+ONB-DGCST-INSAE-IGE 4 BCP-CSN -IGAA 3 UAC- ENAIVI-FADESP 3 UNIPAR-FDSP 02 INTERRESE 1 JO 1 Pascal lrénée KOUPAKI
