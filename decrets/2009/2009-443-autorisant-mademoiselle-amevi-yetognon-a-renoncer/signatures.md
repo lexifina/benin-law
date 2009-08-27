@@ -1,0 +1,4 @@
+# Signatures
+
+Fait a Cotonou,le zt Aour 2oo9 par le Président de la RéPublique, Chef de l'Etat, chef du Gouvernement, Le lt/linistre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de I'Extérieur, Développement, de I'Evaluation des Politiques Publiques et dela Coordination de I'Action Gouvernementale' nl',M#" Le tt/linistre d'Etat Ch de la ProsPective, du Le Garde des Sceaux' lVlinistre de la Justice, de la et des Droits de Porte- parole du G ent, Victor Pru dent TOPANOU,.
+n CL AMPLIATIONS AUTRES MINIS BN.DAN-DLC 3 :PR 6 AN 4 CC 2 CS 2 HAAC 2 CES 2 HAC 2HCJz GS/MJLDH 4 MAEIAFBE 4 rÈneé za ANIBASSADE arrutr'tlÀr-rrrvrncNE 2 DGBM-DCF- DGTCP- DGID- DGDDI 5 CîàïE.OOCSi INSAE-IGE q EôP èèN 'IGAA 3 UAC-ENAM-FADESP 3 UNIPAR-FDSP S 'Homm uvern 02 INTERRESEE 1 JO 1 Dr Boni YAYI.- l^ Pascal lrénée KOUPAKI Jean-Marie EHOUZOU'-
