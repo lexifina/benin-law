@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou,le22 sePtembre 2009 Dr Boni YAYI Le lVlinistre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de I'Action Gouvernementale, fr^P Le Ministre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de I'Extérieur ési ADJA istre intérimaire Le IVlinistre de l'Economie et es Finances, ldriss L. DAOUDA Le Ministre de la Santé, k AMPLIATIONS: PR6 i AN 4'HCJ2;CS 2;CC 2;CES 2;HAAC 2;MPDEAP 4;MEF 4 MS 4' AETAFBE 4; AUTRES r"rrrursrenrs zd;èce a I DGB- DCF DGTCP- DGID - DGDDI 5; BN- DAN - DLC alôôôr,ra_occsr_rNsnes;etp-csM-cpt -IGAA4;UAC-UNTPAR-ENAM-FADESP4;JO1 tl Pascal lrénée KOUPAKI lssifou TAKPARA
