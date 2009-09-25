@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 25 septembre 2009 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, r Boni YAYI.- Le [t/linistre d'Etat Chargé de la Prospective, du Développement de I'Evaluation des Politiques Publiques et de la Coor na on de I'Action Gouvernementa le, tdnss L. DAOUDA lvlinistre intêrimaire Le Ministre de I'Economie, Le [/inistre du Travail et de la et des Finances, Fonction Publi ue, I ldriss L. DAOUDA.- Christophe Kint AGUIAR.- AIVIPLIA TIONS:PR6AN4 CS2 CC2CES2 HCJ 2 HAAC 2 I\4ECDEPPCAG 4 |\4TFP 4 MEF4 4 AUTRES MINISTERES 27 SGG 4 DGB.DCF-D GTCP-DGID-DGDDI 5 BN-DAN.DLC 3 GCONB.DCCT.INSAE- 3 BCP-CSM.IGAA-IGE 4 UAC-ENAM-FADESP 3 UNIPAR-FDSP 2 JO 1
