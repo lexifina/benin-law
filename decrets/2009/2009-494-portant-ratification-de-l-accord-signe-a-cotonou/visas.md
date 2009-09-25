@@ -1,0 +1,5 @@
+# Visas
+
+AA.- REPUBLIOUE DU BENIN Fraternité Justice Trâvâil PRESIDENCE DE LA REPUBLIQUE DECRET N'2009. 494 DU 25 SEPTEMBRE 2OO9 portant ratification de l'accord signé à Cotonou le 28 novembre 2007 entre le Gouvernement de la République du Bénin et le Gouvernement de la République française relatif à la gestion concertée des flux migratoires et au co-développement LE PRESIDENT DE LA REPUBLIQUE, GHEF DE L'ETAT, GHEF DU GOUVERNEMET{T, Vu la loi n'90-032 du 11 décembre 1990 portant Constitution de la République du Bénin ;
+Vu la loi n' 2009-24 du 03 août 2009 portant autorisation de ratification de l'accord signé à Cotonou le 28 novembre 2007 entre le Gouvernement de la République du Bénin et le Gouvernement de la République française relatif à la gestion concertée des flux migratoires et au co-développement. Vu la proclamation le 29 mars 2006 par la Cour Constitution nelle des résultats définrtifs de l'élection présidentielle du 19 mars 2006 ;
+Vu le décret n' 2009-260 du '12 juin 2009 portant composition du Gouvernement;
