@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, 1e 08 octobre 2009 Article 1",: pendant l'absence de Monsieur ldriss L. DAOUDA, Ministre de l'Economie et des Finances, son int.rinr æra assuré par Monsieur Grégoire AKOFODJI, Ministre de l'Agriculture, de l'Elevage et de la Pêche, pour compter du lundi 05 au vendredi 09 octobre 2009, Pascal l. KOUPAKI AMPLIATIoNS:PR6.AN4-CS2.cC2.CESIHAA}2-SGG4-MINISTERES30-J01 Chargeant Monsieur Grégoire AKOFFODJI, Ministre de l'Agriculture, de l'Elevage et de la Pêche de l'intérim de Monsieur ldriss L. DAOUDA, Ministre de l'Economie et des Finances, pour compter du lundi 5 au vendredi 9 octobre 2009.
+Pour le Président de la RéPublique, Chef de l'Etat, Chef du Gouvemement, absent Le Minishe d'Etat, chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernementale assurant l'intérim tl l4n"tntc^ +-

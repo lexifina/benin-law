@@ -1,0 +1,4 @@
+# Visas
+
+REPUBLIQUE DU BENIN FRATERNITE.JUSTICE-TRAVAI L PRESIDENCE DE LA REPUBLIQUE DECRETN. 2009-s03 DU 08 0CTOBRE 2009 VU VU LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT, VU la Loi n.90-032 du I 1 décembre 1990 portant constitution de la République du Bénin ; la Proclamation le 29 mars 2006 par la cour constitutionnelle des résultats définitifs de l'êlection présidentielle du 19 mars 2006 ;
+le Décret n"2009-260 du 12 juin 2009 portant composltion du Gouvernement ; leDécretn'2009-500du1e'octobreo2009 chargeantMonsieurPascal lrénéeKOUPAKI, Ministre d'Etat, chargé de la Prospective, du Développement, de l'Evaluation des Politiques punliques et oe la Càordination de l'Action Gouvemementale, de l'intérim du Président de Ia République pour compter du '1e'octobre 2009 DECRETE VU
