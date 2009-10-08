@@ -1,0 +1,6 @@
+# Visas
+
+Vu Vu Vu REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE DECRET N' 2009-s02 DU 08 ocroBRE 2009 Chargeant Monsieur Joseph AHANHANZO, Ministre Chargé de la Réforme Administrative et lnstitutionnelle. de l'intérim de Monsieur Zakari BABA BODY, Ministre Chargé des Relations avec les lnstrtutions pour compter du lundi 05 octobre 2009.
+LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT la Loi n' 90-032 du 1 1 décembre 1990, portant Constitution de la République du Bénin, la Proclamation le 29 mars 2006 par la Cour Constitutionnelle des résultats définis de l'élection présidentielle du 19 mars 2006 ;
+le décret 2009-260 du 121uin 2009 portant composition de Gouvernement ; le décret 2009- 500 du 1"' octobre 2009, chargeant lr/lonsieur Pascal lrénée KOUPAKI, Ministre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernementale de !'lnté'im du Président de la République pour compter du '1"' octobre 2009.
+Artrcle 1"' DECRETE Pour compter du lundr 05 octobre au lundi 12 octobre 2009, Monsieur Joseph AHANHANZO. Minrstre Chargé de la Réforme Administrative et lnstitutionnelle, est chargé de l'intérim du Ministre Chargé des Relatrons avec les lnstitutrons, Monsieur Zakari BABA BODY pendant son absence.
