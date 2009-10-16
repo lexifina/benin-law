@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 16 octobre 2009 Dr Boni YAYI.- Le Ministre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de ia Coordination de l'Action Gouvernementale, Le [/linistre de I'Economie, Le l\4inistre du Travail et de la des Finances, Fonction Publiq AMPLIATIONS: PR 6 AN 4 CS 2 CC 2 CES 2 HCJ 2 HAAC 2 |VIECDEPTAG4MTFP4MEF44AUTRESMINISTERES2TSGG4 DGB-DCF-DGTCP-DGID-DGDDI 5 BN-DAN-DLC 3 GCONB-DCCT-INSAE- 3 BCP-CSI\4-IGAA-IGE 4 UAC-ENAIM-FADESP 3 UNIPAR-FDSP 2 JO 1 4"r ldriss L. DAOUDA.- Pascar rrénée KouPAKr.- r''«ry Christophe Kint AGUIAR.-
