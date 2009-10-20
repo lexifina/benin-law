@@ -1,0 +1,4 @@
+# Signatures
+
+Fait a Cotonou, le 20 octobre 2009 par le Président de la RéPublique, Chef de l'Etat, chef du Gouvernement, Le tVlinistre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernemen"" nnô,* Pasca I lrénée KOUPAKI Le lVlinistre des Affaires Etrangères, de I'lntégration Africaine, de la Francophonie et des Béninois de l'Extérieur, Je -Marie EHOUZOU.- Le Garde des Sceaux, t\4inistre de la Justice, de la Législation et des Droits de l'Homme, Porte- parole du Gouvernement, Victor Prudent TOPANOU.- t AMPLIATIONS: PR 6 AN 4 CC 2 CS 2HAdIC2 CES 2 HAC 2 HCJ 2 MECPDEPPCAG 4 GS/IV]JLDH 4 MAE'qFBE 4 AUTRES MINISTERES 24 AIVIBASSADE BENIN/ALLEMAGNE 2 DGBM-DCF- DGTCP' DGID- DGDDI 5 BN.DAN-DLC 3 GCONB-DGCST.INSAE-IGE 4 BCP-CSN -IGAA 3 UAC-ENAM-FADESP 3 UNIPAR-FDSP 02 INTERRESE 1 JO 1.
+é Dr Boni YAYI.-
