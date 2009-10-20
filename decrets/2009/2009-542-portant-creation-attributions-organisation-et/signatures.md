@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 20 octobre 2009 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, DrBoni YAYI Le lt4inistre d'Etat, Chaiqé de la Prospective, du Développement de l'Evaluation des Politiques Publiques et de la Coordination de I'Action Gouvern e me nta le, P* Pascal lrénée KOUPAKI Le [Vlinistre du Commerce, Le Garde des Sceaux lili la Justice, de la Législatio roits de I'Homme, Porte U Ll uverneme tre d et des arole UINSAVI /4/ Victor Prudent TOPANOU G Le ft/inistre de l'Economie et des Finances, Le lt/linistre Chargé des Petites et Moyennes Entreprises et de la Promotion du Secteur Privé, ld riss L. DAOUDA Léa nd OUAGA AMPLIATIONS: PR 6 _AN 4- CS 2-CC 2 - CES 2 - HAAC 2 _ HC 2-MECPDEPPCAG 4 -I\iC4_GS/MJL DH-PPG 4 - TVIEF 4 _IVIPI\iIEPSP 4 - AUTRES À/IINISTERES 25 _SPD 2 - SGG 4 _ IGE 1 - DGBIU-DCF-DGTCP-DGID-DGDDI 5 - BN-DAN-DLC 3 _ GCONB _ DCCT
+- INSAE 3- BCP-CSM - IGAA3 - - FADESP-UAC 2: -ENAM- FDSP 2 - JO 1 /q ]l
