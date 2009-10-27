@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotono u, le 27 octobre 2009 Dr Boni YAYI Le tVlinistre d'Etat Chargé de la Prospective' du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de I'Action Gouvernementale, Le tvlinistre des Affaires Etrangères, de I'lntégration Africaine, de la Francophonie et des Béninois de I'Extérieur, Go tre A JA intérimaire Le li/linistre de la Santé, lssi TAKPARA Le Ministre de l'Economie et es Finances, td s L. DAOUDA AMPLIATIONS: PR6; AN 4 , HCJ 2; CS 2; CC 2; CES 2; HAAC 2: MPDEAP 4 ' MEF 4 l'4S 4: ç1[l§E4;TUTRES MIN|STERES26;SGG4; DGB-DCF DGTCP- DGID- DGDDI 5;BN- DAN - DLC 3;GCoNB-occst-lNSAE3;BCP-cSM-cPl-|GAA4;UAC-UNIPAR-ENANiI.FADESP4lJol, ,4 lV in is 2-r# Pascal lrénée KOUPAKI
