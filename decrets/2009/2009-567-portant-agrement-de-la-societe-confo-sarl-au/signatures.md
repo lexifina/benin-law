@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 06 novembre 2009 Le l\4inistre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernementale, Pascal lrénée KOUPAKI l +4 w Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr. Boni YAYI Le lVinis u Commerce, Le ]vlinistre de I'Economie et F inances, hri OUIN AVI ldriss L. DAOUDA Le lVlinistre de l'lndustrie, Le tvlinistre du Travail et de la Fonction Publi UC, Ro er DOVONOU Le N/linistre de l'Environnement et de la Protection de la Nature,
+- Sociétè CONFO SARL 1 .\-qJ O Christoohe Kint AGUIAR Justin Sossou ADANMAYI AMPLIATIONS:PR6;AN 4,Ç52-CC 2-CES2 - HAAC 2'HCJ2-MECPDEAP4 -MEF4-MTFP4-MEPN 4 füîËËoÜiàe§vrrr..riàrenEs24-scc4- DGBM-DCF- DGrcP-DGID-DGDDI 5-BN-DAN-DLC s ; GCONB _ DGCST _ rnsne i- ecp _ csM - cpt -IGAA4-UAC-UNIPAR-ENAM-FADESP4-JO1' 4./
