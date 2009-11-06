@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 06 novembre 2009 Le ttlinistre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de I'Action Gouvernementale, îoç Pascal lrénée KOUPAKI Le Ministre de l'lnd trie, Roqer DOVONOU Le Ministre du Travail et de la Fonction Publique, Le lVlinistre de I'Environnement et de la Protection de la Nature, Justin Sossou ADA MAYI Le ltlinistre de l'Economie et des Finances, i,t AM PLIATIO NS PR6 i AN 4 ; CS 2 - CC2 -CES 2- HAAC 2 -HCJ 2-MECPDEPP-CAG 4 - MEF4 -MTFP4 - MEPN 4 - IVII 4 -AUTRESMINIST ÈRES 25 - SGG 4 - DGBM-DCF. DGTCP-DGID-DGDDI 5.BN-DAN- DLC3;GCONB-DGCST-INSAE3-BCP-CSM-CPI -IGAA4-UAC-UNIPAR-ENAM-FADESP4-JO1l Société NATURA SARL 1.
+Le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr. Boni YAYI .^-^-0 Christophe Kint AGUIAR ldriss L. DAOUDA Ç
