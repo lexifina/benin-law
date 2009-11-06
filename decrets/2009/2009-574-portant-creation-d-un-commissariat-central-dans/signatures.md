@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 06 novembre 2 009 Le Ministre d'Etat Chargé de la Prospective, du Développent, de I'Evaluation des Politiques Publiques et de ia Coordination de l'Action Gouvernementale, Le tt/linistre de l'lntérieur et de la Sécurité Publique, Arm INZIND OUE Le Boni YAYI 1ou,o +- Pascal lrénée KOUPAKI Ir{inistre de I'Economie et / Çes Finances, LIl , rr\ +c{^^^U ldriss L. DAOUDA AmDliations: PR: 06 - AN: 04 - CS 02 - ÇC: 02 - HCJ: 02 - CES: 02 - HAAC: 02 ff#*a"porrt"ooî-ïrsp, 'oa -rt,ter,04-AUTRESMINIsTERES: 19-sGG:04- DGB-DCF- DGTCP-DGID-DGDDI : 05 . AN.ONN-6I-C: 03 - GCONB-DGCST-INSAE : 03 _ BCP-CSM-IGAA: 03 - UNB-ENA-FADESP : 03 -JORB:01 ft Z
