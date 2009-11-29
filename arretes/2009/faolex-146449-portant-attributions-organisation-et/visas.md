@@ -1,0 +1,11 @@
+# Visas
+
+REPCBLIQL'E DU BENIN MINISTERE DE L'AGRICULTURE, DE L'ELEVAGE ET DE LA PECHE Le CABINET ARRETE , it' ~l ., t-:
+I'~ , ANNEE 2005 N~ "'J ;.,~ll\tlAEPID- ItBjSG 1/D H/SA PORTANT ATTRIBUTIONS, ORGANISATION ET FONCTIONNEMENT DE LA DIRECTION DES RESSOURCES HUMAINES (DRH) LE l\fINISTRE DE L' AGRICULTURE, DE L'ELEVAGE ET DE LA PECHE, Vu Ia Loi n° 90-032 du 11 decembre 1990, portant Constitution de la Republique du BENIN, Vu la Proclamation Ie 03 avril 2001 par Ia Cour Constitutionnelle des resultats definitifs du deuxieme tour de l' election presidentielle du 22 mars 2001, Vu Ie Decret n° 2004-252 du 04 mai 2004, fixant la structure-type des i\linisteres, Vu Ie Decret n° 2005-052 du 04 fevrier 2005, portant composition du Gouvernement, Vu Ie Decret n° 2005-192 du 14 avriI2005, portant attributions, organisation et fonctionnement du NIinistere de l' Agriculture, de I'EIevage et de Ia Peche, Sur proposition du Directeur des Ressources Humaines, A R RET E TITRE I : DE LA iVIISSION ET DES ATTRIBUTIONS Article ler: Conformement aux dispositions de l'article 29 du decret n° 2005-192 du 14 avril 2005, portant attributions, organisation et fonctionnement du rv1inistere de l' Agriculture, de l'EIevage et de la Peche, la Direction des Ressources Humaines est chargee de la gestion administrative du tvlinistere et de la rationalisation de l'utilisation des res sources hurnaines du secteur rural. A ce titre, elle assure:
+l' elaboration des etats d' effectifs du ministere ;
+la gestion des ressources humaines du ministere ;
+la gestion et Ie suivi de la carriere du personnel;
+la gestion des affaires sociales ;
+• !'identification et la planification des besoins de formation et de staae, v o _ compris la formation operationnelle i La gestion de la base de donnees sur l' adequation profH/ poste des ressources humaines d u secteur rural i Le suivi de la mise en CEuvre de la politique d'incitation et de valorisation des ressources humaines du secteur rural sur la base des programmes axes sur les resultats ;
+l' elaboration de rapports periodiques sur Ies activites de la Direction des Ressources Humaines.
+TITRE II : DE L'ORGANISATION ET DU FONCTIONNEMENT CHAPITRE I : DE L'ORGANISATION
