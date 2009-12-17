@@ -1,0 +1,4 @@
+# Signatures
+
+Fait a CotonOu, le 17 deicembre 2009 Par le Président de la RéPublique, chef de I'Etat,chef du Gouvernement, Dr Boni YAYI.- Le IVlinistre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouverne mentale, f Le lVlinistre des Affaires Etrangères, de l'lntégration Africaine, de la FrancoPhonie et des Béninois de I Extérieur.
+Jean-Marie EHOUZO l,K" Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, Porte-parole du Gouvernement, Victor Prudent TOPANOU - I AMPLIATIONS: PR 6 AN 4 CC 2 CS 2 HAAC 2 CES 2 HAÇ 2 HCJ 2 MECPDEPP-CAG4 GS/I\4JLDH 4 PfiEPqESE A AUTRES I\4INISTERES 24 AMBASSADE BENIN/ALLEMAGNE 2 DGBM-DCF- DGTCP' DGID- DGDDI 5 BN-DAN-DLC 3 GCONB-DGCST-INSAE-IGE 4 BCP-CSN -IGAA 3 UAC-ENAM-FADESP 3 UNIPAR' FDSP 02 INTERRESEE '1 JO 1, 4-- / Pascal lrénée KOUPAKI
