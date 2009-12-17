@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 17 dicenbre 2oo9 Dr BoniYAY| Le Ministre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernementale, Le nt tre de l'Economie des Finances, Le Ministre de l'Agriculture, de l'Elevage et de la Pêche, ."*(_D tdflss L. DAOUDA Gréqoire AKOF JI AMPLIATIONS: PR6 AN4 CS2 CC 2 CESZ HAAC2 HCJ2 MECPDEPPCAG 4 MAEP 4MEF 4 NTNNCS TUIruISTERES 24 SGG 4 DGBM.DCF-DGTCP.DGID-DGDDI 5 BN-DAN.DLC 3 GCONB-DGCST. INSAE.IGE 4 BCP-CSM-IGAA 3 UAC-ENAM-FADESP 3 UNIPAR .FDSP 02 CERPA 6 CARDER 6 JO 1,- 1t r)liati6' Pascal lrénée KOUPAKI 4-- )
