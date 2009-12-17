@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à COtOnOu, le 17 decembre 2009 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr BoniYAY| Le l\/inistre d'Etat chargé la Prospective, du Développement, de l'Evaluation de l'Action Publique et de la Coordination Gouvernementale, 0o Le Ministres de l'Economie et des Finances, Pascal lrénée KOUPAKI Le Ministre Délégué auprès du Président de la République, Chargé de la Communication et des Technologies de I'ln de la Communicatio formation et ésiré ADADJA Ampliations : -PR 06- AN 04 -CS 02 -HAAC 02 HCJ 02 CES 02 MECPDEPP-CAG 4 MDCCTIC/PR 4 MEF 4 AUTRES MINISTERES 27 _ CÇ 02 _CAB 02 SGG 02.DRH 02 _ DRFM 02 _DPJEJ 02 _ DICS 02 _ DGB 02 _CF 02 _DGTCP 02 _DGML 02 _ IGF 02 .DGID 02 _ UAC 02 - UNIPAR 02 JO ?, ldriss L. DAOUDA
