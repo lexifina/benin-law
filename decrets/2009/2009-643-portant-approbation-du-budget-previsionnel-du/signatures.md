@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 17 decembre 2009 Dr Boni YAYI Le Ministre d'Etat Chargé de la Prospective, du Développement' de I'Evaluation des Politiques Publiques et de la Coordination de I'Action Gouvernementale, ?*!ÿ" Pascal lrénée KOUPAKI Le tt/inistre de l'Economie et des Finances, (ru-r ldriss L. DAOUDA {) AMPLIATIONS ]PR 6 AN4 CS2 CC2 CES2 HAAC 2 HCJ 2 MECPDEPPCAG 4 MEF 4 MFSN 4ALJTRESMINISTERES2TSGG4DGBM.DCF-DGTCP-DGID.DGDDISBN-DAN.DLC3 GCoNB.DGCST-INSAE.IGE4BCP-CSM-IGAA3UAC-ENAM-FADESP3UNIPAR-FDSP02 JO 1.- éy/ Le Ministre de la Famille et de la Solidarité Nationale, Mamatou MEBA BIO DJOSSOU
