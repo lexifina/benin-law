@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 31 DECEMBRE 2009 Par le Président de la RéPublique, Chef de I Etat. Chef du Gouvernement, et des Finances, Sou lé Mana LAWA AMPLIATIONS:PR6-AN I\nINISTERES 29 -SGG 4 -
+- GCONB _ DCCT _ INSA A,4/"\- 4- CS 2_ CC 2_ CES 2_ HAAC 2- HCJ 2' MEF 4_AUTRES rcÈi - ocaN/-ocF-DGTcP-DGID-DGDDI 5 - BN-DAN-DLC 3 E 3- BCP - CSM - IGAA 3 - - FADESP-UAC 2: -ENAI'4- FDSP2 -JO1r7 */ Le ltlin istre de l'Economie DrBoni YAYI R in:e r nd emnitaire des Cheis d P ro'r-occ le de M'inisi:èr Intitulé de Ia prime ou de I'indemnité No d'Ordre Montant Observations Prime vestimentaire 125 000 FcFA/semestre Prime de carburant 50 000 FCFA/mois Prime de sujétion 20 000 FCFA/mois Prime de rendement CF textes en vigueur tr Indemnité de téléphone 10 000 FCFA/mois Véhicule ou amortissement 20 000 FCFA/mois Ou véhicule â, Route Je lAéluuoti, BP 302 CoaotoL Tét, a229i 2) 3ü i-, :,, tax. iz2g) 21 30 t8 51 wwÿ\,.[ldei.bj /
