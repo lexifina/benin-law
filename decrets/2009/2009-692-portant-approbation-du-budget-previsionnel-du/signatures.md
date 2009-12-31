@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le rr DECEMBRE 2oo9 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, DrBoni YAYI.- Le Ministre d'Etat Chargé de la Prospective, du Développement' de l'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernementale, lt4 Le Ministre de l'Economie Le Ministre de l'Agriculture, de I'Elevage et de la Pêche, et es Finances, Lî qqr r ldris DAOUD Gréqoire AKOF DJI.- AMPLIATIoNS: PR 6 AN4 CS2 CC2 CES 2 HAAC 2 HCJ 2 MAEP 4 MEF 4 AUTRES MrrtrsîHes zz SGG 4 DGBM-DCF-DGTCP-DGID-DGDDI 5 BN-DAN-DLC 3 GCoNB-DGCST- INSAE-IGE 4 BCP.CSM.IGAA 3 UAC-ENAM-FADESP 3 UNIPAR -FDSP 02 CERPA 6 CARDER 6 JO 't.- # 1> Pascal lrénée KOUPAKI lo
