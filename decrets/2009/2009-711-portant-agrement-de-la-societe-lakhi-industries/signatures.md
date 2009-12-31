@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 31 DECEMBRE Dr. Boni YAYI Pascal lrénée KOUPAKI h / Le Ministre de l'lndu Ro r DOVON e Le Ministre du Travail et de la Fonction P blique, Christophe Kint AGUIAR Le Ministre de l'Environnement et de la Protection de la Nature, Justin SOSSOU ADANMAYI AUEI!A[!9-!§ : PR6 ; AN 4 ; CS 2 - CC 2 - CES 2 - HAAC 2 - HCJ 2 - MECPDEPP-CAG 4 - MEF 4 -MTFP 4 - MEPN 4 - Ml 4 - MC 4 - ÂUîFEEÏii'ISreneS 24. sGG 4- oGBM_ ocF - DGToP - DGID. DGoDI 5. BN- DAN. OLC 3;GCONB. DGCST- INSAE 3. BCP - CSM - CPI - IGAA 4 - UAC - UNIPAR - ENAM - FADESP 4 - JO 1 - société LAKHI INDUSTRIES BENIN sÀRL 1 hl
