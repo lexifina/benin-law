@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le ll di-.cembre 2OO9 Par le Président de la République Chef de l'Etat, Chef du Gouvernement, Ministre d'Etat Chargé de la Prospective, du Développement, de I'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernementale, Le tt/inistre de l'Economie et des Finances, AMPLIATIONS PR 6 AN 4 CS 2;CES 2 HAAC 2 MEC MINISTERES 27 SGG 4 DGB-DC FADESP 3 UNIPAR.FDSP 2 JO 1 F-DGTCP-DGID-DGDD I 5 BN-DAN-DLC Le Ministre Délégué, auprès du et Président de la République, Chargé de la Communication et des Technologies de l'lnformation et de la Communicat oun DéSI re A A ( tu4 Dr. Boni YAYI frryr Pascal lrénée KOUPAKI ldriss L. DAOUDA MEF 4 MDCCTIC/PR 4 AUTRES 3 GCONB.DGCST.INSAE 3 UAC-ENAM- iD
