@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le :r DECEMBRE Par le Président de la RéPublique, Chef de l'Etat, Chef du Gouvernement, tu/ ) Dr. Boni YAYI LeMinistred'EtatChargédelaProspective,duDéveloppement' -à" i;eràrr"tion des Pàlitiques Publiques et de la coordination de I'Action Gouvernementale' @ Le Mi e de I'Economie s Finances, c-l.r\À, td ssDAOU A Pascallrénée KOUPAKI Vi r Pru ent TO AN Le Ministre de l'lntérieur et de la Sécurité Publique OH UE U f Le Garde des Sceaux' Ministre de la Just'ae' o" ra iègisl"tiàn àt 0"" Droits de l'Homme' Porte-parole du Gouvernement' *Ërurrols,-* ,,,,iJ*-?i , #- 3i;"3; :'q3!y::p^#3"Îâ1i','.,iilr,'i^H-'f ,if; Yil. oi'llb"l*ïl DCCT- INSAE : 03 BCP _CSM- IàEETS üNB- UI'IIPAR- ENA- FASJEP ; 04 JO :01 r/1
