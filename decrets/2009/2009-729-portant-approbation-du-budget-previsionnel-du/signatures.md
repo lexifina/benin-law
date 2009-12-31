@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 31 DECEM RE 2009 Par le Président de la RéPublique, Chef de l'Etat, Chef du Gouvernement, Le Ministre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de I'Action Gouvernementale, o"w Le tvlinistre de I'Economie et des tnances, Le Ministre de la Microfinance et de I'Emploi des Jeunes et des Femmes, ) idriss L. DAOUDA AUe!!ÀIlg.N§: PR6 AN4 CS 2;CES 2HAAC 2 MECPDEPPCAG 4 MIUFEJFPME 4 MEF 4 AUTRES iIINISTERES 273-ce I oce.ocr.DGToP.DGID.DGDDI 5 BN.DAN.DLc 3 GCONB-DGCST-INSAE 3 UAC-ENAM.FADESP 3UNIPAR- FDSP 2 JO 1, G/ Dr Boni YAYI Pascal lrénée KOUPAKI Rékiatou MADOUGOU
