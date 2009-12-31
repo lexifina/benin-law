@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 3r »r BRE 2OO9 Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, Dr Boni YAYI.- Le [/linistre d'Etat Chargé de la Prospective, du Développement, de I'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernementale, 0* Pascal L KOUPAKI.- Le Ministre d'Etat Chargé de la Défense Nationa lssifou KOGUI N'DOURO.- )/ t/ Le lVlinistre de l'Economie s Finances, Le I/linistre de I'lntérieur et de Sécurité Publique, ldri L. DAOUDA.- Arm DOHOUE.- Le Garde des Sceaux, It/inistre de la Justice, de la Législation et des Droits de l'Homme, Porte-Parole du Gouvernement, Victor P. TOPANOU.- Ampliations:PR6 AN4 CC2 HCJ 2 CS2 CES2 HAAC2 IUECDN4 IvlEF2 MISP4 GS/MJLDH-PPG 4 AUTRES IUINISTERES 26 SGG 4 DGB-dCF-DGTCP-DGID.DGDDI 5 BN.DAN-DLC3GCONB-DGCST-INSAE3BCP.CSN/I-IGAA3UAC-ENAIV.
+FADESP3UNIPAR-FDSP2 JO1 //4 ü
