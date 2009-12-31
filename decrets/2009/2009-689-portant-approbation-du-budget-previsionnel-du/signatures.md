@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 31 DECEMBRE 2009 Par la Président de la République, Chef de I'Etat, Chef du Gouvernement, Le Ministre d'Etat, de la Prospective, du Développement et de l'Evaluation des Politiques Publiques et de la Coordination de I'Action Gouvernementale, ?*g, Le Ministre de l'Economie et Finances, Le Ministre de la Famille et de la Solidarité Nationale, c ldriss L. DAOUDA AEp!i4i9!§: pR 6 -AN 4 - SGG 4 -CC2-HAAC2-CES 2 - MFSN 4- MEF 4-AUTRES TVIINISTERES 28- FADIB 4 - DGBI\,- DCF.DGTCP.DGID-DGDDI 5 - BN.DAN.DLC 3 - GCONB.DCCT-INSAE 03 _ SCP.CSMIGAA 3 - UAC.ENAM-FASEG 3 . JO 01. 4/, Dr Boni YAYI Pascal lrénée KOUPAKI Mamatou Marie-Joe MEBA BIO DJOSSOU
