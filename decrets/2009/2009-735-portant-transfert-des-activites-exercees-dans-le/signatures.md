@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 31 DECEMBRE 2ooe Par le Président de la République Chef de l'Etat, Chef du Gouvernement, Dr. Boni YAYI Le Ministre de I'Economie et cies Finances Le Ministre Délégué, auprès du Présicient cie ia Répubiique, Chargé de la Communication et des Technologies de l'lnformation et de la Communication, Désiré A ADJA AMPLIATIONS: PR6 AN4 CS2iCES2HAAC2 MECPDEPP EF 4 MDCCTIC/PR 4 AUTRES MINISTERES 27 SGG 4 DGB-DCF.DGTCP-DGID.DGDDI 5 BN.DAN-DLC 3 GCONB-DGCST]N SAE 3 UAC.ENAM-FADESP 3 UNIPAR-FDSP 2 JO 1 4, l Ivlinistre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de I'Action Gouvernementale, 2,mr*rc .-+-- P a s ceLLÉ-née_K ollP A Kl ldriss L. DAOUDA Z
