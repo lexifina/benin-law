@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 31 DECEMBRE 200e Par le Président de la RéPublique, Chef de l'Etat, Chef du Gouvernement, r Boni YAYI Le t\4inistre d'Etat Chargé de la Prospective, du Développement' de I'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernementale, Pascal lrénée KOUPAKI Le Ministre d'Etat Chargé de la Défense Nation/ ale, lssifou KOGUI N'DOURO Le fi/linis de l'Economie ét es Finances, clULr ldriss L. DAOUDA AU!!!AIj9.!§ : - PR 6 -CAB-MIL 6-AN 2- CC2-CS 2 HCI 2-CES 2- HAAC 2 MECPDEPPCAG 4 MDN 4 MEF4AUTRES MINISTEREs2TSGG4SPD2-DEP-lNSAE3oslA2DGBM-DCF-DGTCP-oSDV.CFS.oNEP.GcoNB.oGcsT3-UAc-ENAM. FASJEP 3- UNTPAR.FDSP 2 INTERESSES 38 'DOPA 1-JO 1-A'/C 4' 4, Q,ry <_.? a?
