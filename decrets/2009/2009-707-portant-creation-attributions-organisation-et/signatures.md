@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 31 DECE RE 2009 Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, Dr Boni YAYI Le l\tlinistre d'Etat, de la Prospective, du Développement et de l'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernementale, Le Ministre de l'Economie et des Finances, Le Ministre de la [/licro Finance et de I'Emploi des Jeunes et des Femmes, (2.--\ÀÀr Am pliations: -PR 06- AN 04 -CS 02 -HAAC 02 HCJ 02 CES 02 MECPDEPP-CAG 4 MMFEJF 4 MEF 4 AUTRES MINISTERES 27 - CC 02 -CAB 02 SGG 02 _D RH 02 _ DRFI\4 02 _DPJEJ 02 _ DLCS 02 - DGB 02 -CF 02 -DGTCP 02 -DGML 02 - IGF 02 -DGID 02 _ UAC 02 _ UNIPAR 02 JO Pascal lrénée KOUPAKI ldriss L. DAOUDA Rékiatou MADOUGOU 4/ /
