@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 31 DEC Par le Président de la RéPublique, Chef de l'Etat, Chef du Gouvernement, Le Ministre d'Etat Chargé de la Prospective, du Développement' de I'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernementale, A«,g,- Le Ministre de l'Economie et S inances, ldris L.D UDA Le Ministre des Recherches Pétrolières et Minières, Ba m A AMPLIATIoNS:PR4.AN4.HcJ2-cC2.cs2.cES2-.HAAC2-SGG2_MECPDEPP-CAG2.MEF2-Auires ffiffir-=- ocÈ èrôêrcp-oèrô-oéôor-oèÀe--oecpe + - rcr 1- BN-DAN-DLC 3 - GCoNB-DCCr'INSAE 3 - BCP- éêrvi-rce,ci uec-eNEAM -FADESP- FASEG 4 - UNIPAR 1 - LNB 5 - JoRB 2 ., I Dr Boni YAYI Pascal lrénée KOUPAKI
