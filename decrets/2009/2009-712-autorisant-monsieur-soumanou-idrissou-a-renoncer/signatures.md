@@ -1,0 +1,4 @@
+# Signatures
+
+Fait a Cotonou, le 31 DECEMBRE 2oo9 Par le Président de la RéPublique' Chef de l'Etat, Chef du Gouvernement Dr Boni YAYI.
+Le Ministre d'Etat Chargé de la Prospective, du Développement' de I'Evaluation des Politlques Publiques et de la Coordination de l'Action Gouvernementale, Le Ministre des Affaires Etrangères, de l'lntégration Africaine, de la FrancoPhonie et des Béninois de l'Extérieur' Je EHOUZ U Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, Porte-Parole du Gouvernement, Victor Prudent TOPANOU.- AMPLIATIoNS:PR6AN4Cc2CS2HAAC2cES2HAc2HcJ2MECPDEPP-CAG4GS/MJLDH4MAEIAFBÉ4AUTRES ffi*,.*ES ' .À'ÉÂè.SÀOE ETNiNÀLiËrYNêùÈ Z DGBM-DCF' OGTCP- DGID- DGDDI 5 BN'DAN'DLC 3 GCONB'DGCST' i'r.iàÀË-rcia etp Csr'l -IGAA 3 uAc-ENAM-FADESP 3 UNIPAR-FDsP 02 INTERRESE 1 Jo 1 Pascal lrénée KOUPAKI ary L 6,ç
