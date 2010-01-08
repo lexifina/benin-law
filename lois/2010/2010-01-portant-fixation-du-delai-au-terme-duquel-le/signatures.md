@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 08 janvier 2010' Par le Président de la RéPublique' Chef de l'Etat, Chef du Gouvernement, Le Ministre d'Etat Chargé de la Prospective, du Développement' àe I'Evaluation des Politiques Publiques et de la Coordination de I'Action Gouvernementale, k'ry LOt N'2010-0{ DU 08 JANVIER 2010 DrBoni YAYI Pascal lrénée KOUPAKI Le Ministre Chargé des Relations avec les lnstitutions, AMPLIATIoNS:PR6AN4CS2cC2cES2HAAC2|\,ECPDEPPCAG4MCRI4AUTRESI,INISTERES2SSGG4 "*":""ôëËAtrèblôéiô-ôcoor s eN--DÀN-bic a ccor,,ra-occsr-tNsAE 3 BcP-csM-lcAA 3 UAC- ENAir - FADESP 3- Y UNIPAR. FDSP 2 JO 1..
