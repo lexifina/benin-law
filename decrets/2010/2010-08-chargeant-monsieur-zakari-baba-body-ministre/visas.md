@@ -1,0 +1,5 @@
+# Visas
+
+REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT, vu la Loi n. 90-032 du 11 Décembre 1990 portant constitution de la République du Bénin ; VU la Proclamation le 29 mars 2006 par la Cour Constitutionnelle des résultats dèfinitifs de l'élection présidentielle du '19 Mars 2006 ;
+VU Ie Dêcret n' 2009-260 du 12 Juin 2009 portant composition du Gouvernement ;
+vu le Décret n " 201 0- 003 du 08 Janvier 2010 chargeant ît4onsieur Pascal lrénée Kou PAKI, Ministre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la coordinatjon de l'Action Gouvernementale de l'intêrim du Président de la République pour compter 08 Janvier 2010 DECRETE Article'1,: Pendant la période allant du l0 au l5 janvicr 2010, li/onsieur Zakari BABA BODY, Ministre Chargé des Relations avec les lnstitutions est chargê de l'intérim de Madame Mamatou MEBA Bl0 DJOSSOU, Itiliniste de la Famille et de la Solidarité Nationale.
