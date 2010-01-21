@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 21 j anvier 2 010 Par le Président de la RéPublique, Chef de I'Etat, Chef du Gouvernement, Le Ministre de l'Economie Pascal lrénée KOUPAKI Le Ministre de la Santé, et es Finances, Le Ministre d'Etat Chargé de la Prospective, du Développement' de l'Evaluation des Politiques Publiques et de la Coordination de I'Action Gouvernementale, W lssifou TAKPARA AMPLTATIoNS:PR6AN4CS2cC2CEs}HAAC2I4ECPDEPPCAG4MEF4MS4AUTRES ü-nrrsrrnes zz's'oè + ôca-ôF-ôcrtrr-ôcrcp-oclD-DGDDI 6 BN-DAN-DLC 3 DCoMB-DGCST-INSAE 6 eôÈ-ôsM-rcAA 3 uAC-ENAM-FADESP 3-uNlPAR-FDSP 2 Jo 1 6, , Article 2 : Le présent décret sera publié au journal officiel' Dr BoniYAY| fi,«**V" -+- ldriss L. DAOUDA
