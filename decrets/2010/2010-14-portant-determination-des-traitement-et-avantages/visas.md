@@ -1,0 +1,3 @@
+# Visas
+
+REPUBLIOUE DU BENIN PRESIDENCE DE LA REPUBLIQUE DECRET N'2010-Ol4 DU 2t JANVIER 20lO portant détermination des traitement et avantages du Médiateur de la République LE PRESIDENÎ DE LA REPUBLIQUE, CHEF DE L'ETAT, GHEF DU GOUVERNEMENT, DEGRETE:
