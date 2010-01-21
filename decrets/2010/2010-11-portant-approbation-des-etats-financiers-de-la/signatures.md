@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le zr j anvier 2010 Par le Président de la RéPublique' Chef de I'Etat, Chef du Gouvernement, Pascal I nee KOUPAKI Le Ministre de l'Economie Le Ministre de la Santé' et de Finances, Le tvlinistre d'Etat Chargé de la Prospective' du Développement' -àe I'Evaluation des polltlques Publiques et de la Coordination de I'Action Gouvernementale, \-,,\À-l ldriss L. DAOUDA AMPLIATIoNS:PR6AN4CS2cC2cES2HpêC2]/ECPDEPPCAG4MEF4MS4AUTRES ffiffiffi,,.Sèè + ôCE.éi-ôdùUôCrcP-OGID'DGDD] 6 BN-DAN-DLC 3 DCOMB'DGCST-INSAE 6 ËëË-êsî-rcen suAC-ENAM-FADESP 3-uNIPAR-FDSP 2 Jo 1 Dr Boni YAYI Gry, o,#,7o*ro*o Â/
