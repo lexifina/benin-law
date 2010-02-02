@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 02 février 20 , Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Ministre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernementale, PJI(;;~' Pascal Irénée KOUPAKI Le Le Ministre de l'Energie et de l'Eau, Le Ministre de l'Economie e d Finances, AMPLIATIONS: -PR 06- AN 04 -CS 02 -HMC 02 HCJ 02 CES 02 MECPOEPP-CAG 4 MEF 4 MEE 4 AUTRES MINISTERES 27 - CC 02 -CAB 02 SGG 02 -ORH 02 - ORFM 02 -OPJEJ 02 - DLCS 02 - OGB 02 -CF 02 -OGTCP 02 - DGML 02 - IGF 02 -OGIO 02 - UAC 02 - UNIPAR 02 JO 01
