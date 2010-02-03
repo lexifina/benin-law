@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 03 février 2010, Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, // DrBoni YAYI Le Ministre d'Etat Chargé de la Prospective, du Développement, de I'Evaluation des Politiques Publiques et de la Coordination de I'Action Gouvernementale, PascaI lrénée KOUPAKI Le lVlinistre de Santé, lss i T UAC 02 _ UNIPAR 02 JO 01 Le Ministre de I'Economie es Finances, ldriss L. DAOUDA AMPLIATIoNS:-PR06-AN04-cS02_HAAo02HcJ02cES02MECPDEPP-CAG4MEF4MEE4AUTRESMINISTERES2T_ ÊËfiË*AB 02 s'Gê îi -ôài oz - oirü'o-z -opLei oz- or-cs 02 - DGB 02 -cF 02 -DGrcP 02 -DGML 02 - IGF 02 -DGID 02 - i2 4'l
