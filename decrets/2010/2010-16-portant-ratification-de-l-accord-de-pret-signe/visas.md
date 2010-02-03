@@ -1,0 +1,7 @@
+# Visas
+
+REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE DECRET N'2010.016 DU 03 FEVRIER 201O Portant ratification de l'accord de prêt signé entre la République du Bénin et le Fonds d'Abu Dhabi pour le Développement dans le cadre du financement partiel du projet de la route N'dali-Nikki- Chicandou-frontière du Nigéria.
+LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT, Vu le loi n" 90-032 du 11 décembre 1990 portant Constitution de la République du Bénin.
+Vu la loi n' 2010-06 du 29 janvier 2010 portant autorisation de ratification de l'accord de prêt signé entre la République du Bénin et de Fonds d'Abu Dhabi pour le Développement dans le cadre du financement partiel du projet de la route N'dali-Nikki-Chicandou- frontière du Nigéria.
+Vu la proclamation le 29 mars 2006 par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du 19 mars 2006.
+Vu le décret n'2009-260 du 12 juin 2009 portant composition du Gouvernement. DECRETE Article 1e' : Est ratifié l'accord de prêt d'un montant de trente six millions sept cent trente mille (36 730 000) Emirates Dirhams équivalant à dix millions (10 000 000) de dollars des Etats-Unis soit cinq milliards (5 000 000 000) de francs CFA environ signé le 27 juillet 2009 à Abu Dhabi (Emirates Arabes Unis), entre la République du Bénin et le Fonds d'Abu Dhabi pour le Développement dans le cadre du financement partiel du projet de la route N'dali-Nikki-Chicandou-Frontière du Nigéria et dont le texte se trouve ci-joint.
