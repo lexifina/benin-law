@@ -1,0 +1,5 @@
+# Signatures
+
+Fait à Cotonou, le 12 mars 20 (]- Le Ministre de la Santé, lssifou KPARA.
+Le Minist éfo rme Ad min istrati ln itutionnelle, Dr. BoniYAY!.- Le Ministre d'Etat Chargé de la Prospective, du Développement, de I'Evaluation des Politiques Publiques et de la Coordination de I'Action Gouvernementale, 2,n L istre de l'Economie Finances, ldris L. DAOUDA UNIPAR.FDSP 2 JO 1 I I AHANHANZO AMPLIATIoNS:PR6AN4cS2cc2HcJlcES2t.llÂc2i/ls4AUTRESM|NISTERES29sGG4DGMB-DCF. ôËiÈiî6Ë-=Driràr- i''dru-oÀù-oLc-à - êôôNe-occr-rNsAE 3 BcP-csM-rcAA 3 UAC-ENAI\I-FADESP 3 ENEAM 1 lo Pascal lrénée KOUPAKI 4l Secrétaire Particulier Directeur de CabinevDirecteur Ad.ioint de Cabinet lnsoecteur Général du Ministère Cellule de Communication CT CT CT CT Attaché de Cabinet Secrétaire Général Assistant SGM Secrétaire Gênéral Adioint DRFM DRH DPP DNSP DNEH DSME DHAB DPMED DFRS OPSIO DIEM Organrsmes sous tutelles Organes consultatifs nationaux DDS DDS DDS ZS ZS ETE EE \ \ / ) Nfl ) MINISTRE CT Assistant du Ministre =IzsT.sT.sTzs l-,* E.
+f""s l DDs -l a(
