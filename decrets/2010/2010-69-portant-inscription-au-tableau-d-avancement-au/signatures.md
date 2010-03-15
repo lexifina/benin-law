@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le t s mars 2o1o Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Ministre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernementale, Pascal lrénée KOUPAKI Le Ministre d'Etat Chargé de la Défense Nati nale, ) --c --''----- a lssifou OGUIN'DOURO LeM istre de l'Economie es Finances, d I I AMPLIATIONS:- PR 6 -CAB-MIL 6-AN 2- CC2-CS 2 HCI 2-CES 2- HAAC 2 MECPDEPPCAG 4 MDN 4 MEF 4 AUTRES MINISTERES 27 SGG 4 SPD2-DEP-INSAE 3 DSIA 2 OGBM-DCF-OGTCP-DSDV-CF 8. ONEP-GCONE.DGCST}UAC-ENAM- FASJEP 3- UNIPAR-FDSP 2 INTERESSES 38 -DOPA 1.JO 1.êJC 4, ryt Dr BoniYAY| Pu*,rc { ldriss L. DAOUDA
