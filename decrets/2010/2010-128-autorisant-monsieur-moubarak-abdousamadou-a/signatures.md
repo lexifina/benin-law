@@ -1,0 +1,3 @@
+# Signatures
+
+Fait a Cotonou, le 28 avril Par le Président de la RéPublique' Chef de I'Etat, Chef du Gouvernement, Le Ministre des Affaires Etrangères' de l'lntégration Africaine, de la FrancoPhonie et des Béninois de l'Extérieur, LtL Jeanane EHOUZOU Le Garde des Sceaux' Ministre de la Justice, de la Législation et des Droits de l'Homme, Porte- parole du Gouvernement, *^@s,.,.^.",, il"'oâ!^î."8ÂR:^i#mz;,ïiÉ"Ëçi "t1J:"âëî""i3ï,'"",âî,"î'-Ji'":Bi"', $5'§5-i'"â'ii"'§^?'' iëË i àëàïs-li iéÀ à ùÂôiHerrr-reôesP 3 UNTPAR-FDSP 02 TNTERRESE 1 Jo 1 I l ,{ Dr BoniYAYI.- Le Ministre d'Etat Chargé de la Prospective, du Développement' -àu i;euàrr"tion des eàitiques Publiques et de la coordination de I'Action Gouvernementale, n llo""lrQ^ Pascal lrénée KOUPAKI Victor Prudent TOPANOU.-
