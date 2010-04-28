@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le zB av i1 2010 Par le Président de la RéPublique, Chef de I'Etat, Chef du Gouvernement, Dr Boni YAYI Le tt/inistre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernementa le, ?*W Le ttlinistre de I'Economie et des Finances, Le lt/linistre de l'Agriculture, de l'Elevage et de la Pêche, Gréq oire AKOFODJI Le Ministre de la Réforme Administrative ution nelle, sephA ANHANZO u^(, 4.MEF4* MRAI 4 N'AEP 4 AUTRES DAN 1 - DLC 1 . GCONB 1 _ DGCST 1.
+AMPLIATIONS : PR 6 - AN 4 - CS 2 - CC 2 - CES 2' IIAAC 2 - HCJ 2 - À,ECPDEPP-CAG ünttsreaes zo- scc 4- DGBtut i - DcF 1 - DGTCP 1 - DGID 1 - DGDDI 1- BN 1- INSAE 1- BCPI- CSM 1- IGAAl - UAC 1 - UNIPAR l- ENALI 1 - FADESP 1 JO 1-/Ln,/ tl Pascal lrénée KOUPAKI ldriss L. DAOUDA I

@@ -1,0 +1,7 @@
+# Visas
+
+REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIOUE DECRET N'2010-153 DU 28 AVRIL 2010 portant création, attributions, organisation et fonctionnement du Laboratoire Central de Contrôle de la Sécurité Sanitaire des Aliments.
+LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, GHEF DU GOUVERNEMENT, Vu la loi n"90-032 du'1 1 décembre 1990 portantConstitution de la République du Bénin , Vu la loi n" 94-009 du 28 juillet 1994 portant création, organisation et fonctionnement des offices à caractères social, culturel et scientifique ; Vu la proclamation le 29 mars 2006 par la Cour Constitutionnelle des résultats de l'élection présidentielle du 19 mars 2006 ;
+Vu le décret n'2009-260 du Gouvernement ;
+Vu le décret n"2006-268 du 14 juin 2006 fixant la structure type des l\Iinistères Vu le décret n"2006-582 du 2 novembre 2006 portant attributions, organisation et fonctionnement du tvlinistère de l'Agriculture, de l'Elevage et de la Pêche ; Sur proposition du Ministre de l'Agriculture, de l'Elevage et de la Pêche, Le Conseil des [\4inistres entendu en sa séance du 20 janvier 2010 DEGRETE CHAPITRE I : DE LA CREATION , DE L'OBJET, DU SIEGE SOCIAL ET DE LA DUREE Article 1e': ll est créé en République du Bénin, un établissement public à caractère scientifique dénommé "Laboratoire Central de Contrôle de la Sécurité Sanitaire des Aliments (LCSSA)" régi par les dispositions de la loi n' 94-009 du 28 juillet 1994 portant création, organisation et fonctionnement des offices à caractères social, culturel et scientifique.
+/t k 12 juin 2009 portant composition du
