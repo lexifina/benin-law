@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 06 nai 2010 Par le Président de la RéPublique, Chef de l'Etat, Chef du Gouvernement, Le Ministre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernementale, ?,,,ry Le Ministre de l'Economie e Finances, Le Ministre de l'lndustrie, Le Ministre la Foncti du Travail et de ublique tdnss L. DAOUDA Le Ministre m erce, h, Christi VI I Dr. Boni YAYI Pascal lrénée KOUPAKI Roqer DOVONOU le & / Christophe Kint AGUIAR Le Ministre de l'Environnement et de la Protection de la Nature, Justin Sossou ADANMAYI AMPLIATIoNS:PR6;AN4;cS2-CC2.cES2.HAAC2-HcJ2-MECPDEPP-CAG4.MEF4.|\4TFP4.MEPN4.Ml4 ïîdliffi uinirtires zi- scca- ôceiit I -ocr 1- DGTCp 1- DctD 1- DGDot 1- BN 1- DAN 1- DLC 1 :GCONB r-ôccsir-INSAE1-eCpt-CSt, 1-CPl 1- |GAA 1- UAC 1 - UNIPAR 1- ENAM 1 - FADESP 1- JO 1- Sociétè Béninoise de Comme.ce lntercontinentat (SOBECIC) SARL 1.
+q.
