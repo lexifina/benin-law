@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le O6 mai 2010 Par le Président de la RéPublique, Chef de l'Etat, Chef du Gouvernement, Dr. Boni YAYI Le Ministre d'Etat Chargé de la Prospective, du Développement, de I'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernementale, Le Ministre de I'lndustrie, ir td n L. DAOUDA Le Minis SAVI merce, Le Ministre du Travail et de la Fonction Publique, t I c Le Ministre de l'Environnement et de la Protection de la Nature, J ustin Sossou ADANMAYI AUEI!ÀI]9X§:PR6;AN4icS2-CC2-CES2-HAAC2-HCJ2-MECPoEPP-CAG4-MEF4-MTFP4-MEPN4-Ml4-MC ilïiGllliEteres 24 - SGG 4 - DGBM 1-DcF 1- DGTCP 1- DGlo 1 - DGOOI 1-BN 1-DAN 1-oLC 1 ;GcONB 1 - DGCSÏ 1- rtrsli r - gcpr- cstr, 1- cpt 1-tcAA1-uAc1-uNtpARl-ENAM1-FADESPI-Jo'1 - société Béninoise de commerce lnter- Continental (SOBECIC) SARL 1.
+î ristin tlw Pascal lrénée KOUPAKI Roqer DOVONOU Christophe Kint AGUIAR a
