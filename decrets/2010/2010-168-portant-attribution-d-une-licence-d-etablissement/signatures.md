@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 06 mai 2010 Par le Président de la RéPublique, Chef de l'Etat, Chef du Gouvernement, Boni YAYI Le Ministre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de I'Action Gouvernementale, Pascal lrénée KOUPAKI Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, Porte-parole du Gouvernement, Le Ministre de l'Economie et des Finances Victo r Prudent TOPANOU ldriss L. DAOUDA Le Ministre Délégué auprès du Président de la République Chargé de la Communication et des Technologies de I'lnformation et de la Communication, Désiré ADAD ^UPt!A[.g!§:
+PR6 AN4 CS2;CES2HÀAC2 MECPDEPPCAG 4 MEF4GSn JLOH-PPG4 MDCCTIC/PR 4 AUTRES MINISTERES 26 SGG 4 DGB-DCF.DGTCP-DGID-DGODI 5 BN.OAN-DLC 3 GCONB-OGCST-INSAE 3 UAC.ENAM-FADESP 3 UNIPAR-FDSP 2 ETISATAT BENIN SA2 JO 1, / ÿ P,M-tr,6 -Y- û é?
