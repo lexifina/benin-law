@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le o7 mai 2o1o t4 Boni YAYI Le Ministre d'Etat Chargé de la Prospective, du Développement, de I'Evaluation des Politiques Publiques et de la Coordination de I'Action Gouvernementale, Qr"W Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, Porte-Parole du Gouvernement, Victor Prude nt TOPANOU Le Ministre Délégué auprès du Président de la République Chargé de la Ôommunication et des Technologies de l'lnformation et de la Communication, ési ADA A AIE!!ÂMI§: PR6 AN4 CS2:CES2HAAC2 MECPDEPPCAG 4 MEF4 GS/MJLDH-PPG 4 MDCCTIC/PR 4 AUTRES MINISTERES 26 SGG 4 DGB-DCF-OCiCP'OCIO'OCOOI 5 BN'DAN'DLC 3 GCONB'DGCST-INSAE 3 UAC-ENAM-FADESP 3 UNIPAR-FDSP 2 SPACETEL BENIN 2 SA 2 JO 1.
+3 / Pascal lrénée KOUPAKI Le Ministre de l'Economie et des Finances I x-),^) ldriss L. DAOUDAo /
