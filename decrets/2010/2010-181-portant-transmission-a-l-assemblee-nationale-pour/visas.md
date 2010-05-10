@@ -1,0 +1,66 @@
+# Visas
+
+REPUBLIQUE DU BENIN Fdtzlté,hrtc. fftâtt PRESIDENCE DE tA REPUSI.IQUE DECRET N'2010- 181 DU 10 MAI 2010 portant transmission à l'Assembtée Nationate pour autorisation de ratification de t'Accord de prêt signé entre ta Répubtique du Bénin et [a Banque dinvestissement et de Dévetoppement de [a CEDEAO dans te cadre du financement partiel du Projet d'Aménagement et de Bitumage de [a Route Ouidah-Attada et de ta Bretette Pahou'Tori.
+LE PRESIDENT DE LÀ REPUBLIqUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT, Vu Vu Vu Vu Vu Vu Sur ta toi n. 90-032 du 11 décembre 1990 portant constitution de [a Répubtique du Bénin ;
+[a oroclamation, te 29 mars 2006, par ta cour constitutionnette des résuttats déiinitlfs de t'étection présidentiette du 19 mars 2006 ;
+tedécretn.T009.260dul2juin2oogPortantcompositiondu Gouvernement;
+te décret n. 2006-268 du 14 juin 2006 fixant les structures-types des Ministères ;
+t,Accord de prêt signé te 07 mai 2010, par échange de correspondances, à"Ë tu- nSpubtiq-ue du Bénin et ta Banque d,lnvestissement de ôéu"topp"r"nt de ta CEDEAO dans [e cadre du financement partiet du Projet aùÀénàg"runt et de Bitumage de ta Route ouidah-Attada et de [a Bretette Pahou-Tori te décret n'2010-180 du 09 mai 20'10 chargeant Monsieur lssifou KOGUI ù;oôuio, Ministre d,Etat Chargé de ta Défense nationate de ['intérim du Président de ta Répubtique pour compter du 09 mai 2010 ;
+proposition du Ministre de ['Economie et des Finances ;
+Conseit des Ministres entendu en sa séance du 10 mai 2010 ;
+Le / L'Accord de prêt signé par échange de correspondances avec [a. Banque d,lnvestissement et de DSvetoppement àe ta CEDEAO (BIDC), sera présenté à ùAssembtée Nationate pour iutorisation de ratification, par [e Ministre de [,Economie et des Finances, te Ministre Détégué auprès du Président de ta ilüùil;, cnarge des Transports .Terrestres, des Transports Aériens et des iiirurr'puutics e[ te Minirtre thargé des Retations avec tes lnstitutions qui sont lnàlviduettement ou conjointement chargés d'en exposer les motifs et d'en soutenir [a discussion.
+DECRETE:
+EXPOSE DES MOTIFS Monsieur le Président de t'Assemblée Nationale, Mesdames et Messieurs les DéPutés, PROJET | - HlsToRl UE DU Dans ta perspective de ta mise en ptace progressive d'un réseau routier pratiqriJen rrJariet"n.tavement de vastes zones dè grandes productions et des tocatités rurates et te ,.eniàr.ement de ta coopération sous-régionate, ptusieurs projets routiers ont été identifiés' Ainsi,teProjetd'Aménagementetde.Bitu.magedetaRouteOuidah-Attadaet ae ta eràtite pahôu-Tori "ntiË aunr te cadre de ta potitique de renforcem.ent et àLreH"iàii"" des infrastructures existantes conformément aux orientations itriiàgtqùi a" oévetoppemeni(osD) définies par te Gouvernement du Bénin' Eneffet,taRouteNationaten.l(RN1),ouidah-AttadaettabretellePahou.
+Tori qui constitue rn" sectiàn de ta Route Nationate n'30 (RN 30) qu'est Pahou' Tori-Bossito_Abomeylcataii'el qri àrt raccordée au tronçon ouidah-Attada via te contournement ae f,aggtoméàtion de Tori-Bossito, constituent un coutoir naturet de passage d,usagers ,*ii"À- a" nationatités diverses. Mais ta nature de revêtement actuet constiluà à" grtr" tatéritique timite tes votumes des trafics ;;iil;;i-J iniernationat qul porirui"nt y transiter surtout au cours de [a saison ptuvieuse.
+C'est pour pattier à cette difficutté que procéder à t'aménagement de ces deux tronçons' [e Gouvernement a décidé de II - PRESE NTATION DU PROJET À. OBJECT tFs DU PROJET:
+Le présent Projet routier a pour objectifs de contribuer :
+- au décongestionnement des votumes du trafic actuet en provenance du Centre et du Nord du Bénin ainsi que des pays de t'Hintertand et à destination de Cotonou, du Port de Cotonou et des aggtomérations et Etats situés à ['Est du Bénin;
+- à ['accroissement des échanges commerciaux nationaux et interrégionaux des produits agricotes et pastoraux ;
+- à ta facititation du déplacement des personnes et des biens afin de réduire le niveau de pauvreté dans [a région d'intervention du Projet;
+- à ta réduction des temps de parcours par [e raccourcissement d'environ 50 km de [a [iaison Ouidah-Godomey-Atlada ;
+- à ta réduction des coûts d'entretien de ta route et des véhicutes.
+B . COMPOSANTES DU PROJET Le Projet d,Aménagement et de Bitumage de [a Route ouidah-Attada avec [a Bretelte Pahou-Tori s'artiiute autour des six (06) composantes ci-après: Composante 3 : Mesures environnementales et sociales Ce votet concerne les actions d'ordre sociat et environnemental visant à atténuer les impacts négatifs potentiel.s du Projet et à renforcer ses effets positifs à travers un Ptan de Gestion Environnementate et Sociale (PGES).
+q )4 Composante 1 : Etudes Au titre de cette composante, it s'agit de ta réatisation des études économiques, techniques détaittées et d'impact environnemental et social. ces études ont été déjà réatisées par te cabinet ETRICO sur financement du budget nationat.
+Composante 2: Travaux Les activités prévues au titre de cette composante concernent :
+1. t'instattation des chantiers et ta réalisation des travaux préparatoires ;
+2. les travaux prétiminaires et [a préparation du terrain ;
+3. les terrassements, [a réatisation des couches de chaussée, des couches de revêtements et des ouvrages d'assainissement ;
+4. te déptacement des réseaux et [a signatisation.
+l Composante 4 : Contrôle et surveillance des travaux Les prestations de contrôte et de surveitlance comprendront:
+i) te suivi technique administratif et financier de ['exécution des travaux de [a route et des ouvrages d'art ;
+ii) ta vérification du dossier d'exécution des travaux ;
+iii) te contrôte de ta quatité des matériaux et des quantités mises en æuvre et iv) t'étaboration des rapports mensuets d'exécution des travaux' Composante 5 : Appui institutionnel Composante 6 : Audit technique et financier cette composante prend en compte t'appui financier, matériel (togistique), en ressources humaines ainsi qu'en matériel informatique au profit de taDirection des Travaux Neufs (DTN) de la Direction Générale des Travaux Pubtics (DGTP)' Cet appui portera sur :
+- t,acquisition d,un véhicute station wagon 4x4 pour [e coordonnate]Jr et de tiois véhicutes pick-up doubte cabine dont deux (02) pour ta DTN et un (01 ) pour La Caisse Autonome d'Amortissement (CAA) dans te but de son appui au suivi des Projets ;
+- t'acquisition de matériet informatique à savoir : quatre (04) ordinateurs de tabte et un (1) portabte avec les togiciets de conception routière, de suivideProjet,desuivicomptable,dequatre(04)imprimantes,d'une photocoPieuse etc... ;
+- t,organisation des modutes de formation au profit du personnel cadre de ta Cettute d'Exécution du Projet et du Secrétariat de [a DTN' cette composante consistera en [a réatisation d'une m'ission technique et financière par uÀ consuttant qui procèdera à ta vérification des procédures de ry l Le PGES permettra [a mise en æuvre des mesures portant notamment sur : i) [a plantation d'arbres pour [a restauration des zones d'emprunt et pour [a préservation de ta ftore et l'amétioration du cadre de vie; ii) les dispositions appropriées à prendre tors de l'instattation et du fonctionnement des bases-vie pour ta prévention des risques de pottution des cours d'eau adjacents et du sot ; iii) la sensibitisation des ouvriers et des poputations riveraines sur les matadies sexue[tement transmissibtes et te Sida (MST/SIDA) pendant ta phase de réalisation des travaux et iv) te paiement des indemnités aux personnes dont les constructions ou biens ont été affectés par [e Projet.
+passation des marchés, de [a conformité de t'exécution des travaux avec [es normes préétablies dans te cahier des prescriptions techniques, des décomptes et des pièces comptabtes.
+.
+.Cette. mission ponctuetle d'une durée de quarante cinq (45) jours sera réatisée après [a réception provisoire des travaux.
+Le Maître d'ouvrage du Projet est t'Etat béninois représenté par te Ministère Détégué auprès du Président de ta Répubtique, Chargé des Transports Terrestres, des Transports Aériens et des Travaux Publics.
+La Maîtrise d'Ouvrage Détéguée et [a maîtrise d'æuvre seront assurées par [a Direction Générale des Travaux Pubtics (DGTP) à travers ta Direction des Travaux Neufs (DTN) qui sera assistée d'un bureau d'ingénieurs conseils chargé de ta surveiltance et du contrôte des travaux.
+Une Cettute d'Exécution du Projet sera créée au sein de ta DGTP/DTN et aura à charge [e suivi et [a supervision de l'exécution du Projet, avec pour missions principates, [a vérification de ta quatité des travaux, [e respect des détais et ta maîtrise des coûts.
+La durée prévisionnelte d'exécution des travaux est de vingt et un (21 ) mois dans t'hypothèse d'un démarrage simuttané de tous les lots.
+Le coût gtobal hors taxes du Projet d'Aménagement et de Bitumage de ta RouteOuidah-Atlada et de [a bretette Pahou-Tori est estimé à vingt deux milliards huit centcinquante millions (22 850 000 000) FCFA.
+l[ faut rappeter que lors des négociations, [e schéma de financement avait retenu une contribution du Gouvernement du Bénin qui s'élevait à 12,818 milliards de FCFA et un financement de l0 mittiards en provenance de ta BIDC et de ta BOAD soit 5 miltiards de FCFA par institution.
+Cette contribution béninoise a été réduite à 2,05 mittiards de FCFA à ta suite de [a table ronde des baitteurs de fonds tenue à Cotonou [e 25 mars 2010. Les annonces qui ont été faites à l'occasion, ont abouti à un a[lotissement de ta réatisation du Projet.
+Ainsi, [a répartition par baitteur de fonds des différents lots se présente comme suit :
+j III- GESTION DU PROJET IV - COUT ET SOURCES DE FINANCEMENT Lot 1 : Ouidah-Tori
+- BIDC, Bénin.
+!9!_! : Tori-Atlada
+- Fonds d'Abu Dhabi Lot 3 : Tori-Pahou présente comme suit :
+o BIDC environ;
+o BOAD . Fonds d'Abu Dhabi FCFA environ ;
+7,14 mitlions d'UC soit cinq milliards de FCFA 5 milliards de FCFA ;
+: 10 mitlions d'UC soit 4,75 milliards de
+- BOAD, Fonds Koweitien.
+L,a[totissement permet d'exécuter les travaux par tot de façon indépendante, dès tors que les ressources y afférentes sont mobitisées' Ainsi,teschémadefinancementdéfinitifduProjetbouctépourunmontanttotal ;; ;i"g, aeui miftiaras huit cent cinquante mitlions (22 850 000 000) FCFA se . Fonds Koweitien : 6,05 mittiards de FCFA environ ;
+o Bénin : 2,05 milliards de FCFA' Les caractéristiques du prêt de la BIDC sont les suivantes:
+Montant environ;
+: 7,14 mittions d'UC soit cinq mittiards de FCFA . Durée : 30 ans dont 09 ans de différé ;
+. Taux d'intérêt : 3 % l'an sur te montant du prêt décaissé ;
+o Commission de dossier: 1% ftat sur [e montant maximum du prêt payabte à ta signature de t'Accord de Prêt ;
+. Périodicité de remboursement : semestrialité ;
+o Etément don :35,34/o' ET POUR LE BENIN V- INTER Le Projet d'Aménagement et de Bitumage de ta Route Ouidah-Attada avec [a BretetÈ Pahou-Tori particifera au dévetoppement économique-et social du.pays srâce à une meitteure ,ouiiiæ a"t agents'économiques et au désenctavement des [ocatités couvertes par tedit Projet' Aussi, l'existence d'une infrastructure de cette envergure au Bénin contribuera à amétiorer [e niveau de service et de sécurité du tronçon de route concerné et des poputations riveraines.
+Par ailleurs, te Projet favorisera t'accès des poputations desdites tocalités aux infrastructures sociocommunautaires (écotes, centres de santé, marchés) et amétiorera t'écoutement des produits agricotes et forestiers, ce qui constitue [e vecteur d'un dévetoppement des économiei tocates et de ta tutte contre [a pauvreté' L'entrée en vigueur de l'Accord de prêt est subordonnée à l'accomptissement des formatités d'autorisaiion de ratification par t'Assembtée Nationale, de ratification par [e chef de t'Etat, de pubtication au Journa[ officiet et d'obtention de ['Avis juridique de [a Cour Suprême.
+Eu égard à ce qui précède et afin d'accétérer les formatités d'entrée en vigueur au pret, -À'orr .ronr t''honneur, Monsieur te Président de t'Assembtée Nationate, Ààrà..ér et Messieurs tes Députés, de soumettre à t'appréciation de votre Auguste ÀrtlÀUte", te présent Accord de prêt en vue d'obtenir t'autorisation de sa ratification' Fait à Cotonou, te 10 mai 2010 Pour te Président de ta Répubtique, Chef de ['Etat, Chef du Gouverne ent absent, [e Ministre d'Etat Chargé [a Défense Nationate Chargé de t'intérim, ) lssifou KOGUIN'DOURo Le Ministre d'Etat Chargé de [a Prospective, du ation des Potitiques Développement, de t' Evatu Pubtiques et de [a Coordi Gouvernem tale, )' Le Ministre de ['Economie lssifou KOGUI N'DOURO Ministre intérimaire Le Ministre Détégué auPrès du Président de ta Répubtique, Chargé des Transports Terrestres, des Ïransports Aériens et es Travaux Pubtics, l" U t es Finances, ! \^l) ldriss L. DAOUDA.- Nicaise Kotc N.- AmDliations:PR6 AN85 cc2 cS2 cEs2 HAAC2 MECDN4 MEF4 MCTTTATP4 J0 1.
+ami FAG zr-- tion de ['Action Z- REPUBLIQUE DU BENIN Frdl€rnilé- Ju5T ice-Trovoil AS5EMBLEE NÀTIONALE Loi n' 2010- Portant autorisation de ratification de t'Accord de prêt signé entre [a Répubtique du Bénin et [a Banque d'lnvestissement et de Dévetoppement de ta CEDEAO dans [e cadre du financement oartiet du'Projet d'Aménagement et de B'itumage de [a route ôuidah-Attada et de ta Bretette Pahou-Tori' L'Assemblée Nationale a détibéré et adopté, en sa séance d
