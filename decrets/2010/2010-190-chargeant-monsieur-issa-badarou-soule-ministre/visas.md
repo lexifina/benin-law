@@ -1,0 +1,6 @@
+# Visas
+
+REPUBLIQUE DU BENIN -------&----- PHÈSIiJÈhUÊ IJÈ LA RËPÛiJL'ùiJË -------&------ Chargeant Monsieur lssa BADAROU SOULE, Ministre Délé8ué auprès du Président de la République, Chargé de l'Economie Maritime, des Transports Maritimes et lnfrastructures Portuaires de l'intérim de Monsieur victor P. ToPANOU, Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, Porte-parole du Gouvernement pour compter du 03 mai au 14 mai 2010.
+I.E PRESIDENT DE tA R€PUBtIQUE, CHEF DE I,ETAT, VU la loi n" O9O-032 du 11 décembre 1990 portant Constitution de la République du Bénin;
+VU la proclamation le 29 mars 2006 par la Cour Ccnstitutionnelle des résultats definitifs de l'élection présidentielle du 19 mars 2006;
+VU le décret n" 2009-260 du 12 juin 2009 portant composition du Gouvernement ; DECRETE A.4jdg-1"': Pour compter du 03 mai au 14 mai 2010, Monsieur lssa BADAR9U 5OULE, Ministre Délégué auprès du Président de la République, chargé de l'Economie Maritime, des Transports Maritimes et lnfrastructures Portuaires est chargé de l'intérim de Monsieur Victor P, TOPANOU, Garde des S.eaux. MinistrP de la Justice. de la Législation et des Droits de l'Homme. Porteparole du Gouvernement, pendant son absence.
