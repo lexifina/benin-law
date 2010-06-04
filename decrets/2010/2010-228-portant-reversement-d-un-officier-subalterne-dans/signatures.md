@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 04 juin 2o1o Par le Président de la RéPublique, Chef de I'Etat, Chef du Gouvernement, Dr Boni YAYI Le Ministre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de I'Action Gouvernementale, de la Défense N tionale, Le Mi d Finances, / ît«-w n'- Pascal lrénée KOUPAKI Le Ministre d'Etat Chargé lssifou KOGUI N'DOURO istre de l'Economie e-^^^tD ldriss. L. DAOUDA.- AMPLIATIONS : PR 6 AN 4 CC 2 CS 2 HAAC 2 CES 2 HCJ 2 MECPDEPPCAG 4 MECON 4 MEF 4 AUTRES MINISTERES â3ëë7Eêrrr-OCF- DGTCp- DGID- DGOOI 5 gN-DAN-DLC 3 cCONB-DGCST-INSAE-IGE 4 BCP-CSM-IGAA 3 uAc' ENAM-FADESP 3 UNIPAR.FDSP 2INTERESSE 01 DGPN 1 JO 1- )
