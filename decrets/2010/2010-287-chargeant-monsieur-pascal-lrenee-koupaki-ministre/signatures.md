@@ -1,0 +1,5 @@
+# Signatures
+
+Fait à Cotonou, le 11 j uin Le Président de la République, Chef de I'Etat, Chef du Gouvernement, AMPLIATIONS:PR 10-AN6- CC 2 -CES2-HAAC2- IVDN 2-MECPDEPPCAG4-SGG4 -AUTRESIVINISTRES 30 LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT.
+DIICITEI'I:
+Boni YAYI

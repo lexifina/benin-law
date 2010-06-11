@@ -1,0 +1,5 @@
+# Visas
+
+REPUBLIQUE DU BENIN PRESDIDENCE DE LA REPUBLIQUE DECRETN" 2010-287 DU 11 JUrN 2010 Chargeant Monsieur Pascal lrénée KOUPAKI, Ministre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernementale de l'intérim de Monsieur lssifou KOGUI N'DOURO, Ministre d'Etat Chargé de la Défense Nationale pour compter du mardi 08 juin 2010.
+Vu la loi n' 90-032 du 11 décembre 1990 portant Constitution de la République du Bénin ; Vu Ia proclamation le 29 mars 2006 par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du 19 mars 2006 ;
+Vu le Décret n" 2009 - 260 du '12 Juin 2009 portant composition du Gouvernement. Article 1u,: Pour compter du mardi 08 juin 2010, Monsieur Pascal lrénée KOUPAKI, Ministre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernementale est chargé de l'intérim de lMonsieur lssifou KOGUI N'DOURO, tr/inistre d'Etat Chargé de la Défense Nationale, pendant son absence.
