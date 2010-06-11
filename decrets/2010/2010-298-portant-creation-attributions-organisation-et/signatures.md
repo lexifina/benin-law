@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 11 juin 2o1o Par Le Président de la République, Chef de I'Etat, Chef du Gouvernement, Dr Boni YAYI Le Nl'linistre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouverne menta le, Le Ministre de l'Economie et des Finances, Le tVlinistre des Enseignements lVlaternel et Primaire, .r-^r^(, Le lVlinistre de la Réfor inistrative et lnstitu e ephAH NHANZO TIoNs : PR 6 AN 4 cs 2 Cc 2 CES 2 HAAC 2 HCJ 2 MECPDEPPCAG 4 IiIEMP 4 MEF 4 AUTRES MINISTERES 26 SGG 4 OAN.DLC 3 GCONB.DGCST'INSAE'IGE 4 BCP-CSM-IGAA 3 UAC'ENAIVI-FADESP 3 I ( DGBTVI-DCF-DGTCP-DGtq-DGDOI 5 BN- UNIPAR-FOSP 2 JO1(4,' Pascal lrénée KOUPAKI.- Félicien Chabi ZACHARIE ldriss L. DAOUDA / Ç
