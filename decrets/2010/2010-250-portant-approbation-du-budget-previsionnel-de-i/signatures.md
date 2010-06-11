@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 11 j uin 2010 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Ministre d'Etat chargé de la Prospective, du Développement, de I'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernementale, 2,n'lêK n Le Ministre de l'Economie Le Ministre d merce, d Finances, ldriss L. DAOUDA ch INSAVI AMPLIATIONS :PR 6 ; AN 4; CS 2i CC 2; CES 2: HAAC 2: HCJ 2;MECPDEPP-CAG 2;MC 4 i MEF 4; AUTRES MINISTERES2T ; SGG 4 ; DGAE - DGCPE 2 - PAC 2 ; DGBM-DCF-DGTCP-DGID-OGDDI 5;BN-DAN- DLC-lcE 4: GCOMB-DGCST-INSAE-IGE 4; SCP-CSM-IGAÂ 3; UAC-ENAM-FADESP 3; UNIPAR- FDSP2 JO 1, r/ Dr. Boni YAYI Pascal lréné KOUPAKI (
