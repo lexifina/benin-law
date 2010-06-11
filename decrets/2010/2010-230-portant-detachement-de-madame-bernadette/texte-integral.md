@@ -1,0 +1,12 @@
+# Décret n° 2010-230 du 11 juin 2010 Portant détachement de Madame Bernadette HOUNDEKANDJl-CODJOVI à titre de régularisation
+
+REPUBLIQUE OU BENIN PRESIDËNëË.dÈ LA REPUBLIOUE Vu Vu Vu Vu Vu Portant détachement de Madame Bernadette HOU N DEKAN DJ l-CODJOVI à titre de régularisation.
+LE PREAIDENT DE LA REPUBLIOUE' C}IEF DE L'ETAT, CHEF DU GOUVERNEMENT' la loi n'90-032 du 11 décembre 1990 portant Constitution de la République du Bénin ;
+ta loi n.2001-35 du 21 février 2003 portant statut de la magistrature ; laproclamationle2gmars2006parlaCourConstitutionnelledes rÀ"rftrtt définitifs de l'élection présidentielle du 19 mars 2006;
+le décret n'2009 - 260 du 12 juin 2009 portant composition du Gouvernement;
+ledécretn"2OOT4gldu02novembre200Tportantattributions, oiganisation et fonctionnement du Ministère de la Justice' de la Législation et des Droits de l'Homme ;
+DEC RETE:
+SurrapportduGardedesSceaux,MinistredelaJustice,delaLégislationet desoroitsdel'Homme,Porte-ParoleduGouvernement,aprèsavis ionforme du Conseil Supérieur de la Magistrature en sa session 21 janvier 2010 ;
+Le Conseil des Ministres entendu en sa séance du 26 mai 2010' Article 1e': Conformément aux dispositions de l'articleTT de la loi n'2001-35 du21février2003portantstatutdelamagistrature'MadameBernadette ibüf..rOÈrnr.rDJl-CODJôVI, Magistrat, est placée 9l_ position de Aelacnement à titre de régularisatio-n pour compter de juin 2008 po.ur animer la ôLffrfé i"" Nations-UnËs de Certification des élections dans le cadre de 4) h l'ONUCI en CÔte d'lvoire.
+--J DECRET N'20t0-230 DU lt JulN 2o',to Articte 2 : Le présent décret, qui abroge toutes dispositions contraires, prend effet pour compter de la date de prise de I'intéressée à l'ONUCI et sera publié au Journal Officiel.
+FaitàCotonou, le 11 juin 2010 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, oniYAY| Le Ministre d'Etat Chargé de la Prospective, du Développement, de I'Evaluation des Politiques Publiques et de la Coordination de I'Action Gouvernementale, antérieu res service de ?*g, Le Ministre de l'Economie et des Finances, Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, Porte-parole du Gouvernement, ldriss L. DAOUDA AUEIIÂLIQI§ : PR6 AN4 CS2 CC2 CES2 HAAC 2 HCJ 2 MJLDH-PPG 4 MEF 4 AUTRES MINISTERES 20 SGG 4 DGGI\r- DCF.DGTCP-DGIG-DGDDI 5 BN.DAN-DLCS 3 GCONB-DGCST.INSAE 3 BCP.CSI\/l-IGAA 3 UAC-ENAM.FADESP 3 UNIPAR- FDSP2 JO,I, Pascal lrénée KOUPAKI tL-t-,*- U{ Victor Prudent TOPANOU
