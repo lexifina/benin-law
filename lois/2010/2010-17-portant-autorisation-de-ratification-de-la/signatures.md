@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 16 juin '2010, Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Ministre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernementale, R~ Pascal Irénée KOUPAKI.- Le Ministre d'Etat Chargé de la .Défense N ionale, Issifou KOGUI N'DOURO Le Ministre des Affaires Etrangères, de l'Intégration Africaine, de la Francophonie et des Béninois de l'Extérieur, Le Ministre de la Culture, de l'Alphabétisation et de la Promotion, des Langues Nationales, ~c;::
+Galiou SOGLO.- AMPLIATIONS: PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 HCJ 2 MECPOEPPCAG 4MECON 4 MAEIAFBE 4 MCAPLN 4 AUTRES MINISTERES 26 SGG 4 SMTP 2 OGAE·OGCPE 2 OGBM-OCF-OGTCP-OGIO-OG0015)3N-OAN-OLC- 3 GCONB·OGCST·INSAE 3 BCP-CSM-IGAA 3 BCP-CSM·IGAA 3 UAC·ENAM-FAOESP 3 UNIPAR-FOSP 2 JO 17 [__./7
