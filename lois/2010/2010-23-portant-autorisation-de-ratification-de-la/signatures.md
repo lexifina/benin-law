@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 19 juin 2010, Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Ministre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernementale, Pascal Irénée KOUPAKI.- V UASSI AGBOKPANZO.- Le Ministre des Affaires Etrangères, de l'Intégration Africaine, de la Francophonie et des Béninois de l'Extérieur, t~ Jean-Marie EHOUZO Le Ministre du Travail et de la Fonction Publique, Le Ministre Délégué auprès du Président de la République, Chargé de l'Economie Maritime, des Transports Maritimes et Infrastructures Portuaires, .---- ,..
+AMPLIATIONS: PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 HCJ 2 MECP EPPCAG 4 MAEIAFBE 4 MTFP 4 MOCEMTMIPIPR 4 AUTRES MINISTERES 26 SGG 4 SMTP 2 OGAE·DGCPE 2 OGBM-O F-OGTCP·OGIO·OGOOI 5 BN-OAN-OLC- 3 GCONB· OGCST-INSAE 3 BCP-CSM-IGAA 3 BCP-CSM-IGAA 3 UAC·ENAM-FAOESP 3 UNIPAR·FOSP 2 JO 1. V
