@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 26 juin 2010, Par le Président de la République.
+Chef de l'Etat, Chef du Gouvernement, Dr Boni Y A Y 1 Le Ministre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernementale, Pascal Irénée KOUPAKI.- [ Le Ministre d'Etat Chargé de la Défense Nationale, Issjfou KOGUI N'DOURO Le Ministre des Affaires Etrangères, de l'Intégration Africaine, de la Francophonie et des Béninois de l'Extérieur, Jeal~:::tJ Le Ministre de l'Intérieur et de la Sécurité Publique, Martial SOUNTON.- AMPLIATIONS: PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 HCJ 2 MECPDEPPCAG 4 MAEIAFBE 4 MEPN 4 AUTRES MINISTERES 28 SGG 4 SMTP 2 DGAE-OGCPE 2 DGBM-DCF·DGTCP-DGID-DGDDI 5 BN-DAN-OLe- 3 GCONB-OGCST·INSAE 3 BCP-CSM- IGAA 3 BCP-CSM-IGAA 3 UAe-ENAM·FADESP 3 UNIPAR-FDSP 2 JO 1.
