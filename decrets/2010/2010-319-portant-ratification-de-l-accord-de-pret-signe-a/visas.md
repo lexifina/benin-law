@@ -1,0 +1,7 @@
+# Visas
+
+IV REPIDLIQUE DU BENIN DECRET NO 20IO-319 DU 29 JUIN 2OIO portant ratification de l'accord de prêt signé à Cotonou, le l2 janvier 2010, entre la République du Bénin et la Banque Ouest Africaine de Développement (BOAD), dans le cadre du financement partiel du projet de pavage de rues et d'assainissement dans la ville de Porto-Novo.
+LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOWERNEMENT, Vu la loi no 90-032 du 11 décembre1990 portant Constitution de la République du Bénin;
+la loi no 2010-24 du 18 juin 2010 portant autorisation de ratification de l'accord de prêt signé à Cotonou, le 12 janvier 2010, entre la République du Bénin et la Banque Ouest Africaine de Développement (BOAD), dans le cadre du financement partiel du proj et de pavage de rues et d'assainissement dans la ville de Porto-Novo ; la proclamation le 29 mars 2006 par la Cour Constitutionnelle des résultats déf,rnitifs de l'élection présidentielle du 19 mars 2006 ;
+le décret n' 2009-260 du 12juin 2009 portant composition du Gouvernement. Vu Vu Vu DECRETE:
+Article l'": Est ratifié I'accord de prêt, d'un montant de quatre milliards (4. 000. 000. 000) de francs CFA signé à Cotonou, le 12 janvier 2010, entre la République du Bénin et la Banque Ouest Africaine de Développement dans le cadre du financement partiel du projet de pavage de rues et d'assainissement dans la ville de Porto- Novo et dont le texte se trouve ci-joint.
