@@ -1,0 +1,3 @@
+# Visas
+
+PRESDIDENCE DE LA REPUBLIQUE Vu Vu Vu DECRET No 2010-317 DU 2e JUIN 2010 é["g.*t Monsieur Pascal lrénée KOUPAKI, lt'4inistre d'Eta' àh;;üà ;; la Prospective, du Développement, de l'Evaluation des pof iiiir.t Publiques et de la Coordination de l'Action Couu.inà**ntrle de l'intérim de Monsieur lssifou KOGUI ùoOUiO Ministre d'Etat Chargé de la Dé{ense Nationale pour compter du mardi 22 juin 2010' Articre 1.,: pour compter du mardi 22 juin2010,Monsieur pascal lrénée KouPAK|, Ministre d,Etat chargé de ta erospectiu", Jr-odu.roppement, de.l'Evaluation des Politiques Publiques et de la coordination de rn.iiàn èà*.rnementale est chargé de l'intérim de Monsieur lssifou KOGUI N'DOURO, Irlinistre diÉtuiôna,go de la Défense Nationale, pendant son absence'
