@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 29 iuin 2010 Par le Président de la RéPublique, Chef de I'Etat, Chef du gouYernement' r Boni YAYI ATIONS:PR6 AN4-CS2 CC2-CES2-HAAC2 HCJ 2 - SGG 2 - Ministères 30 JOR.B I AMPI.L NIN MEPNTél:(229)2131 5058 Fâx:(229)21 ll5081 01 BP362l Cotonou -BE DECRETN. 2010-316 DU 29 JUIN 2010 Chargeant Monsieur François NOUDEGBESSI, Ministre de l'Urbanisme, de 1'Habitat, de la Réforme Foncière et de la Lutte contre I'Erosion Côtière de l'intérim de Monsieur Justin Sossou ADANMAYI, Ministre de l'Environnement et de la Protection de la Nature pour compter du 12 au l7 Juin 2010.
