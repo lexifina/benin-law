@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 19 j ui11et 2010 Par le Président de la RéPublique, Chef de l'Etat, Chef du Gouvernement, Le Ministre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de I'Action Gouvernementale, Le Ministre de l'Economie Le lVlinistre de l'Environnement et de la Protection de la Nature, Justin Sossou ADANMAYI et,d II L(-I-LLJ- ldriss L. DAOUDA s Finances AMPLIATIONS:PR6SGG4AN4CS2CC2HCJ2CES2HAAC2I\'IEPN4IV]ECPDEAP4i'IEF4IVJLDH4MRAI À!îFE5-frlilSrrneS 25 DGBt\4-DcF-DGTcP-DGID-DGDDI 5 BN-DAN-DLC'lGE 4 GcoI/B-DGCST-INSAE-lGE 4 BCP- csM-IGAA 5 UAC-ENAM-FADESP FSA-ENEAI\4 3 UNIPAR-FDSP 2 JO 1dT / l7 Dr Boni YAYI Pascal lrénée KOUPAKI fl
