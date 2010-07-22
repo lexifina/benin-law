@@ -1,0 +1,8 @@
+# Visas
+
+REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE DECRET N' 2O1O-354 DIJ 22 JUTLLET 2O1O Chargeant Monsieur Désiré G. ADADJA, ministre délégué auprès du Président de la République, Charge de la Communication et des Technologies de l'lnformation et de la Communication de l'intérim de Monsieur lssa BADAROU-SOULE, Mlnistre Délégué auprès du Président de la Rêpublique chargê de l'Economie Maritime, des Transports Maritimes et lnfrastructures Portuaires pour compter du )eudi 22 juillet 2010.
+LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT, VU la loi n" 90-032 du 11 décembre 1990, portant Constitution de la République du Bénin ;
+VU la proclamation le 29 mars 2006 par la Cour Constitutionnelle des résultats définitifs de l'Election Présidentielle du 19 mars 2006;
+VU le Décret n' 2010-350 du 19 .juillet 2010 portant composition du Gouvernement;
+Vu le Décret n" 2010-353 du 21 juillet 2010 chargeant Monsieur Pascal lrénée KOUPAKI, Ministre d'Etat Chargé de la Prospective, du Développement, de I'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernementale de l'intérim du Président de la République pour compter du 21 juillet 20'10 ;
+DECRETE Article '!"' : Pour compter du jeudi 22 juillet 2010, Monsieur Désiré G. ADADJA, Ministre Délégué auprès du Président de la République, Chargé de la Communication et des Technologies de l'lnformation et de la Communication est chargé de I'intérim de Monsieur lssa BADAROU-SOULE, Ministre Délégué auprès du Président de la République chargé de l'Economie Maritime, des Transports Maritimes et Infrastructures Portuaires.
