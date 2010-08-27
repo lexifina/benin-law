@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 27 Aour 2o1o Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, q 31P0352847 31P0352821 31P0352747 31P0352681 31P0352640 31P0352599 3'tP0352575 31P0352513 31P0352484 31P0352468 31P0352438 31P0352423 31P0352391 Dr Boni YAYI ) Le Ministre d'Etat Chargé de la Prospective, du Développement, de I'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernementale, Qay Le Ministre de I'Environnement et de la Protection de la Nature, Justin Sossou ADANMAYI AMPLIATIONS PR 6.AN 4- CS 2 - CC 2- CES 2 HAAC 2. HCJ 2 - iIECPDEPP.CAG 4 - MEPN 4- AUTRES MINISTERES 28-SGG4. DGBÙI 1-OCF1' DGTCP 1-OGID 1-DGDDI 1- BN 1' DAN 1 . OLC 1 . GCONB 1- DGCST 1 .INSAE 1. SCPI- CSMl-|GAA1-UAC1-UNIPARl'ENAI\il'1 - FADESP 1- JO 1-.
+/ Pascal lrenée KOUPAKI
