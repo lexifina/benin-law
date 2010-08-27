@@ -1,0 +1,6 @@
+# Décret n° 2010-373 du 27 août 2010 portant création de la commission de classement compensatoire d'une portion de forêt du domaine protégé identifié par la mairie de Djougou
+
+- Source : Secrétariat général du Gouvernement du Bénin (sgg.gouv.bj), documenthèque, <https://sgg.gouv.bj/doc/decret-2010-373/download>
+- Date : 2010-08-27 (date du texte dans son intitulé (promulgation/signature) ; la date de publication au Journal officiel n’est pas donnée par la source)
+- Couche texte : fournie par l’éditeur sur un document numérisé (non relue)
+- Unités : 5 articles
