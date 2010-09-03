@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 03 septembre 2010, Par le Président de la République, Chef de l'Etat, Chef du Gouvernemenl, @ ,4/ rl 33-le Secrétaire Administratif de la Grande Chancellerie de I'Ordre National du Bénin;
+DrBoniYAYl Le Ministre d'Etat Chargé de la Prospective, du Développement, de I'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernementale, Pascal lrén KOUPAKI.- Le Ministre d'Etat Chargé de la Défense Nationa ) lssifou KOGUI N'DOURO @ Le Ministre de l'Economie, et des Finances, Le Ministre du Travail et de Fonction P q ue, ldriss L. DAOUDA.- Gérard UASSI AGBOKPANZO,- AlÿIPLIATIONS : PR6 AN4 CS2 CC2 CES2 TIAAC 2 HCJ2 MECPDEPPCAG 4 MECDN 4 MTFP4 MEF4 AUTRES MINISTERES 26 SGG4 SMTP2 DGAE.DGCPE 2 DGBM-OCF.DGTCP.DGIO.DGOOI 5 BN.DAN.DLC.3 GCONB.DGCST. (@ rNsAE 3 Bcpcsrn-rcee r scpcsÀa-rcAA 3 uAc-ENAM-FADESe s urtean-rose z lo t{,- / t
