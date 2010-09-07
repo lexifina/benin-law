@@ -1,0 +1,5 @@
+# Signatures
+
+Fait à Cotonou, le 07 sep Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, I mbr Dr YAYI DEGRET N'2OlO- 384 DU 07 sEpTEMBRE 2010 DECRETE :
+Article '1"' : Est ratifiée la Convention pour la protection des producteurs de phonogrammes contre la reproduction non autorisée de leurs phonogrammes, adoptée à Genève (Suisse), le 29 octobre 1971, par la Conférence Générale de l'UNESCO et dont le texte se trouve ci-joint.
+Le Ministre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de I'Action Gouvernementale, Pascal lrénée KOUPAKI.- Le Ministre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de I'Extérieur, ffLhr-' J -Marie EHO z Galiou SOGLO.- AMPLIATIONS:PR6 AN4 CS2 CC2 CES 2 HAAC 2 HCJ 2 I\TECPDEPPCAG 4lrECDN 4 MAEIAFBE 4 MCAPLN 4 AUTRES MINISTERES 27 SGG 4 SMTP 2 DGAE.DGCPE 2 DGEI,4.DCF.DGTCP-DGID-DGDDI 5 BN-DAN-DLC- 3 GCONB.DGCST-INSAE 3 BCP-CSM-IGAA 3 BCP.CSM-IGAA 3 UAC-ENAM-FADESP 3 UNIPAR-FDSP 2 JO 1, ér4 , Ptr"y^", Le lVlinistre de la Culture, de l'Alphabétisation et de la Promotion, des Langues Nationales,
