@@ -1,0 +1,6 @@
+# Décret n° 2010-390 du 7 septembre 2010 portant ratification de la Convention Universelle sur le droit d'auteur révisé à Paris le 24 juillet 1971,avec déclaration annexe relative à l'article XVll et résolution concernant l'article Xl suivie de trois (03) protocoles : - le protocole annexe 1 à la Convention Universelle pour la protection du droit d'auteur révisé à Paris, le 24 juillet 197'1 concernant la protection des œuvres des personnes apatrides et des réfugiés ; - le protocole annexe 2 à la Convention Universelle pour la protection du droit d'auteur révisé à Paris, le 24 juillet 1971 concernant l'application de la Convention aux æuvres de certaines organisations internationales ; - le protocole annexe 3 à la Convention universelle sur le droit d'auteur relatif à la ratification, acceptation ou adhésion conditionnelle
+
+- Source : Secrétariat général du Gouvernement du Bénin (sgg.gouv.bj), documenthèque, <https://sgg.gouv.bj/doc/decret-2010-390/download>
+- Date : 2010-09-07 (date du texte dans son intitulé (promulgation/signature) ; la date de publication au Journal officiel n’est pas donnée par la source)
+- Couche texte : fournie par l’éditeur sur un document numérisé (non relue)
+- Unités : 1 articles

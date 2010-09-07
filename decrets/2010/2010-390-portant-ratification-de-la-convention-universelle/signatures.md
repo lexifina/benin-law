@@ -1,0 +1,6 @@
+# Signatures
+
+Fait à Cotonou, le 07 $eprembre 2010 Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, ) q DECRETE :
+Article 1"' : Est ratifiée la Convention universelle sur le droit d'auteur révisé à Paris, le 24 juillet 1971, avec déclaration annexe relative à I'article XVll et résolution concernant l'article Xl suivie de trois (03) protocoles:
+- le protocole annexe 1 à la Convention Universelle pour la protection du droit d'auteur révisé à Paris, le 24 )uillel'1971 concernant Ia protection des æuvres des personnes apatrides et des réfugiés ;
+DrBoni YAYI Le Ministre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de I'Action Gouvernementale, îo \.L Pascal lrénée KOUPAKI.- Le Ministre des Affaires Etrangères, de I'lntégration Africaine, de la Francophonie et des Béninois de l'Extérieur, c Â^-,.- Jean-Marie EHOUZO Le Ministre de la Culture, de l'Alphabétisation et de la Promotion, des Langues Nationales, Galiou SOGLO.- AMPLIATIONS:PR6 AN4 CS2 CC2 CES2 HAAC 2 HCJ 2 MECPDEPPCAG 4MECDN 4 MAEIAFBE 4 MCAPLN 4 AUTRES MINTSTERES 26 SGG 4 SMTP 2 DGAE-DGCPE 2 DGBi/I.DCF-DGTCP.DGIO-DGDOI 5 BN-DAN-DLC. 3 GCONB.DGCST]NSAE 3 BCP-CSM.IGPÂ 3 BCP.CSM.IGAA 3 UAC.ENAM.FADESP 3 UNIPAR-FDSP 2 JO 1. ,a/4 h l lr
