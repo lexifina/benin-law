@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 14 septembre 2010 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI.- Le Ministre d'Etat Chargé de la Prospective, du Développement, de I'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernementale, ?*w Le lVlinistre de I'Economie Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de s Finances, l'Homme, Ag-p!!3!!g!§ ipR 06 - AN 04 - CS 02 - CC 02 - CES 02 - HAAC 02 - I\iIECDEPPCAG 4 MEF 04 -MJLDH 04 - Autres Llinrsières 28 - SGG 04 - OCEIü_DCF.OCTCP-OGID05.BN-DAN_DLC03-GCONB-DCCT.INSAE03-BCP_CSI\i'_IGAA03-UAC_ENAIV]-FADESP03 -UNIPAR-FDSP 02 - JO 01- INTERESSES 45 -Archives 01.- Pascal lrénée KOUPAKI ldriss L. DAOUDA Gréqoire AKOFODJI lr4
