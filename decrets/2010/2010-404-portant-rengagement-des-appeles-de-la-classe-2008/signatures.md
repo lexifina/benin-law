@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 24 seprenbre 2010 Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, Le lVlinistre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de I'Action Gouvernem enta le, G^s, Pascal lrénée KOUPAKI Le [Vlinistre d'Etat Chargé de la Défense Nationale, ) lssifou KOGUI N'DOURO Le l/linistre de l'Economie et es Finances, ( ld riss . DAOUDA Aq-plggg.!§: PR 6, AN 4, CS 2, CC 2, CES 2, HCJ 2, HAAC 2, MECPDÊPP-CAG 4 MDN 2, AUTRES MINISTERES 27, EMG 4, DSIA 1, DGE.DCF-DGTCP-OGID.DGDDI 5, BN.DAN-DLC 3, GCONB-DCCT.INSAE 3, UAC.UNIPAR 2, JO 1, ,r4 Dr Boni YAYI
