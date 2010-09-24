@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 24 septembre 2010 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le tvlinistre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de l'Action G ouvernementale, 0*yo Ministre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de l'Extérieur, /A Le Ministre du Travail et de la Fonction Publique ;
+Jean-Marie EHOUZOU.- Gérard KOU IAGB KPANZO Le Ministre de la Famille et de la Solidarité Nationale, (r AMP TIONS PR6 AN4 CS2 CC2 CES 2 HAAC 2 HCJ 2 MECPOEPPCAG 4 MAEIAFBE4 IVIFSN 4IVITFP 4 AUTRES IVIINISTERÉS 27 SGG 4 SI\,ITP 2 DGAE-DGCPE 2 DG8[I.DCF-DGTCP.DGID-DGDDI 5 BN-DAN.DLC. 3 GCONB.DGCST.INSAÊ 3 BCP.CSI\,1.1GAA 3 BCP.CSIV],IGAA 3 UAC-ENAI\?1-FADESP 3 UNIPAR-FDSP 2 JO 1 / Dr BoniYAY| Pascal lrénée KOUPAKI Mamatou Marie-Joe MEBA BIO DJOSSOU.- ,,
