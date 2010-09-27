@@ -1,0 +1,16 @@
+# Loi n° 2010-31 du 27 septembre 2010 modifiant et complétant les dispositions de certains articles de la loi n°2009-10 du 13 mai 2009 portant organisation du recensement électoral national approfondi et établissement de la liste électorale permanente informatisée
+
+REPUBLIOUE DU BENIN PRESIDENCE DE LA REPUBLIQUE LOr N'2lJ10.- 10 DU 22 MARS 2010 modifiant et complétant les dispositions des articles 93 et 146 de la loin'98-019 du 21 mars 2003 portant code de sécurité sociale en République du Bénin.
+Arflcle îc': Les articles 93 et 146 de la loi n'98-019 du 21 mars 2003 portant code de sécurité sociale en République du Bénin sont modifiés et complétés ainsi qu'il suit :
+Artlcle 93 nouveau :
+1,1L'assuréquiatteintl'âgedesoixante(60)ansadroitàunepension de vieillesse s'il remplit les conditions suivantes :
+a) - avoir totalisé au moins cent quatre-vingt (180) mois d'assurance effective à la caisse ;
+b) - avoir cessé toute activité salariée.
+1.2 Toutefois, tout assuré qui remplit les conditions fixées à l'alinéa pieceOent peut également demander la jouissance de ses droits au plus tôt !i.q 1ôsl ans avànt t'âge tégat de départ à ta retraite. Dans ce cas, le montànt'de la pension subii un abattement de cinq pour cent (5%) par année d'anticiPation.
+Toutefoisàl,âgede60ans,cetabattementestsuppriméetl'assuré bénéficie de l'intégralité de sa pension' 2.- L'assuré qui a accompli au moin-s douze (12) mois d'assurance et qui' "Vrni"ttàint l;âge prévu à I'alinéa 1"'du présent article, cesse toute activité sâtariée alors qu'il'ne satisfait pas aux conditions requises pour avoir- droit lïe pension de vieillesse, reçoit une allocation de vieillesse sous forme d'un versement unique h/ L'ASSEMBLEE NATIONALE a délibéré et adopté en sa séance du 26 janvier 2010 ;
+suite à la décision de conformité à la constitution DCC 10-021 du 1 1 mars 2010, LE PRESIDENT DE LA REPUBLIQUE promulgue la loi dont la teneur suit :
+Fait à Cotonou,le 22 mars 2010, Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, îo#' Le lrlinistre de l'Economie e d s Finances, Le Ministre du Travail et de la Fonction Pub que, AUE!!ÀMN§: PR6 AN4 CS2 CC2 CES2 HpÂC 2 HCJ 2I\'TECPDEPPCAG 4 MrFP 4 MEF 4 AUTRES MINISTERES 27 §ë6-a occrrr-ocr-DcTcp-Dclc-DcDDt 5 BN-DAN-DLcs 3 ccoNB-DcCT-INSAE 3 BCP-csM-IGAA 3 UAc-ENAM- FADESP 3 UNIPAR-FDSP2 JO1.
+4,/ Artlcle '146 nouveau : Les dossiers en instance de liquidation à la date de promulgation de la présente loi sont liquidés conformément à ses dispositions, si elles sont plus favorables à I'assuré.
+La reprise et la révision des dossiers de pension en application des dispositions de l'article 95 nouveau de la loi n" 2007-02 du 26 mars 2007 prennent effet pour compter de la date de jouissance effective des droits de chaque pensionné concerné.
+Artlcle 2: La présente loi qui abroge toutes dispositions antérieures contraires, prend effet pour compter de sa date de promulgation pour ce qui concerne les dossiers des assurés visés à l'article 93 nouveau ci-dessus, sera exécutée comme loi de l'Etat.
+Dr BoniYAY| Le Ministre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernementale, Pascal lrénée KOUPAKI ldriss L. DAOUDA Christophe Kint AGUIAR
