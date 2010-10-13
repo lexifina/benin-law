@@ -1,0 +1,10 @@
+# Visas
+
+REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE DECRET NO 2010-423 DU 13 OCTOBRE 2O1O Chargeant Monsieur Natondé AKE, Ministre de I'Enseignement Secondaire, de la Formation Tech-nique et Professionnelle, de I'intérim de Monsieur Gérard KOUASSI AGBOKPANZO.
+Ministre du Travail et de la Fonction Publique pour compter du mardi 5 au vendredi I octobre 2010.
+Vu la loi N" 90-032 du ll décembre 1990 portant Constitution de la République du Bénin ;
+Vu la proclamation le 29 mars 2006 par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du l9 mars 2006 ;
+Vu le décret n'2010-350 du 19 juillet 2010 portant composition du Gouvernement; D ECRETE Article l"': Pour compter du mardi 5 au vendredi 8 octobre 2010, Monsieur Natondé AKE, Ministre de I'Enseignement Secondaire, de la Formation Technique et Professionnelle est chargé de l'intérim du Ministre du Travail et de la Fonction Publique, Monsieur Gérard KOUASSI AGBOKPANZO, pendant son absence.
+Article 2è'" : Le présent décret sera publié au Journal Officiel.
+FaitàCotonou, le 13 octobre 2010 Par Le Président de la République' Chef de I'Etat, Chef du Gouvernement Amnliations : PR 6- SGG 2- AN 2-HCJ 2- CS 2- CC 2- CES 2- HAAC 2- MIC 4- MEF 2- MTFP 2- AUTRES MINISTERI.]S 25 , JORB I LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT BoniYAYI REPUBLIQUE DU BENIN DECRET No 2010-424 DU 13 ocroBRE 2010 PRESIDENCE DE LA REPUBLIQUE Chargeant, Monsieur Zakari BABA BODY, lVinistre Chargé des Relations avec les lnstitutions de l'intérim de Madame Mamatou MEBA BIO DJOSSOU, lt/inistre de la Famille et de la Solidarité Nationale pendant la période allant du l0 au 15 Octobre 2010 LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT, VU la Loi n' 90-032 du 1 1 Décembre 1990 portant Constitution de la République du Bénin ; VU la Proclamation le 29 mars 2006 par la Cour Constitutionnelle des résultats définitifs de L'élection présidentielle du 19 Mars 2006 ;
+VU le Décret n'2010-350 du 19 juillet portant composition du Gouvernement ; DECRETE
