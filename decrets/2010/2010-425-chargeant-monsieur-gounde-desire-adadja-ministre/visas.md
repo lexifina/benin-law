@@ -1,0 +1,6 @@
+# Visas
+
+REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE DECRET N" 2OIO-421 DU 13 OCTOBRE 2O1O Chargeant Monsieur Goundé Désiré ADAOJA, Ministre Délégué auprès du Président de la République, Chargé de la Communication et des Technologies de l'lnformation et de la Communicâtion de l'intérim de Monsieur lssa BADAROU-SOULE, Ministre Délégué auprès du Prêsident de la République Chargé de l'Economie Maritime, des Transports Maritimes et lnfrastruclures Portuaires pour compler du 13 au 16 octobre 2010 VU la loi n' 90-032 du 11 décembre 1990, portant Constitution de la République du Bénin ;
+VU la proclamation le 29 mars 2006 par la Cour Constitutionnelle des résultats définitifs de l'Election Présidentielle du 19 mars 2006;
+VU le Décret n'2010-350 du 19 juillet 2010 portant composition du Gouvernement ;
+DEC RET E Article'ler: Pour compter du mercredi 13 octobre 20"10, Monsieur Goundé Désiré ADADJA, Ministre Délégué auprès du Président de la République, Chargé de la Communication et des Technologies de l'lnformation et de la Communication, est chargé de l'intérim de Monsieur lssa BADAROU-SOULE, Ministre Délégué auprès du Président de la République chargé de I'Economie Maritime, des Transports Maritimes et lnfrastructures Portuaires.
