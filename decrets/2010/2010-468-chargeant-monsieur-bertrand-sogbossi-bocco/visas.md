@@ -1,0 +1,5 @@
+# Visas
+
+REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE DECRET N" 2010-468 DU 25 OCTOBRE 201O Chargeant Monsieur Bertrand SOGBOSSI BOCCO, Ministre de la Réforme administrative et institutionnelle, de l,intérim de Monsieur Zakari BABA BODy, Ministre Chargé des Relations avec les lnstitutions pour compter du mercredi '13 au samedi 16 octobre 2010 LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT Vu la Loi n" 90-032 du 1'l décembre '1990, portant constitution de la Répubrique du Bénin ;
+la Proclamation le 29 mars 2006 par la cour constitutionnelle des résultats définis de l'élection présidentielle du 19 mars 2006 ;
+le décret 2010-350 du 19 juillet 2010 portant composition du Gouvernement ; DECRETE A icle 1"' Mon : Pour compter du mercredi 1 3 octobre 2010 au samedi 16 octobre 201 0, sieur Bertrand SOGBOSSI BOCCO, Ministre de la Réforme Administrative et lnstitutionnelle est chargé de l'intérim du Ministre chargé des Relations avec les lnstitutions, Monsieur Zakari BABA BoDy penda-nt son absence.
