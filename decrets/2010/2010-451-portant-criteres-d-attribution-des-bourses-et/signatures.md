@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 25 octobre 2o1O Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Ministre d'Etat Chargé de la Prospective, du Développement de I'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernementale, Le tvlinistre de l'Enseignement Supérieur et de la Recherche Scientifique Le Ministre de l'Economie et es Finances AMPLIATIONS: ontctrunr, 02; pR 06;AN 04; cc 02;cs 02; HcJ 02; HAAc 02; cES 02 i scc 04; MESRS 04; lrEF 04 i Autres Minisières 29; DGBTI-DCF-DGTCP-DGID-DGDDI 05; BN-DAN-DLC 03. GCONB-DCCT-INSAE 02; JORB 01 ARCHIVES 02; UAC 02; UP 02; ENAM: 01; FADESP: 01i FSOP:01.17/ â/ Dr Boni YAYI Pascal lrénée KOUPAKI 2,ry' *c Francois Adébavo ABIOLA ldriss L. DAOUDA /
