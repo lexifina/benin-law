@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 25 ijcrôb e 201 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, DrBoni YAYI Le Le ltlinistre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de I'Action Gouvernementale, Pascal lrénée KOUPAKI.- Le Ministre d'Etat Chargé de la Défense Nationale, ) / DEGRETE :
+A,y^ Issifou KOGUI N'DOURO // Le Ministre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de l'Extérieur, / tlt L*-- Le Ministre de la Culture, de I'Alphabétisation et de la Promotion, des Langues Nationales, Jea AUe!!A[!9I§_: PR6 AN4 CS2 CC2 CES2 HAAC 2 HCJ2 MECPDEPPCAG 4iilECDN 4 MAEIAFBE 4 MCAPLN 4 AUTRES MINISTERES 26 SGG4 SMTP2 DGAE-DGCPE 2 DGBM.DCF-DGTCP.DGIO-DGDDI 5 BN-DAN-DLC.3 GCONB-DGCST.INSAE 3 BCP.CSM-IGAA 3 BCP-CSM]GAÂ 3 UAC-ENAM.FADESP 3 UNIPAR-FDSP 2 JO 1,/à, z / r l Galiou SOGLO.-
