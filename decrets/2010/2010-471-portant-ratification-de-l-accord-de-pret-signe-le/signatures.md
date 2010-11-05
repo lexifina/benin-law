@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le o5 nove re Pour le Président de la République, Chef de I'Etat, Chef du Gouvernement, Le [/linistre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernementale, {r,^# Pascal lrénée KOUPAKI.- Le Ministre de l'Economie et des Finances, Le Ministre Délégué auprès du Président de la République, Chargé des Transports Terrestres, des Transports Aériens et des Travaux Publics, ldriss L. DAOUDA.- Nicaise Kotchami FA NON.- AUeUÀ1L9.!J-l: PR6 AN4 CS2 CC2 CES2 HAAC 2 HCJ2 MECPDEPPCAG 4 MDCTfiATP/PR 4 MEF4 AUrRÊS -rr.rrsrenEs zz sGG 4 SMTp 2 DGAE-DGCPE 2 DGBM-DcF-DGTCP-DGID-DGDDI 5 BN-DAN-DLC- 3 GcoNB- DGCST-TNSAE 3 BCP-CSM-IGAA 3 BCP-CSM-IGAA 3 UAC-ENAM-FADESP 3 UNIPAR-FDSP 2 JO 1t ,1 Dr Boni YAYI (<.
+cr
