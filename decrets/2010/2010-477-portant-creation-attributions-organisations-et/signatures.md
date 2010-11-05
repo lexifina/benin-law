@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 05 novenb Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, ?*sr Le Ministre de l'Economie et des Finances, ldri s L. DAOUDA Le Ministre de l'lndustrie, Porte- Parole du Gouvernement, (- Ampliations r PR OO - AN 06 - CS 02 - CC 02 - CES 02 - IIAAC 02 - HCJ 0'l - SGG 04 - MPDEPPCAG 01 - MVPPG 01 - MEF 0n - AUTRES MTNTSTERES 27 - DGB-DCF-DGTCP-OGID-GDDI 05 - DPE-Dç-INSAE 03 - DGCST 02 - BCP 01- ONIP-GCONB-ABP 03 - BN-UAC-ENEAM-FADESP 04 - UNIPAR -FOSP 02 - JO ü /-a1/ ry e 2010 Dr Boni YAYI Le Ministre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de I'Action Gouvernementale, Pascal lrénée KOUPAKI.- a Candide AZANNAÏ
