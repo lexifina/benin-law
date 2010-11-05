@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à COIOnOU, le 05 novembre 2010 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Ministre d'Etat Chargé de la Prospective, du Développement, de I'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernementale, a^gf Le Mlnistre de l'Economie et des Finances, Le Ministre de la lvlicro Finance et de l'Emploi des Jeunes et des Femmes, Reckiatou MADOUG AEE!jg!-g-!§ r PR 6; AN 4; CC-2;CS 2; HCJ-2; CEs l; flp{Ç 2;MECPDEPP-CAG i MMEJF 4; i/lEF- 4;AUIRES u'lNlEîeneS zz; SGG 4; FNPEEJ 2; DGB-DCF-DGTCP-DGDD| 5: GCONB 2-DCCT-INSAE 3r UAC-ENAM-FADESP 3. UP- FDSP 2. JO 14-7"l ., Dr BoniYAY| Pascal lrénée KOUPAKI r, ldriss L. DAOUDA hr
