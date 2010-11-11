@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Ministre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernementale, ?*, Pascal lrénée KOUPAKI Le tt/inistre de l'Economie et des Finances, Le tvlinistre de I'Energie et de I'Eau, L- ldriss L. DAOUDA cca IA AMPLIATIONS: PR6 AN4 CS2 CC2 CES 2 HAAC 2 HCJ 2 I\4ECPDEPPCAG 4 MEE 4 MEF 4 AUTRES -n,trrursreaes zz scc 4 sMTp 2 DGAE-DGCPÉ 2 DGBM-DCF-DGTCP-DGIo-DGDDI 5 BN-DAN-DLC' 3 GcoNB- DGCSI-INSAE 3 BCP-CSi/I-IGAA 3 BCP-CSIVI-IGAA 3 UAC-ENAM-FADESP 3 UNIPAR-FDSP 2 JO 1.,.{ - I Dr Boni YAYI +
