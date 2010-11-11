@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le lVlinistre d'Etat Chargé de la Prospective, du Développement, de I'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernementale, lW, Pascal lrénée KOUPAKI Le [t/linistre de l'Economie et des Finances, ldriss L. DAOUDA Le lVlinistre de l'Energie et de l'Eau, cca IA L Le Ministre de l'Agriculture, de l'Elevage et de la Pêche, AMDIiâtiONS: PR 6. AN 4_ CS 2 - CES 2 - HAAC 2_ HCJ 2 _MECPDÉPPCAG 4 ' MEE 4 _ MFE 4 'AUTRES I\'IINISTERES 26 _ scc 4 -bcB - DcF - tcF-DGTCP ' DctD. DGDDI 5 - BN - DAN - Lc 3 - GCoN - Dccsr- INSAE 3 BCP - csM - IGAA 3 - UAC 1 _ENAMl.FADESPl- UP 1_FDSP 1_JO 1,,'w l Dr Boni YAYI [1à-^(, Michel Comlan SOGBOSSI z)/
