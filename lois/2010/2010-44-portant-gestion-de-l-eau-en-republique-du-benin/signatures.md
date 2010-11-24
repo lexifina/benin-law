@@ -1,0 +1,3 @@
+# Signatures
+
+Cotonou, le 24 novembre 2010- Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI Le Ministre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernementale, Pascal Irénée KOUPAKI Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de "homme, Grégoire AKOfODJI Le Ministre de l'Energie et de l'Eau, AMPlIADONS : PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 HCJ 2 MECPOEPPCAG 4 MEE 4 GS/MJLOH 4 AUTRES MINISTEliES 27 SGG 4 SGG 4 OGBM-OCf-OGTCP·OGIO· OGOOl5 8N-OAN-OLC·IGE· 4 GCOMB-OGCST-INSAE-IGE 4 BCP-CSM-IGAA 3 UAC·ENAM-fAOESP- 3 UNIPAR-fOSP 3 JO ~
