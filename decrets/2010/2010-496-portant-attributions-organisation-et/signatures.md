@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou le....2.6..nov.e.qrb.re 2010 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, l0 ,f, Dr Boni YAYI.- Le Ministre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernementale Gréqoire AKOFODJI.- ldriss L. DAOUDA.- AMPLIATIONS: PR 6-AN 4-CS 2- CES 2- HAAC 2 - MEF4 MF 4 AUTRES MINISTERES 29- SGG 4 - IGE 3 - DGBM - DCF- DGTCP.DGIG-DGDDI. 5 - BN. DAN.DLC 3 -DGCST-INSAE 3 _ BCP-CSI/-IGAA 3 * UAC-ENAIvI-FADSESP 3 - UNIPAR-FDSP 2 - IGF 2 - JO 14.. Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, Le Ministre de l'Economie et des Finances ll ? î*r* -r- Pascal lrénée KOUPAKI.- te
