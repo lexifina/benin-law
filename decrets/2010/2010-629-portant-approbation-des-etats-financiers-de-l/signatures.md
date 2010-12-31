@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 31 DECEMBR Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr. Boni YAYI Le Ministre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernementale, Le inistre de l'Economie Le lVlinistre des Recherches e d s Finances, Pétrolières ldriss L. DAOUDA Ba KASSA AMPLIATIONS : PR 6 AN 4 CC 2 CS 2 HAAC 2 CES 2 MECPDEPPCAG 4 MRPM 4 MFE 4 AUTRES l\,llNISTERES 27 SGG 4 DGBM-DCF- DGTCP. DGID. DGDDI 5 BN-DAN-DLC 3 GCONE.DCCT.INSAE 3 BCP.CSI\,1.IGAA 3 UAC-ENAI\,I.FADESP 3 UNIPAR- FosP 2 Jo1.k6 / \ 0tr** Pascal lrénée KOUPAKI ry
