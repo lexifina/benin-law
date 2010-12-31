@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 31 DECEMBRE 2010 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI Le lVlinistre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de I'Action Gouvernementale, Le Ministre de l'Economie et des Finances, ldri L. DAOUDA Le tt/inistre de la lVlicrofinance et de l'Emploi des Jeunes et des Femmes, AMPLIATIONS:PR 6AN 4 cc 2 CS 2 HAAC 2 CES 2 MECPDEPPCAG 4 MMFEJF 4l\rFE 4 AUTRES MINISTERES 27 SGG4 DGBM-DCF- DGTCP. DGID. DGDDI 5 BN.DAN-DLC 3 GCONB-DCCT.INSAE 3 BCP-CSM-IGAA 3 UAC-ENAM-FADESP 3 UNIPAR- FDSP 2 JO1.rq/ t Cruq4 n- Pascal lrénée KOUPAKI Rékiatou MADOUGOU
