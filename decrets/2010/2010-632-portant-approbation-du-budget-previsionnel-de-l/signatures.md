@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 31 DECEMBRE 2o1o Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, DrBoni YAYI.- Le Ministre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernementale, 4regt Pascal lrénée KOUPAKI Le lVlinistre de I'Economie et des Finances, Le Ministre de l'Agriculture, de l'Elevage et de la Pêche, .CLLLI ( Michel mlan S BOSSI AMPLIATIONS:PR 6AN 4 CC 2 CS 2 HAAC 2 CES 2 HCJ 2 MECPDEPPCAG 4 MEF 4 MAEP 4 AUTRES MINISTERES 27 DGBM.DCF- DGTCP. OGID- DGODI 5 BN.DAN.DLC 3 GCONB.DGCST.INSAE-IGE 4 BCP-CSN -IGAA 3 UAC-ENAM-FADESP 3 UNIPAR-FDSP 02 FODEFCA 2 JO 1., , I ldriss L. DAOUDA {->
