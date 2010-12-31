@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 31 DECEMBRE 2010 Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, Le Ministre d'Etat Chargé de la Prospective, du Développement, de I'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernementale, P^w Le Ministre de l'Economie et des Finances, Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, (e c_Ll-,tI_À ldriss L. DAO UDA Gréqoire AKOFODJI AUE!!ÀII9I§ : PR6 AN4 CS2 CC2 CES2 HAAC 2 HCJ 2 MJLDH-PPG 4 MEF 4 AUTRES MINISTERES 20 SGG 4 DGGM- ffi$[J[pS616-pcDDt 5 BN-DAN-DLCS 3 ccoNB-DCCT-INSAE 3 BCP-CSM-lGne 3 UAc-ENAM-FADESP 3 UNIPAR- Dr. BoniYAY| Pascal lrénée KOUPAKI ry/
