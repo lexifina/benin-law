@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le gr DECEMBRE 2oto Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Ministre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de I'Action Gouvernementale, Pascal lrénée KOUPAKI2,,g, DEGRETEI Dr Boni YAYI + Le Ministre d'Etat Chargé de la Défense Nationale, )- Le Ministre de I'Economie de des Finances, Le lVlinistre de la Santé, ldriss L. DAOUDA - lssifou TAKPARA Le Ministre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de l'Extérieur, L L e EHOUZ AMPLIATIONS TPR6AN 4 CC 2 CS 2 HAAC 2 CES 2 HCJ 2I\TECPDEPPCAG 4I\TECDN 4l\.4EF 4I\IAEIAFBE 4 AUTRES MINISTERES 26 SGG 4 DGBNI.DCF- DGTCP. DGIO. DGDDI 5 BN-DAN.DLC 3 GCONB,OGCSI.INSAE.IGE 4 8CP-CSM, IGAA 3 UAC,ENAM-FADESP 3 UNIPAR-'DSP 2 JO 1.
++ lssifou KOGUI N'DOURO I!lÀ*
