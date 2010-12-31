@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le lr DECEMBRE 2o1o Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, I Le lvlinistre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de I'Action Gouvernementa le, W Le Ministre de l'Economie et des Finances, ldriss L. DAOUDA Aü.8!!À1.!9!§ , PR 6 AN 4 CC 2 CS 2 HA C 2 CES 2 MECPDEPPoAG 4 MEF 4 AUTRES MINISTERES 28 SGG 4 DGBM- DCF. OGTCP. DGID- DGDDI 5 BN-DAN-DLC 3 GCONB.DCCT]NSAE 3 BCP-CSM.IGAA 3 UAC-ENAM-FADESP 3 UNIPAR- FOSP 2 JO1 kr / Dr Boni YAYI Pascal lrénée KOUPAKI Iia",-,tc ôy
