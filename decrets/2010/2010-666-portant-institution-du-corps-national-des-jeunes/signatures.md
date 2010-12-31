@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 31 DECEMBRE 2o1o Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Ministre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernementale, Le Ministre de l'Economie et des Finances,
+- L(-U+ Le Ministre de la Jeunesse, des Sports et des Loisirs, Le Ministre de la Réforme Administrative et lnstitutionnelle, Bertrand SO BOSSIBOCCO Le Ministre de la MicroFinance et de l'Emploi des Jeunes et des Femmes, Rékia u MADOUGO AMPLIATIONS:PRlOAN6CS2CC2HCJ2CES2HAAC2SGG4MECPDEPPCAG4MEF4MRAI 4 MJSL 4 MI/FEJF 4 trattttsrEnes zs PREFETS 12 COMIVIUNES 77 EMG/ FAB + ETATS-MAJORS + CAB-MIL + SG/D 23 + CNJ 17 + OCJ 15 + SPD2 DGB.DCF-DGTCP-DGID-DGDOI 5 DPE- DAN-DLC 3 GCONB-DCCT-INSAE 3 BCP-CSM' IGAA 3 UAC-ENAM' FADESP 4 UNIPAR-FDSP-CCIB 3 JO1,,^, ly Dr BoniYAY| ûr,W Pascal lrénée KOUPAKI ldriss L. DAOUDA Modeste Tihounté KEREKOU /
