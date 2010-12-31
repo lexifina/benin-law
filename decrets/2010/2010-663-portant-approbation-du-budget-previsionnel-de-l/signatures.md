@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 31 DECEMBRE 2010 Par le Président de la République Chef de l'Etat, Chef du Gouvernement, Le tilinistre d'Etat Chargé de la Prospective, du Développement, de I'Evaluation des Politiques Publiques et de la Coordination de I'Action Go uvernementale, 2,oW Pascal lrénée KOUPAKI.- Le [Vlinistre de l'Economie et des Finances, Le [Vlinistre de la [t/licro Finance et de l'Emploi des Jeunes et des Femmes, ,.u^,(O DAOUDA \--,, .-+ ldris L.
+Auet!ÀMll-i: PR6 AN4 CS2 CC2 CC 2 CÊS2 HAAC 2 HCJ 2I\,IECPDEPPCAG 4 |\,1MFP|\,1EEJF 4 lltEF 4 AUTRES IVIINISTERÉS 27 SGG4 DGBM-DCF.DGTCP.DGDDI 5 BN-DAN.OLC 3 GCOI\,IB-DCCT,LNSAE 3 BCP-CSM-IGAA 3 UAC. ENAI\4-FADESP 3. UNIPAR.FDSP 2 ANPE 2 JO 1,.,^I /-*7 / Article 1"':Est approuvé le budget prévisionnel de l'Agence Nationale pour Dr Boni YAYI Rékiatou MADOUGOU ry
