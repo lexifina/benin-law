@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 31 DECEMBRE 2o1o Par le Président de la République, Chef de l'Etat, Chef du gouvernement, Dr Boni YAYI Le tvlinistre d'Etat Chargé de la Prospective, du Développement, de I'Evaluation des Politiques Publiques et de la Coordination de l'Action G ouvernem e nta le, î,ry Pascal lrénée KOUPAKI Le ltlinistre d'Etat Chargé de la Défense Nationale, <_..- lssifou KOGUI N'DOURO Le tvlini et tre de l'Economie es Finances, (D ld riss L. DAOUDA AMPL|ATIONS: PR 6;AN 4;CC 2;CS 2 iCES 2;HAAC 2, HCJ 2;MECPOEPPCAG 4 MECDN 4;lrEF 4 :AUTRES MINISTERES 27 l SCCa.,CeeMtUpnZ;EL4c2;; DcB-CF-DGTCP-DGlD4 iGCONB-DGCST-INSAE-lGE 4 : UAC'ENAIü-FADESP 3 ; UP-FDSP 2 ; INTERESSE U 0'1. JO 1 ry ) Lj.J.,tt
