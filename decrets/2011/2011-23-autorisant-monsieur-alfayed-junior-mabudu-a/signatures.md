@@ -1,0 +1,4 @@
+# Signatures
+
+Fait a COtonou, le 31 j anv ie r 201 1 Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, Dr Boni YAYI.- Le Ministre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de I'Action Gouvernementale, ?.W.
+Le Ministre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de l'Extérieur, Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de I'Homme, Jean-Marie EHOUZOU.- Gréqoire AKOFODJI.- auEllÀI!.gN§ : pR 6 AN 4 CC 2 CS 2 |-IAAC 2 CES 2 HAC 2 HCJ 2 MECPDEPPCAG 4 GS/MJLOH 4 MAEIAFBE 4 AUTRES lvllNlSTERES lJlfrffil7 aygASSADg BENTN/ALLEMAGNE 2 ocBM-DCF- DGTcp- DGro- DGDDI 5 BN-DAN-DLC 3 GcoNB-DGcsr-lNSAE-lGE 4 BcP-csN - IGAA 3 UAC-ENAM-FADESP 3 UNIPAR-FOSP 02 INTERRESE 1 JO 1 ,. ,- er ,4, Pascal lrénée KOUPAKI 7'9 5.
