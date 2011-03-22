@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 22 nar s 2ol7 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, DrBoni YAYI.- Le Ministre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de I'Action Gouvernementale, Le Ministre de l'Economie et des Finances, Le Ministre Délégué auprès du Président de la République, Chargé de l'Economie Maritime, des Transports Maritimes et lnfrastructures PortuaireP, Itr P/PR4iilEF4 AUTRES -IGE 4 BCP.CSM.IGAA I Gcut !dris L. D.À.OUD.À- lssa B.Â.
+AMPLIATIONS : PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 HCJ 2 I\iIECDPDEPPCAG 4 I\'IDCEM irrlr'rrSrEneS ZZ SGG 4 DGBM-DCF-DGTCP-DGID-DGDDI 5 BN-DAN-DLC 3 GCONB-DGCST-l u[0 / A.R-OU SO e,,ry Pascal lrénée KOUPAKI 3 UAC-ENAM-FADESP 3 UNIPAR-FDSP 2 JO 1.'r--
