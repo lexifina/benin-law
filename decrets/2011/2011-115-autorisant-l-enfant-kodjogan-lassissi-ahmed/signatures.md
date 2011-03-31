@@ -1,0 +1,4 @@
+# Signatures
+
+Fait a Cotonou, le 31 mars 2011 Par le Président de la RéPublique, Chef de I'Etat, Chef du Gouvernement, Le Ministre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de l'Extérieur, L Jea -Marie EHOUZOU.:
+Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, AMPLIATIoNS:PR6AN4cc2cs2HAAC2cES2HAc2HcJ2MECPDEPPCAG4GS/MJLDH4MAEIAFBE4 eurne::s urutsrenes 27 AMBAsSADE BENTN/ALLEMAGNE 2 DGBM-DcF- DGTcP- DGID- DGDDI 5 BN-DAN-DLC 3 êéôùioôôôi-rHsÀÈ-roe + acp-csN--rcAA 3 uAc-ENAM-FADESP 3 UNIPAR-FDsP 02 INTERRESEE I Jo 1.2. Dr BoniYAYI.- Le Ministre d'Etat Chargé de la Prospective, du Développement, de I'Evaluation des Politiques Publiques et de la Coordination de I'Action Gouvernementale, {',otg Pascal lrénée KOUPAKI.- Gréqoire AKOFODJI.- ,4'2 4,
