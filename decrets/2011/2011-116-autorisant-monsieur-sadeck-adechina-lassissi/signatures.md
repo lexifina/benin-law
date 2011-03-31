@@ -1,0 +1,4 @@
+# Signatures
+
+Fait a Cotonou, le 31 mars 2011 Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, Le Ministre d'Etat Chargé de la Prospective, du Développement, de I'Evaluation des Politiques Publiques et de la Coordination de I'Action Gouvernementale, P,y"y, Le Ministre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de l'Extérieur, Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, Jea n-Marie EHOUZOU.:
+4UeL!ÀI!.9!Si: PROAN4 CC 2 CS 2 HAAC 2 CES 2 HAC 2 HCJ 2 MECPDEPPCAG 4 GS/MJLoH 4 MAEIAFBE 4 AUTRES frN-rsrEnes zz AMSASSADE BENIT'I/ALLEMAGNE 2 DGBM-DCF. DGTCP- DGIO- OGDDI 5 BN.OAN-DLC 3 GCONA-DGCST- INSAE.IGE 4 BCP.CSN 1GAA 3 UAC-EN^M.FAOESP 3 UNIPAR-FDSP 02 INTERRESE 1 JO 1, 9 / Dr BoniYAYI.- Pascal lrénée KOUPAKI.- Gréqoire AKOFODJI.- 4,
