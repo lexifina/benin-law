@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le :r mars 2011 Par le Président de la RéPublique, Chef de l'Etat, Chef du Gouvernement, Le Ministre d'Etat Chargé de la Prospective, du Développement, de I'Evaluation des Politiques Publiques et de la Coordination de I'Action Gouvernementale' îq* Pascal lrénee KOUPAKI.- Le Ministre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de l'Extérieur, t- Jea -Ma rie EHOUZOU.- AMPLIATIONS : PR 6 AN 4 CC 2 CS 2 HAAC 2 CES 2 HAC 2 HCJ 2 MECPDEPPCAG inli-rrursrenes zz AMBASSADE BENIN/ALLEMAGNE 2 DGBM-DcF- DGToP- DGID- DG i-lisÀE-ree a etp-csN -tcAA 3 uAC-ENAM-FADESP 3 UNIPAR-FDSP 02 INTERRESEE 1 4 GS/MJLDH 4 MAEIAFBE 4 AUTRES DDI 5 BN-DAN-DLC 3 GCONB.DGCST- JO 1.ê>,.
+I Dr Boni YAYI.- Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, Gréqoire AKOFODJI.- 4/
