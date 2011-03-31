@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 31 mars 2011 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, on.YAYI Le Ministre d'Etat Chargé de la Prospecti loppement, de I'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernementale, Le Ministre de l'Economie et des Finances, Le Ministre la Fonctio Travail et de ublique, .r^*O ldriss L. DAOUDA Gérard KOU SSIAGBOKPANZO AUe!!ÀIlQ!§:PR 6AN 4 CC2 cS 2 HAAC 2 CES 2 HCJ 2 MECPDEPPCAG MEF 4 MrFP 4 AUTRES MINISTERES 27 DGBM.DCF- DGTCP- DGID. DGDDI 5 BN.DAN.DLC 3 GCONB-DGCST]NSAE]GE 4 BCP-CSN -IGAA 3 UAC.ENAM. FADESP 3 UNTPAR-FDSP 02 FODEFCA 2 JO 1-a , l --t /,,gg, Pascal lrénée KOUPAKI
