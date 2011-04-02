@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 02 avril 2011 Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, Dr Boni YAYI.- Le ttlinistre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernementale, 0'o# Le Ministre de l'Economie et des Finances, Le Ministre Délégué auprès du Président de la République, Chargé des Transports Terrestres, des Transports Aériens et des Travaux Publics, r->\ lo '(]- t-,'.-r.,.
+N ica ise Kotchami FAGNON AUe!A!!g!g: PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 HCJ 2 MECPDEPPCAG 4 MDCTTTATP/PR MEF 4 AUTRES MINISTERES 27 SGG 4 DGBM-DCF.DGTCP-OGID.DGDDI 5 BN.DAN-DLC 3 GCONB-DGCST-INSAE.IGE 4 BCP-CSM]GAA 3 UAC-ENAM-FAOESP 3 UNIPAR-FDSP 2 CNERTP 2 JO1 4-ÿ, ù Pascal lrénée KOUPAKI ldriss L. DAOUDA æ
