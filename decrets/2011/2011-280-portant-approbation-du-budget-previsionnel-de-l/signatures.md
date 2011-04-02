@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le oz avril 2011 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Ministre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordlnation de l'Action Gouvernementale, tut# Pascal lrénée KOUPAKI Le Ministre de l'Economie etd li \, L.l.l,u AMPLIATIONS:PR6 AN4 CS2 CC2 CES 2 HAAC 2 HCJ2CSII 2lltEF 4 MECDPCAG4 AUTRES MINISTERES 28 SGG 4 DGBM-DCF-DGTCP-DGID.DGDDI 5 BN-DAN-DLC 3 GCONB-DCCT-INSAE 3 BCP.CSM.3 UAC-UNIPAR-ENAM 3 ry Finances, FADESP.FDSP 2 INSAE ,1 JO 1 / \ Dr BoniYAY| ldriss L. DAOUDA
