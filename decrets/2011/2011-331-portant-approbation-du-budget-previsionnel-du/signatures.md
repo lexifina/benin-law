@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 02 avril 2011 Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, Dr Boni YAYI Le tvlinistre d'Etat Chargé de la Prospective, du Développement, de I'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernementale, Ao Le Ministre de l'Economie et des Finances, Pascal lrénée KOUPA KI Le Ministre Délégué auprès du Président de la République, Chargé des Transports Terrestres, des Transports Aériens et des Travaux Publics, L ldriss L.DAOUDA N icaise . FAG ON Agpli.eggls : PR 6 i AN 4 ; CS 2 ; CC 2 ; HCJ 2 CE S 2; HAAC 2; SGG 4 ; MECPDEPPCAG 4 MEF 5 ; MDCTTTATP/PR 5 ; AUTRES MINISTERES 27; DGAE-DGCPE 2; DGB-DCF-OGTCP-DGID-OGDDI 5; DPE-DAN-DLC 3; CNERTP 4; BBDAN-ONC 3; GCONB 2 | INSAE 3 ; UAC-FASEG-ENAM 3 ;CNERTP 't JO 1.
+DECRETE 2ry
