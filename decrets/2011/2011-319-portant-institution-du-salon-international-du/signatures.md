@@ -1,0 +1,5 @@
+# Signatures
+
+Fait à Cotonou, le 02 avril 2011 Par le Président de la République Chef de l'Etat, Chef du Gouvernement, Ministre d'Etat, Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernementale, (*gg.
+Pascal lrénée KOUPAKI Ministre de l'Economie, et des Finances, Le Ministre de l'Artisanat et du Tourisme, Claudine A NCrO Le Ministre de la Culture, de l'Alphabétisation et de la Promotion des Langues Nationales, ldriss L. DAOUDA Ministre de la Réforme Administrative et lnstitutionnelle, Bertrand SOGBOSSI BOCCO PRU Dr BoniYAY| " L^^fO Galiou SOGLO Le Ministre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie Francophonie et des Béninois de l'Etranger, Ministre de l'lntérieur et de la Sécurité Publique, MartialSOUNTON âUeUÀIlgX§:PR6 AN4 CS2 CC2 CES 2 HAAC 2 HcJ 2 cSM 2 MECPoEAPPCAG4MEF4MISP4MRAI 4MCAPLN4 MAEIAFBE 4 MAT 4 4 AUTRES MINISTERES 23 SGG 4 OGBM-DCF-DGTCP-DGID-DGDDI 5 BN.OAN.OLC 3 GCONB-DCCT-INSAE 3 BCP-CSM-3 UAC-UNIPAR-ENAM 3 FAOESP-FDSP 2 SITEHCO 1JO 1.- 4y' .+ -r /a:
+Jean-Marie EHOUZOU
