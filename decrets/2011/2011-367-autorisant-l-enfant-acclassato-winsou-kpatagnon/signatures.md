@@ -1,0 +1,4 @@
+# Signatures
+
+Fait a Cotonou, le 28 mai 2011 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Ministre d'Etat Chargé de la Prospective, du Développement, de I'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernementale, Vr'ÿ;
+Pascal lrénée KOUPAKI.- Le Ministre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de l'Extérieur, Le Garde des Sceaux, lVlinistre de la Justice, de la Législation et des Droits de l'Homme, Gréqoire AKOFODJI.- Jean-Marie EHOUZ u.- auEtlaMN§: pR6AN4 CC 2 CS 2 HAÂC 2 CES 2 HAC 2 HCJ 2 MECPDEPPCAG 4 GS/MJLDH 4 MAEIAFBE 4 AUTRES tr,tttltsrenss ZZ AiIBASSADE BENIN/ALLEMAGNE 2 DGBI\r-DCF- DGTCP- DGID- DGDDI 5 BN-DAN-DLC 3 GCONB-DGCST- rNsAE-rcE 4 Bcp-csN -rcAA 3 UAC-ENAM-FADESP 3 UNIPAR-FDsP 02 INTERRESE 1 Jo 1 f;/' vLt Dr Boni YAYI Z/
