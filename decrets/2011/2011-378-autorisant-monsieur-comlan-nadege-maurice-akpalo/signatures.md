@@ -1,0 +1,4 @@
+# Signatures
+
+Fait a Cotonou, le 28 mai 2011 ?"W Le lüinistre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de l'Extérieur, Le Garde des Sceaux, [vlinistre de la Justice, de la Législation et des Droits de l'Homme, ç Je -Marie EHOUZO AMPLIATIONS: PR 6AN 4 CC 2 CS 2HAAC2 CES 2 HAC 2 HCJ 2 MECPDEPPCAG 4 GS/I\,IJLDH 4 IVIAEIAFBE 4 AUTRES l\illNlSTERES 27 AI\,IBASSAoE BENIN/ALLEMAGNE 2 DGBM-DCF- DGTCP- DGID- DGDDI 5 BN-OAN-DLC 3 GCONB-DGCST-INSAE- IGE 4 BCP-CSN -IGAA 3 UAC-ENAM-FADESP 3 UNIPAR.FDSP 02 INTERESSE 1 JO ,1 4.
+Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr. BoniYAYI.- Le Ministre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de I'Action Gouvernementale, Pascal lrénée KOUPAKI Gréqoire AKOFODJI
