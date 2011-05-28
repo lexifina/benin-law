@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 28 mai 2011 Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, D'Boni YAYI Le Ministre d'Etat Chargé de la Prospective, du Développement, de I'Evaluation des Politiques Publiques et de la. Coordination de I'Action Gouvernementale, Ku Le Ministre de l'Economie mmerce, es Finances, t o ldr sL.D OUD Chris OUINSAVI AMPLATIONS:PR 6 - AN 4 - SGG 4 - CC 2 - CES 2 ' HAAC 2 - MECPDEPPCAG 4 MEF 4 - MC 4- AUTRES MINISTERES 27 . 4 . DGBM . DFC . DGTCP _ DGID _ DGDDI 5 _ BN - DAN- DLC 3 . GCONB _ DCCT _ INSAE 3- BcP - CSM - IGAA 3 - UAC - ENAM - FASEG 3-ABeP€C t to t$,,2 z1 Pascal lrénée KOUPAKI Le Ministre
