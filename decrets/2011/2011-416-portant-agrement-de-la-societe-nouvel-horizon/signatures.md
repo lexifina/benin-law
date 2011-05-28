@@ -1,0 +1,5 @@
+# Signatures
+
+Fait à Cotonou, le za mai 2011 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Ministre d'Etat Chargé de la Prospective, du Développement, de I'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernementale, Q,W, Le Ministre de l'Economie et des Finances, ldriss L. DAOUDA Le Ministre du ommerce, Christine UINSAVI Le Ministre d ravail et de la Fonction lique, ô Le Ministre de I'lndustrie, Porte parole du Gouvernement, /I I Candi e AZAN NAi Gérard UASSI AGBOKP NZO Dr. Boni YAYI Pascal lrénée KOUPAKI 1a a q Le Ministre de l'Environnement et de la Protection de la Nature, AMPLIATIONS:PR6.AN4-CS2.CC2.CES2.HAAC2.HCJ2-MECPDEPP.CAG4.MEF4-MTFP4.MEPN4-MI
+4. Mc 4.
+AUTRES MINISTERES 24 - SGG 4 - DGBM 1 - DCF ,I - DGTCP 1 - DGID 1 . DGDDI 1 - BN 1 . DAN 1 - OLC ,1 - GCONB 1 . DGCST 1 . INSAE 1- BCP 1-CSM 1-CPl 1- IGAA 1 - UAC 1 - UNIPAR 1 - ENAM 1 - FADESP 1 - JORB 1 - Société Nouvel Horizon lnternationat SARt-d).-- 1./ ,1 Justin Sossou ADANMAYI
