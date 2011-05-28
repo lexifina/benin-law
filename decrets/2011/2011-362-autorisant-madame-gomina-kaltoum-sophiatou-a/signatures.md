@@ -1,0 +1,3 @@
+# Signatures
+
+Fait a Cotonou, le 28 mai 2011 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr. Boni YAYI.- Le tvlinistre d'Etat Chargé de la Prospective, du Développement, de I'Evaluation des Politiques Publiques et de la Coordination de l'Action Gouvernementale, Le ttlinistre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de l'Extérieur, Le Garde des Sceaux, [/linistre de la Justice, de la Législation et des Droits de l'Homme, Jea -Marie EHOU U MINISTERES 27 AMBASSADE BENIN/ALLEMAGNE 2 DGBM.DCF. DGTCP- DGID. DGODI 5 gN.DAN-DLC 3 GCONB.OGCST. tNsAE-lGE 4 BCp-csN tcAA 3 uAc-ENAM-FADESp 3 uNIPAR-FDSP 02 tNTERESset t lo ltJ, .,-r ?*g, Pascal lrénée KOUPAKI Gréqoire AKOFODJI.-
