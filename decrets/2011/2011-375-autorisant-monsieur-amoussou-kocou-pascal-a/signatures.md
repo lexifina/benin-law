@@ -1,0 +1,4 @@
+# Signatures
+
+Fait a Cotonou, le 28 mai Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, 20t 7 ( Le Ministre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de I'Action Gouvernementale, Q"y Le Ministre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de l'Extérieur, Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de I'Homme, Porte- parole du Gouvernement, M' Je n-Marie EHOUZou.- A.Upt!À!-qlg: pR 6AN 4 CC 2 CS 2 HAÂC 2 CES 2 HAC2 HCJ 2 MECPDEPPCAG 4 GS/MJLDH 4 MAEIAFBE 4 AUTRES INGîEFE67 e]'/leAssADE BENIN/ALLE[,AGNE 2 DGBM-DCF. DGICP- DGID- DGDDI 5 BN.DAN.DLC 3 GCONB.DGCST.INSAE- IGE 4 BCP-CSN -IGAA 3 UAC-ENAM-FADESP 3 UNIPAR-FDSP 02 INTÊRRESE 1 JO 1Zÿ- ).
+Dr Boni YAYI.- Pascal lrénée KOUPAKI Gréqoire AKOFODJI
