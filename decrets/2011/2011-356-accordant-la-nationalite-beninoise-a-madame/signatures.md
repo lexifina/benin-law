@@ -1,0 +1,4 @@
+# Signatures
+
+Fait a Cotonou, le za nai 2011 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Ministre d'Etat Chargé de la Prospective, du Développement, de l'Evaluation des Politiques Publiques et de la Coordination de I'Action Gouvernementale, Q,gpr Le Ministre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de l'Extérieur, Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, Jea n arie EHOUZO AMPLIATIONS iPR6AN 4 æ 2 CS 2 tiMC 2 CES 2 flAAC2lCJ 2 I]ECPDEFPCAG 4 GSI\ÂiLDH 4 IüAETqFBE 4 AUTRES l\.4lNlSïEFES 27 2 æBM-cc,.- DGTCP. DGID- OGDOI 5 BN.DAN.OLC 3 GCONB.DGCST.INSAE.IGE 4 BCP4SN .IGqA 3 ['AC{MM+ADES] 3 UNIPAR+DSP 02 INTERESSEE 1 JO 1éy,.
+Dr. Boni YAYI Pascal lrénée KOUPAKI Gréqoire AKOFODJI.-
