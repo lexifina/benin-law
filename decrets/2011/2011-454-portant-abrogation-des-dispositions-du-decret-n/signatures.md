@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou le 22 j uin 2011 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de I'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, A^ Le Ministre de l'Economie et des Finances, Le lVlinistre du Travail et de la Fonction Publique, Mëmouna K ZAKI LEADI AMPLIATIONS : PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 PM/CCAGEPPPDDS 4 MEF 4 GS/I/,IJLDH 4 AUTRES IIIINISTERES 23 SGG 4 OGB[I.DCF.DGTCP.DGID.DGDDI 5 BN.DAN-DLC 3 GCOMB.DGCST-INSAE 3 BCP-CSM-IGAA 3 UAC- ENAM _ FADESP 3. UNIPAR _ FDSP 2 INTERESSEE 1 O1 JO 1,- ,Y Dr. Boni YAYI Pascal lrénée KOUPAKI Alavi Adidiatou MATHYS.-
