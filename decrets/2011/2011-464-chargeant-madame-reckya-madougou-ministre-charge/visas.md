@@ -1,0 +1,5 @@
+# Visas
+
+PRESIDENCE DE LA REPUBLIQUE DECRET N'zorl-464 DU 28 JUIN 2011 Chargeant Madame Rec§a MADOUGOU, Ministre Chatgé de la Microlinance, de l'Emptoi des Jeunes et des Femmes' de l'intérim de Monsieur Blaise Onésiphote AHÀNHÂNZO- GLELE, Ministte de l'Environnement, de I'Habitat et de I'Utbanisme du merctedi 22 au lundi 27 iuin 2011.
+LE PRESIDENT DE LA REPUBLIQUE CHEF DE L'ETÀT CHEF DU GOUVERNEMENT, \-U la Loi 90-032 du 11 décembre 1990 portant Constitution de la République du Bénin ; VIJ la Proclamation le 29 marc 2077 par ia Cout Constitutionnelle des résultats définitifs de I'élection présidentielle du 13 mats 2011 ;
+VLI le décret no2011-450 du 28 ma:,2011 portant composition du Gouvemement ; Articte f': Pour compter du 22 iuinÀÛll, Madame Rec§a MÀDOUGOU, Ministre Chargé de la Microfinance, de I'Emploi des Jeunes et des Femmes, est chargée de l'intérim de Monsieur Blaise Onésiphore AI-:IANAI-IÂNZO'GLELE, N{inistre de l'Environnement, de l'Habitat et de l'Urbanisme pendant son absence.
