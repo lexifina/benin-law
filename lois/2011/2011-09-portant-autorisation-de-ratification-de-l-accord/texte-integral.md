@@ -1,0 +1,11 @@
+# Loi n° 2011-09 du 6 juillet 2011 portant autorisation de ratification de l'Accord de prêt signé le 29 décembre 2010 entre la République du Bénin et le Fonds Koweïtien pour le Développement Economique Araba (FKDEA) dans le cadre du financement partiel du projet d'aménagement et de bitumage de la route Ouidah-Allada et de la bretelle Pahou-Tori
+
+A SUBSTITUER A L'ANCIENE COPIE i.v.
+REPUBLIQUE DU BENIN FRATERWtï -JUSTICI ■TKAVA1L PRESIDENCE DE LA REPUBLIQUE LOI N°201-09 DU JUILET Portant autorisation de ratification de l'Acord de prêt signé le décembre entre la République du Bénin et le Fonds Koweïtien pour le Dévelopement Economique Araba (FKDEA) dans le cadre du financement partiel du projet d'aménagement et de bitumage de la route Ouidah-Alada et de la bretele Pahou-Tori L'Asemblée Nationale a délibéré et adopté, en sa séance du juilet 201, Le Président de la République promulgue la loi dont la teneur suit :
+Article 1er :
+Est autorisée la ratification, par le Président de la République, de l'acord de prêt d'un montant de trois milions sept cent mile (3 0) Dinars koweïtiens (KWD) équivalant à 087,27 dolars des Etats-Unis soit environ six miliards trois cent soixante dix milions (6 0) de francs CFA, signé le 17' décembre entre la République du Bénin et le Fonds koweïtien pour le Dévelopement Economique Arabe (FKDEA) dans le cadre du financement partiel du projet d'aménagement et de bitumage de la route Ouidah-Alada et de la bretele Pahou-Tori.
+;
+Article :
+La présente loi sera exécutée come loi de l'Etat.
+Fait à Cotonou, le juilet Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr Boni Y A Y L- Le Premier Ministre Chargé de la Cordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programe de Dénationalisation et du Dialogue Social, Pascal Irénée KOUPAKL- Le Ministre de l'Economie des Finances, Le Ministre des Travaux Publics et des Transports, Alavi Adidiatou MATHYS.- rambert KOTY.- AMPLIATIONS :
+PR AN C CS C CES HAC HCJ MDN MEF MTFP AUTRES MINISTERES SG EMG CAB/MHVPR DGBM-DCF-DGTCP-DGID BN- DAN-DLC GCONB-DGCST-INSAE-IGE-ONACVG BCP-CSM-IGA DGN-EMAT- COFA-COFN DSA-DSIA-DOPA-DMA-DGPD-DRM DGPN-DGFRN-DGDI UAC- ENAM-FADESP UNIPAR-FDSP JO 1.
