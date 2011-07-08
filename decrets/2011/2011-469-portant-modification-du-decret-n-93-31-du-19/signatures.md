@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Premier Ministre Chargé de la Coordination de I'Action Gouvernementale, de I'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, ?,rAr Le Ministre de l'Economie et des Finances, Alavi Adidiatou MATHYS.- Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, AK vi Marie-Elise Christiana GBEDO AMPLIATIONS : PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 PWCCAGEPPPDDS 4 MEF 4 GS/MJLDH 4 AUTRES MINISTERES 23 SGG 4 DGBM.DCF.DGTCP.DGID-DGDOI 5 BN'AN.DLC 3 GCOMB.DGCST]NSAE 3 BCP.CSiil-IGAA 3 UAC. ENAM - FADESP 3- UNIPAR - FDsP 2 TNTEREsSE t ot to t -.t. ./ (/Y Pascal Irénée KOUPAKI
