@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 08 juillet 2011 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, 2,ga Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Hommes, Le Ministre de l'Economie et des Finances, Akuavi Marie-Elis e Christiana GBEDO Alayi Adidiatou MATHYS AMPLIATIONS:PR6 AN4 CS2 CC2 CES 2 HAAC 2 HCJ2 Pi/UCCAGEPPPDDS4MEF4GS/MJLDH 4 AUTRES MINISTERES 23 SGG 4 OGBM-DCF-DGTCP-DGID.DGDDI 5 BN-DAN.DLC 3 GCONB-DGCST-INSAE.IGE 4 BCP-CSM- IGAA 3 UAC-ENAM-FADESP 3 UNTPAR -FOSp 02 1 JO 1.- 6 ,z r Dr Boni YAYI Pascal lrénée KOUPAKI
