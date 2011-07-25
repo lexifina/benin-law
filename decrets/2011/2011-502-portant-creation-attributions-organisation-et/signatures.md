@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 25 juillet 2011 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, ) Article 4.-. Les activités de ladite Commission, ainsi créée, sont placées sous la coordination du Garde des Sceaux, ttlinistre de la Justice, de la Législation et des Droits de l'Homme, Porte-Parole du Gouvernement.
+6.' Dr Boni YAYI Le Premier Ministre Chargé de la Coordination, de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, W Le lvlinistre de I'Economie et des Finances, AUE!!ÀIL9|§: PR6AN 4CS 2 CC2 CESZ HAAC2 HCJ2 PM/CCAGEPPDDS 4 MEF 4 AUTRES MINISTERES 24 SGG 4 DGBM-DCF-DGTCP.DGID.DGDDI 5 BN-DAN.DLC]GE 4 GCOMB-DGCST.INSAE.IGE 4 BCP.CSM]GAA 3 UAC- ENAM-FADESP 3 UNTPAR-FDSP 2 JO 1.?- -) Pascal lrénée KOUPAKI AlaviAdidiatou MATHYS a/
