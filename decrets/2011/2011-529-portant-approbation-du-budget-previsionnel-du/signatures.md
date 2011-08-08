@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le Aour 2011 Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, Dr Boni YAYI.- Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de I'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, Le Ministre Délégué auprès du Président de la République, Chargé de l'Economie Maritime, des Transports [/aritimes et lnfrastructures Portuaires. Porte-Parole d u Gouvernement, êUE!]4!oT§:PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 HCJ 2 PM/CCAGEPPPDDS 4 MEF 4IuOCEMTMIP/PR 4 AUTRES MINISTERES 23 SGG 4 DGBM.DCF.DGTCP.DGID.OGDDI 5 BN.DAN-OI.C S CCO}.IE.OCCST-INSAE-IGE 4 BCP.CSMIGAA 3 UAC-ENAM-FAOESP 3 UN|PAR-FOSP 2 pAC 2 JOl. 7u,, ?,ng.
+Pascal lrénée KOUPAKI Le Ministre de l'Economie et des Finances, Alavi Adidiatou MATHYS Babalola Jean-Michel Hervé ABIMBOLA {h" ry
