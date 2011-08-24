@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 24 AOUr 2011 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, a û) + Dr BoniYAYI Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, €uw' a Le l\/inistre du Iravail et de la Fonction Publique, Mëmouna KORA KILEADI Pascal lrénée KOUPAKI Le Ministre de Ia Réforme Administrative et lnstitutionnelle, AMPLIATIONS: PR6;AN4i CS2; CC2; CES2; HAAC 2i HCJ 2 ; MP/CCAGEPPPODS 4 :MfFp 4 ; MRA| 4;AUTRES MINISTERES 23; SGG 4 ; DGAE - DGCPE 2 - PAC 2 ; DGBM-DCF-DGTCP-DG|D-DGDD| S ; BN-DAN_DLC_|cE + CCOMB- DGCST-INSAE-IGE 4:BCP-CSMJGAA 3; UAC-ENAM-FADESp 3; UN|PAR-FDSp2 1 JO j. (J\,r a ü- MartialSOUNTON
