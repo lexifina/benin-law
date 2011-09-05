@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le Os Seprembre 2011 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, db& oni Y YI ) Le Premier Ministre Chargé de la Coordination de I'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, Le Ministre de l'lntérieur et Le Ministre de la Communication et des Technologies de l'lnformation et de la Communication, De la Sécurité Publique, Assouan Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, Chris Ampliations j PR06;AN 04; CS 02; CCo 2; CES 02;t-tAAC 02:HCJ02: PM/CCAGEPPPDOS 04;GS /MJLDM 04 MISP 04;AUTRES MINISTERES 22; SGc 04; lcE 01 ; tvlCTlC 04 ; DGB-DCF-DGTC 05; BN-DAN-DLC 03 iGCONB- DGCST-INSAE 03 i BCP-CSM-IGAA 3 ; UAC-BU-ENAM-FADESP 3 : UNtpAR FDSP 2 : JO Oi.
+d'f Pasca! !rénée KOUPAKI Max Barthélémv AHOUEKE
