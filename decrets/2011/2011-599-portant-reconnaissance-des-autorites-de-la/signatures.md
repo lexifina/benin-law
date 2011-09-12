@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 12 septembre 201 1 Par le Président de la République, Chef de l'État, Chef du Gouvernement, Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Décentralisation et du Dialogue Social, P,m LU Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, Porte-Parole du Gouvernement, l'Extérieur, ARI AMPLIATIONS: PR 6AN 4 CS 2 CC 2 CES 2I-IAAC 2 PiI/CCAGEPPPDDS 4 ITAEIAFBE 4 SG/I4JLDH-PPG 4 AUTRES MINISTERES 23 SGG 4 DGBI\,1-DCF-DGTCP-DGID-DGDDI 5 BN-DAN-DLC 3 GCOMB-DGCST-INSAE 3 BCP-CSM-IGAA 3 UAC- ENAM _ FADESP 3. UNIPAR _ FDSP 2 JO 1,.
+/tf Dr BoniYAY| Pascal lrénée KOUPAKI Le Ministre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de Akuavi Marie-Elise Christiana GBEDO
