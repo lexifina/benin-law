@@ -1,0 +1,5 @@
+# Visas
+
+REPUBLIQUE DU BENIN PRESIDENCE DE LAREPUBLIQUE Décret No 2011 --âL2..Àu..2.0..Sep.remhre 201 1 Chargeant Monsieur Raphaêl EDOU, Ministre de la Décentralisation, de la Gouvemance Locale, de I'Administration et de l'Aménagement du Territoire (IvIDGLAAT) de l'Intérim de Monsieur DJENONTIN-AGOSSOU Valentin Ministre de la Cüture, de l'Alphabétisation, de I'Artisanat et du Tourisme, pour compter du Dimanche 18 septembre 201 1 au Dimanche 25 septembre 2011 LE PR"ESIDENT DE LA R-EPUBLIQUE, CHEFDE L'ETAT, CHEF DU GOTIVERNEMENT Vu la Loi no 90-032 du l1 décembre 1990 portant Constitution de la République du Bénin ;
+Vu la proclamation le 29 mars 2011 par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du l3 mars 2011 ;
+Vu le décret n' 2011-500 du 11 juillet 201lportant composition du Gouvemement ; Vu le décret 2011-598 du l1 septembre20ll, chargeant Monsieur Issifou KOGUI N'DO[ RO, Ministre d'Etat chargé de la Défense Nationale de l'Intérim du Président de la République. DECRETE
