@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le20 Septembre 2011 Pour le Président de la République, Chef de lEtat, Chef du Gouvernement absent et P.0., Monsieur lssifou KOGUI I{DOURO, Ministre dEtat Chargé de la Défense Nationale de lintérim du Chef de tEtat, Pour compter du lundi '19 au jeudi 22 septembre 2011, Madame Safiatou BASSABI, MinistreChargée des Relations avec les lnstitutions est chargée de llntérim de lVadame Fatouma AMADOU DJIBRIL, Ministre de la Famille, des Affaires Sociales, de la Solidarité Nationale, des Handicapés et des Personnes de Troisième Âge pendant son absence. ) *,f*{t** LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT, DECRETE lssifou KOGUI N'DOURO Ampliations: pR10-AN6-cc2-cs2-cES2-HAAC2-MECDN2-pM/ccAGEPPPDos4-scc+ Autres ministères 24
