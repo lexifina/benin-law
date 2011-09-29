@@ -1,0 +1,7 @@
+# Visas
+
+REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE DECRETN2n:-:_0:O du 29 Seprenbre 2011 Chargeant Monsieur Jonas GBIAN, Ministre de l'Energie, des Recherches Pétrolières et l\tlinières, de l'Eau et du Développement des Energies Renouvelables, de l'intérim de Monsieur Nassirou BAKO-ARIFARI, Ministre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de l'Extêrieur pour compter du lundi 04 au jeudi 0Tseptembre 2011.
+LE PRESIDENT DE LA REPUBLIQUE CHEF DE L'ETAT, CHEF DU GOUVERNEMENT, VU la loi N" 90-032 du 1 'l décembre 1990 porlant Constitution de la République du Bênin ;
+VU la proclamation le 29 mars 2011 par la Cour Constitutionnelle des résultats définitifs de l'élection Présidentielle du 13 mars 201 1 ;
+VU le décret n' 2011-450 du 28 mai 201 1 , portant composition du Gouvemement ; Fait à Cotonou, le 29 Septenbre 2011 Par Le Président de la République, Chef de l'Etat, Chef du Gouvernement, Ampliations : PR6-AN 4- cC2-cS 2-cES2-HAAC 2- HcJ 2- MAEIAFBE 4- SGG 4 - Autres Ministères 25 - Départements 6 - JORB 1.
+"H DECRETE Article 1e,: Pour compter du lundi 04 septembre 201 1 , Monsieur Jonas GBIAN, Minlstre de I'Energie, des Recherches Pétrolières et Minières, de l'Eau et du Développement des Energies Renouvelables est chargé de l'intérim de Monsieur Nassirou BAKO.ARIFARI, Ministre des Affaires Ehangères, de l'lntégration Africaine, de la Francophonie et des Béninois de l'Extérieur.
