@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 5 ocrobre Par le Président de la République, de l'Etat, Chef du Gouvernement, Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de I'Evaluation des Politiques publiques, du Programme de Dénationalisation et du Dialogue Social, ?,oW Pascal lrén KOUPAKI Le Ministre de l'Economie et et des Finances, Le Ministre de la Santé, h Dr BoniYAY| AlaviAdidiatou MATHYS Dorothée Akoko KINDE GAZARD AMeUÀIIgNs: pRO AN4 CS2 CC2 CES2 HAAC 2 HCJz PI\4/CCAGEPPPDDS 4MEF4MS4 AUTRES MINISTERES 23 56ô-a oeaM-Dcr.oGTcp-DGtD-DcDDt 5 BN-DAN-DLC 3 ccoNB-Dccsr-tNSAE-rcE 4 Bcp-csM{GAA 3 uAc-ENAM-FADESP 3 UNIPAR -FDSP 02 CAMES 1 JO 1,-
