@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le s octob re 2o 11 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social' /*ye Le Ministre de l'Economie et des Finances, Le Ministre de I'Agriculture, de l'Elevage et de la Pêche, q AlaviAdldlatou MATHYS Katé SABAI ^UEL!ÂIj9!§:PR6AN4CS2CCzCES2tlAAC2HCJ2pi'ÿECPDEPPCAG4i/tAEP4MEF4AUTRESMINISTERES23 scc 4 DcBlü-.DcF-oorcp-oct+ocôoi î eN-OAN-ol-c : èCONS-occSI-INSAEJGE 4 BCP-CSM-IGAA 3 UAc.ENAM' FADESP 3 UNIPAR -FDSP 02 CeRPA 6 CARDER 6 JO 1.- okr Dr BoniYAY| Pascal lrénée KOUPAK!
