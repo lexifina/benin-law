@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le t+ ocrobre 2011 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, iYAYI.- Dr Bo Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de I'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, î,,,^y Pas llrénée KOU PAKI Le Ministre de I'Economie et des Finances, Le Ministre de l'Energie, des Recherches Pétrolières et Minières, de l'Eau et du Développement des Energies Renouvelables, Alavi Adidiatou MATHYS.- &EllAMIg: PR 6- AN 4- CC 2 - CS 2 - HAAC 2 - CES 2 - HCJ 2 PIII/oCAGEPPDDS 4 MAEIAFBE 4 AUTRES iIINISIERES 24- SGG 4 . DGBM-DCF-DGTCP.DGID.DGDDI 5- BN.DAN-DLG 3 - GCONB-DCCT.INSAE 3- BCP.CSN.IGM 3- UAC-ENAM.FASJEP 3. UNIPAR-FDSP 2. JO 1-- OB
