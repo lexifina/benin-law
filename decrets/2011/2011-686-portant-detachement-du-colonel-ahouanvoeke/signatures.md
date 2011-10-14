@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à COtOnou, le 14 octobre 20I1 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, Le Ministre d'Etat Chargé de la Défense Nationale, AllELlAIlqI§ : PR 6 AN 4 CS 2 CC2 CES2 HAAC 2 HCJ2 PM/CCAGEPPDDS MACDN 4 AUIRES MINISTERES 24 5ê-c a oe ei,l-ocp-DGTcP-DctD-DGDDt 5 BN-DAN-DLc-IcE 4 GcoMB-DGCST-INSAE-IGE 4 BcP-cSM-lGl.a 3 UAC- ENAM-FADESP 3 UNIPAR.FDSP 2 INTERESSE O'I JO 1, * DrBoni YAYI o*w Pascal lrénée KOUPAKI ) lssifou KOGUI N'DOURO
