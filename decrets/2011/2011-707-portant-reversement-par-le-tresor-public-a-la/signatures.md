@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le zt ocrobre zo11 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr BoniYAY| Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, t*"w Le Ministre du Développement, de l'Analyse Economique et de la Prospective, Le Ministre Délégué auprès du Président de la République, Chargé de l'Economie Maritime, des Transports Maritimes et des I nfrastructures Portuaires, ) Marcel Ala de SOUZA Le Ministre de l'Economie des Finances, AlaviAdidiatou MATHYS AMPLIATIONS: PR6 AN4 CC2 CS2 HAAC 2 MDAEP4 MDCEMTMIP-PR 4 MEF4AUTRES MINISTERES 27 SGG 4 DGBM-DCF-BGTCP-DGID.DGDDI 5 BN-DAN-DLC 3 GCONB-DGCST-INSAE 3 BCP.CSM.IGAA 3 UAC-ENAM-FADESP 3 UNIPAR-FDSP 2 JO I.
+T- -t tJllf 4ffi Pascal lrénée KOUPAKI Babalola Jean-Michel Hervé ABIMBOLA
