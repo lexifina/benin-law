@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 21 ocrobre 2011 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, ât ,"LL Dr Boni YAYI Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, P**po '--l--- Le Ministre de l'Economie et des Finances, Le Ministre du Développement, de l'Analyse Economique, \ de SOUZA AmDIiatJons: PR 6AN 85 CC 2 CS 2 CES 2 HAAC 2 HCJ 2 PM/CÀGEPPPDDS 4 MEF 4 AUTRES MINISTTRES 22 sGG 4 DGBM.DCF.DGTCP. DGID-DGDDI 5 BN-DAN-DLC 3 GC0M8-DGCST.INSAE 3 BCP.CSM.IGAÂ 3 UÂC.ENÀ\^.FÀDESP 3 UNIPAR-Fo5P 2 JO 1. dà Pascal lrénée KOUPAKI AlaviAdidiatou MATHYS
