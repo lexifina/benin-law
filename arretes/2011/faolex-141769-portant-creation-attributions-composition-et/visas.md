@@ -1,0 +1,5 @@
+# Visas
+
+1912/2015 ARRETE pcrta,t creatim , attributions, corn position et fmctiornement du comite de m a-Q.Je de certificatim pour les referentiels sur les produits AG ... ARRETE portant creation, attributions, composition et fonctionnement du comite de marque de certification pour les referentiels sur les produits AGROALIMENTAIRES LE MINISTRE DE L'INDUSTRIE, DU COMMERCE ET DES PETITES MOY ENNES ENTREPRISES, Vu la Loi n' 90-032 du 11 deceroore 1990, portant. Constitution de la Republiqu e du Benin ; Vu La Proclamation le 29 mars 2011, par la Cour Constitution nelle des resultats definitits de !'election presidentielle du 13 mars 2011 :
+Vu le Decret n' 2011-700 du 11 juillet 2011, portant composition du Gouvemement: Vu le Decret n' 2006-268 du 14 juin 2006, fixant la structure-type des Ministeres : Vu le Decret. n' 2009-180 du 05 mai 2009 portant attributions, organisation et fonctionnement du Ministere de l'lndustrie : Vu le Decret n' 2010-477 du 05 novembre 2010 portant creation attributions, organisation et fonctionnement de l'Agence Beninoise de Normalisation et de Gestion de la Qualite (ABeNOR) Considerant les necessites de service :
+ARRETE •
