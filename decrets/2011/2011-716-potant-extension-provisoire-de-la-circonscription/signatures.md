@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Çotonou, le 02 novembre ;911 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement.
+Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de I'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, l L il' Pascal lrénée KOUPAKI ?w«r"to -n- Dr BoniYAY| Le Ministre de l'Economie et des Finances, Le Ministre Délégué auprès du Président de la République, Chargé de l'Economie Maritime, des Transports et des lnfrastructures Portuaires, Baba tc rvé ABI LA AMPLIATIoNSIPR6AN4cS2cc2cES2l-lAAc2HcJ2PM/CoAGEPPPDDS4MEF4GS/MJLDH4AUTRES fiffiÈrE''àËri à'cc'ibèar,r--ôcÈ-oôrôpoèro-ocoor 5 BN-DAN-DLc 3 GcoNB-Dccsr-tNSAE-IcE 4 BcP-csM- IGAA 3 UAC.ENAM-FADESP 3 UNIPAR.FDSP 02 1 JO 1.' -'.-l rt KO tu{ Alavi Adidiatou MATHYS Le Ministre des Travaux et des Transports,
