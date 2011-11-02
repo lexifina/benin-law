@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le Oz novembre 201 1 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr BoniYAYI Le Premier Ministre Chargé de la Goordination de l'Action Gouvernementale de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation Et du Dialogue Social, 0,«*,,tc -t- Le Ministre de la Communication et des Technologies de l'lnformation et de la Communicalion, Le Ministre de l'Economie et des Finances, &gUÀM§_: PR6 AN4 cS2 cC2 CC 2 CES2 HAAC 2 HCJ 2 MECPDEPPCAG 4 MCTIC 4 MEF 4 AUTRES MINISTERES 23 SGG4 DGBM.DCF.DGTCP-DGDDI 5 BN.DAN-DLC 3 GCOIIB-DCCT-INSAE 3 BCP-CSi'-IGAA 3 UAC. ENAM-FADESP 3. UNIPAR-FDSP 2 JO1.- 0b éÇ/ Pascal lrénée KOUPAKI Max Barthélémv AHOUEKE AlaviAdidiatou MATHYS
