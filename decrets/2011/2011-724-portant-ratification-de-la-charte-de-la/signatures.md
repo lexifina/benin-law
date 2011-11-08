@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 08 novembre 2011 Par le Président de la RéPublique, Chef de l'Etat, Chef du Gouvernement' oJh Dr Bo iYAYI.- Le Premier Ministre, Chargé de la Coordination de l'Action Gouvernementale, de l'Evaluation des Politiques publiques, du Programme de Dénationalisation et du Dialogue Social, P"y:
+Le Ministre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de Pascal lrénée KOUPAKI.- Le Ministre de la Culture, de l'Alphabétisation, de l'Artisanat, et du Tourisme, l'Extérieu r, Nassi u BAKO IFARI.- Valentin DJ ENONTIN-AGOSSOU.- Garde des Sceaux, Ministre de la justice, de la Législation et des Droits de Homme, Porte-Parole du Gouvernement, Mari Chri GBED AMPLIATIONS: PR 6. AN 4- CC 2. CS 2 - HAAC 2 - CES 2. HCJ 2- PIVI/CCAGEPPDDS 4. MCAAr- AUTRES I\JIINISTERES 24- SGG 4. DGBM-DCF-DGTCP-DGID-DGDDI 5- BN.DAN-DLC- 3 - GCONB-OCCT-INSAE 3- BCP.CSN.IGAA 3- UAC-ENAM-FASJEP 3- UNIPAR-FDSP 2- JO 1 - '2
