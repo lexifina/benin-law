@@ -1,0 +1,6 @@
+# Visas
+
+BEPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLTeUE )ubtique DECRET N' 2 01 1 - 7 2 5 du 8 n0vembre 20tl Chargeant lVonsieur Bénoit Assouan C. DEGLA, Ministre de l'lntérieur et de la Sécurité Publique, de l'intérim de Monsieur Nassirou ARIFARI-BAKO, Miniske des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de l'Extérieur pour compter du Dimanche 1i au Mardi 20 septembre 2011 définitifs de l'élection LE PRESIDENT DE LA REPUBLIQUE CHEF DE L'ETAT, CHEF DU GOUVERNEMENT, VU la loi N' 90-032 du 11 décembre Igg0 portant Constitution de la République du Bénin ;
+VU la proclamation le 29 mars 2011 par la Cour Constitutionnelle des résultats Présidentielle du 13 mars 201 1 ;
+VU le décret n' 201 1-450 du 28 nai 2011 , portant composition du Gouvemement ; VU ledécretn'2011-59Bdu11septembre20,l1,chargean|\IonsieurlssifouKOGUl N'DOURO, Ministre d'Etat chargé de ra Défense Nationare de r'rntérim du président de la République ;
+DECRETE êd!g!e-!g: Pour compter du Dimanche 11 septembre 201'1, l\Ionsieur Benoît Assouan c. DEGLA, It/inistre de l'lntérieur et de la Sécurité Publique est chargé de l'intérim de Monsieur Nassirou BAK9. ARIFARI, Minishe des Affaires Etrangères, de l'lntégration Africaine, de la FrancophorÀ .i 0., Béninois de I'Extérieur.
