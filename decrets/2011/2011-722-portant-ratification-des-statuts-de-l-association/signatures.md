@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à COIOnOU, le 8 novembre 2011 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, ü I Dr Boni YAYI Le Premier l\4inistre Chargé de la Coordination de I'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, P,,,19, Le lVlinistre de la Culture, de l'Alphabétisation, de l'Artisanat et du Tourisme, Le tvlinistre de l'lndustrie, du Commerce, des Petites et Moyennes Entreprises ntin DJE TI -A OS AMOtiAtiONs: PR6AN85 CC2 CS2CES 2 HAAC 2 HCJ 2 PM/CAGEPPPDDS 4 MEF 4 AUTRES MINIsTERES 22 5664 D68M-DCF.DGTCP. DGID.DGDDI 5 BN.DAN.DLC 3 GCOMB.DGCST.INSÀE 3 BCP.CSM.16AA ] UAC.ENAA,I.FADESP 3 UNIPAR.FDSP 2 JO 1, rH, t Pascal lrénée KOUPAKI Madina SEPHOU il
