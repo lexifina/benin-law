@@ -1,0 +1,7 @@
+# Visas
+
+REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE DECRET N" 2011-741 du 8 novembre 2011 Chargeant lVonsieur Jonas GBIAN, Ministre de I'Energie, des Recherches Pétrolières et Minières, de l'Eau et du Développement des Energies Renouvelables, de l'intérim de Monsieur Nassirou BAKO-ARIFARI, Ministre des Affaires Etrangères, de I'lntégration Africaine, de la Francophonie et des Béninois de l'Extérieur pour compter du jeudi 22 septembre au 10 octobre 2011.
+LE PRESIDENT DE LA REPUBLIOUE CHEF DE L'ETAT, CHEF DU GOUVERNEMENT, VU la loi N' 90-032 du 1 1 décembre 1990 portant Constitution de la Répubtique du Bénin ;
+VU la proclamation le 29 mars 2011 par la Cour Constitutionnelle des résultats déflnitifs de l'élection Présidentielle du 13 mars 201 1 ;
+VU le décret n" 201 1450 du 28 nai 2011 , portant composition du Gouvemement ; Par Le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI Ampliations : pR6-AN 4- cc 2- cs 2-cEs2- HAAC 2_HcJ 2.MAE|AFBE 4_ SGG 4 - Auhes Ministères 25 - Départements 6 - JORB 1.
+DECRETE 4dig!g-!g: Pour compter du leudi 22 septembre, Monsieur Jonas GBIAN, Miniske de l,Energie, des Recherches Pétrolières et l/inières, de I'Eau et du Développement des Energies RenouvelaËles est chargé de l'intérim de lr/onsieur Nassirou BAKO-AR|FAR|, Ministre des Àffaires Etrangères, de l'lntégration Africaine, de Ia Francophonie et des Béninois de l,Extérieur.
