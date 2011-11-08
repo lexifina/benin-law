@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 8 novembre 2011 Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, & Dr Boni YAYI Le Premier lilinistre Chargé de la Coordination de l'Action Gouvernementale, de I'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, P*g Pascal lrénée KOUPAKI Le Ministre de la Culture, de l'Alphabétisation, de l'Artisanat et du Tourisme, Le Ministre de l'lndustrie, du Commerce, des Petites et Moyennes Entreprises Va ENO SSOU AMOIiATJONS: PR 6 AN 85 CC 2 C5 2 CES 2 HAAC 2 HCJ Z PM/CAGEPPPDDS 4 MEF 4 AUTRES MINISTERES 22 sGG 4 D6EM-DCF.DGTCP. DGID.DGDDI 5 EN.DAN.DLC 3 GCOMB.DGCST.INSAE 3 BCP.CSM.IGAA 3 UAC.ENAM.FADESP 3 UNIPAR.FDSP 2 JO 1, A Madina SEPHOU ÿ
