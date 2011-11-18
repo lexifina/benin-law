@@ -1,0 +1,10 @@
+# Loi n° 2011-33 du 18 novembre 2011 portant autorisation de ratification de l'accord de financement signé le 07 juin 2011 entre la République du Bénin et l'Association Internationale de Développement (AID) dans le cadre du financement du Projet d'Urgence Environnementale en Milieu Urbain (PUGEMU)
+
+REPUBLIQUE DU BENIN FRATERNfTE- JU8TM -TRAVAIL PRESIDENCE DE LA REPUBLIQUE LOI N°201-3 DU NOVEMBRE portant autorisation de ratification de l'acord de financement signé le juin entre la République du Bénin et l'Asociation Internationale de Dévelopement (AID) dans le cadre du financement du Projet d'Urgence Environementale en Milieu Urbain (PUGEMU).
+L'Asemblée nationale a délibéré et adopté en sa séance du novembre 201, Le Président de la République promulgue la loi dont la teneur suit :
+Article 1er :
+Est autorisée la ratification, par le Président de la République, de l'acord de financement d'un montant de trente et un milions six cent mile (31 0) de Droits de Tirages Spéciaux, soit cinquante milions (50 0) de dolars des Etats-Unis, équivalant à vingt cinq miliards (25 0) de francs CFA signé le juin entre la République du Bénin et l'Asociation Internationale de Dévelopement (AID) dans le cadre du financement partiel du Projet d'Urgence de Gestion Environementale en Milieu Urbain (PUGEMU).
+Article :
+La présente loi sera exécutée come loi d'Etat.
+Fait à Cotonou, le novembre Par le Président de la République Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI.- Le Premier Ministre Chargé de la Cordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programe de Dénationalisation et du Dialogue Social, Pascal Irénée KOUPAKI.- Le Ministre de l'Economie et des Finances, Le Ministre de l'Environement, de l'Habitat et de l'Urbanisme, Alavi Adidiatou MATHYS.- aise Onésiphore AHANHANZO-GL AMPLIATIONS :
+PR AN C CS HAC CES HCJ PM/CAGEPDS MEHU AUTRES MINISTERES SG DGBM-DCF-DGTCP-DGID-DGDI BN-DAN-DLC- GCONB-DCT-INSAE BCP-CSN-IGA UAC-ENAM-FASJEP UNIPAR-FDSP JO 1.-
