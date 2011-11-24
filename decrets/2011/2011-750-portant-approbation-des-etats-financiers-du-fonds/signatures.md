@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le za novembre 2o l I Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI Le Premier Ministre, Chargé de la Coordination de I'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, Puq,' Le [Vlinistre de l'Economie et des Finances, Pascal lrénée KOUPAKI Le Ministre Chargé de la Microfinance, de I'Emploi des Jeunes et des Femmes, Reckya MADOUGOU AUEIIAMI§:PR6 AN4 CS2 CCz CES2 HAAC 2 HCJ2 PM/CCAGEPPPDDS 4 irEF4 AUTRES MIN 23 SGG 4 DGBM-DCF-DGTCP-DGID-DGDDI 5 BN-DAN-DLC 3 GCONB,DGCST-INSAE-IGE 4 BCP.CSM-IGAA 3 UAC- ENAiJ-FADESP 3 UNIPAR -FDSP 02 FNM 6 FNM2 JO 1.- os Alavi Adidiatou MATHYS
