@@ -1,0 +1,5 @@
+# Signatures
+
+Fait à Cotonou, le z+ novembre 2011 Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, NOM et PRENOMS GRADE DATES REFERENCE ADANZOUNON Clovis CPP 01-07-1999 décret n"2000-240 du 28 avril CDP 01-07 -2002 article 61 point 3 du décret n" 97 -622 du 30 décembre 1997 01-01-2007 article 61 point 4 du décret n' 97 -622 du 30 décembre 1997 glÀ- Dr. BoniYAY| Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, Le Ministre de l'Economie et des Finances, Le Ministre de l'lntérieur, de la Publique et des Cultes, nC lan DEGLA AUEI!ÀI!.9!§ : PR (ATCR) : 06 - AN r 04 - CC : 02 - CS : 01 - HpAC i 02 - CES : 02 - HCJ : PIVI/CCAGEPPPDDS 4 02 - MISPCI 04 - lvlEF : 04 - AUTRES MINISTERES : 28 - SGG : 04 - DGB-CF-DGTCP-DGID-DGDDI : 05 - BN-DAN-DLC : 03 - GCONB-DCCT- INSAE : 03 - BCP-CSM-IGAA | 03 - UAC-ENAII-FADESP | 03 - UNIPAR-FDSP : 03 - SYNAPOLICE : 01 -INTERESSE:01 - DOSSIER INTERESSE : 01 - CHRONO : 02 - ARCHIVES | 02 . JO : 02.
+* ?,^ry;
+Pascal lrénée KOUPAKI AlaviAdidiatou MATHYS
