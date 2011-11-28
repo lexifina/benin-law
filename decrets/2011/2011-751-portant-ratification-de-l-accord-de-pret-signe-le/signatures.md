@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le ze novenbre 2011 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI.- Le Premier ti/inistre Chargé de la Coordination de I'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, 0,«,u -r- Le lilinistre de l'Economie et des Finances, Alavi Adidiatou MATHYS.- Pas née KOUPAKI.- nest hore Le ttlinistre de l'Environnement, de l'Habitat et de l'Urbanisme, AHANHANZO-GLE AMPLIATIONS I PR 6- AN 4- CC 2 - CS 2 - HAAC 2 - HU 4 AUTRES I\,lINISTERES 23- SGG 4 - DGBM.DCF.DGTCP.DGID.DGDDI 5- BN-DAN-DLC- 3 - GCONB-DCCÏ.INSAE 3- BCP-CSN-IGAA 3- UAC-ENAIV]-FASJEP 3- UNIPAR-FDSP 2- JO 1.-
