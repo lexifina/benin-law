@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou,le 29 décembre 201 1 Par le Président de la RéPublique, Chef de I'Etat, Chef du Gouvernement, Dr Boni YAYI.- Le Premier t\Iinistre, Chargé de la Coordination de l'Action Gouvernementale, de I'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, (?,Â# Pascallrénée KOUPAKI.- Le Ministre de l'Economie et des Finances, Le Ministre des Travaux Publics et des Transports, Alavi Ad idiatou MATHYS.- ert KOTY.- AMPLI TIONS : PR 6-AN 4-CC2- CS2-HAAC2-CES2- HCJ 2PM/CCAGEPPDDS4 MTPT4 AUTRES MINISTERES 23- SGG 4 - DGBI\,'I-DCF.DGTCP-DGID-DGDDI 5- BN-DAN-DLC. 3. GCONB-DCCT-INSAE 3- BCP-CSN-IGAA 3- UAC-ENAM-FASJEP 3- UNIPAR-FDSP 2- JO1-- dê'
