@@ -1,0 +1,4 @@
+# Visas
+
+REPUBLIQUE DU BENIN Décret N" 2011-7.7A.du,.SQ .qcYembre 201 Fraternité J ustice Travail PRESIDENCE DE LA REPUBLIQUE Chargeant Monsieur Didier AKPLOGAN DJIBODE Ministre de la Jeuuesse des Sp<lrts et Loisirs de I'Intérim de Monsieur DJENONTII* - AGOSSOU Valentin N{inistre de la Çulture, de I'Alphabétisation, de l'Artisanat et du Tourisrnc, pour compter du Lundi 14 au Lundi 2l Novembre 201I LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT !Lr ta Loi rr" 90-032 tlu I I tlécettttrre 1990 porrant Constittrtion dc la RépubJiquc tlu Bénin ; Vu la proclamation lc l9 mars 201 I par la Cour Constitutionnelle des résttltaLs tléiinitifs de ['élection ptésidentielle tlu 13 mats 201 ] ;
+Vu le déclet n'2011-500 du I I .luillet 201 I portant contpositiort cltt Go u verrtetrt cttt ; DECIIETE
