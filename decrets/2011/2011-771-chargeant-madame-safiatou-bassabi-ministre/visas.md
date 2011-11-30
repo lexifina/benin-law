@@ -1,0 +1,5 @@
+# Visas
+
+REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE DEGRETNo 2011-771 du 30 novembre 2011 Chargeant Madame Safiatou BASSABI, lvlinistre Chargée des Relalions avec les Instilutions, de l'intérim de [,4adame Fatouma AMADOU DJIBRIL, Miniske de la Famille, des Affaires Sociales, de la Solidarité Nationale, des Handicapés et des Personnes de Troisième Âge, pour compter du 21 octobre au I 1 novembre 2011 LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT CHEF DU GOUVERNEüENT, Vu la loi n" 90-032 du 11 décembre 1990, portant Constitution de la République du Bénin ; Vu la proclamation, le 29 mars 2006 par la Cour Constitutionnelle, des résultats définitifs de l'élection présidentielle du 19 mars 2006 ;
+Vu le décret n" 201 1-500 du 1 1 juillet 201 1 portant composition du Gouvernement ; DECRETE Article 1e, :
+Pour compter du 21 octobre au 11 novembre 2011, Madame Safiatou BASSABI, lVinistre Chargée des Relations avec les lnstitutions, est chargée de l'lntérim de Madame Fatouma AMADOU DJIBRIL, Ministre de la Famille, des Affaires Sociales, de la Solidarité Nationale, des Handicapés et des Personnes de Troisième Âge pendant son absence.
