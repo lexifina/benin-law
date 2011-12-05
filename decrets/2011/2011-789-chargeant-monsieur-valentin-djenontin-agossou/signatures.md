@@ -1,0 +1,6 @@
+# Signatures
+
+Fait à Cotonou, I cenbre 20l l e Par le Président de la République, Clhef de 1'Etat, Chef du Gouvernement, oni YAY! AMPLI ATIONS :PR6-AN4- CS2- CES2-HAAC2-MCAT4- SGGl- Autres Ministères 25 ù DEPARTEM ENTS 6 - JO 1 REPUBLIOU E DU BENIN I +- RT,PLJBLIQUE DU BENIN MINISTERE DE L'INDUS-IRIE. DU COMMERCE DES PETITES ET MOYENNES ENTREPRISES CABINET n" 5 5 E lnarcpME/DClsP-c Cotonou. le 29 noventbre 201I -[.a lvlinktre t-) Monsieur le Secrétaire Général du Gouvernement Pour le Ministre de l'lndustrie, du Commerce, des Petites et Moyennes Entreprises p.D Le Directeur de Obiet : Au sujet de mon intérim pour compter du lundi 28 novembre au jeudi 01 décembre 2011 J'ai l'honneur de porter à votre connaissance que je serai absente du territoire pour compter du lundi 28 novembre au jeudi 01 décembre 2oLt. Je prendrai part à la journée du Bénin le 28 novembre à l'occasion de la Foire de la cEDEAo à Lomé et à la session comité ministérielle des négociations de l'Accord de Partenariat Economique (ApE) organisé par la CEDEAO, quiaura lieu à Accra le 30 novembre 20j_1.
+Pendant cette période, mon intérim sera assuré, par Monsieur valentin DJENONTIN AGOSSOU, Ministre de la Culture, de l,Artisanat et du Tourisme.
+R§ m À P.J. : 1 Copie au MCAT amA COTONOU tECRETARt,{T G ËI'{ I RAI.
+lo* L^llY &'3- )l - /tt -''1*' j"t 4o \§' \X?-"a. d,
