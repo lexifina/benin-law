@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonolr, le 6 6o."r6..
+Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, û r Boni YAYI.- Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, 0,,ry PascaI lrénée KOUPAKI.- Le l\4inistre de l'lntérieur, de la Sécurité Publique et des Cultes, Le Ministre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de l'Extérieur, Benoît Assou c lan D A.- N BAKO A IF a.ue!!ÀIqN§ : pR 6- -AN 4- CC 2 - CS 2 - HAAC 2 - CES 2 - HCJ 2 PM/CCAGEPPDDS 4 MAEIAFBE 4 MISPC 4 AUTRES rvrr-frEïËFEE;:- SGc 4 - DGB|\,-DCF-DGTCP-DGID-DGDDI 5- BN-DAN-DLC- 3 - cCONB-DccT-INSAE 3- BCP-CSN-IGAA 3- UÀC-ENAIVI.FASJEP 3- UNIPAR-FDSP 2- JO 1,- db
