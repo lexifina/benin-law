@@ -1,0 +1,9 @@
+# Loi n° 2011-40 du 28 décembre 2011 portant autorisation de ratification de l'accord portant création l'amendement de la convention de bâle sur le contrôle des mouvements transfrontières de déchets dangereux et leur élimination, adopté à Genève (Suisse) le 22 septembre 1995
+
+JMA.- REPUÔLIQUE DU BENIN frXtgivhite-justice-travail PRESIDENCE DE LA REPUBLIQUE LOI N° DU DECEMBRE portant autorisation de ratification de l'acord portant création l'amendement de la convention de bâle sur le contrôle des mouvements transfrontières de déchets dangereux et leur élimination, adopté à Genève (Suise) le septembre 195.
+L'Asemblée Nationale a délibéré et adopté, en sa séance du décembre 201, Le Président de la République promulgue la loi dont la teneur suit :
+Article 1er :
+Est autorisée la ratification, par le Président de la République, de l'amendement de la convention de bâle sur le contrôle des mouvements transfrontières de déchets dangereux et leur élimination, adopté à Genève (Suise) le septembre 195.
+Article :
+La présente loi sera exécutée come loi de l'Etat.
+Fait à Cotonou, le décembre 201, Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI Le Premier Ministre Chargé de la Cordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programe de Dénationalisation et du Dialogue Social, Pascal Irénée KOUPAKI Le Ministre des Afaires Etrangères, de l'Intégration Africaine, de la Francophonie et des Béninois de l'Extérieur, Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Home, Porte-Parole du Gouvernement, i Nasirou BAKO ARIFARI Aku arie-Elise Christiana GBEDO Le Ministre de l'Environement, de l'Habitat et de l'Urbanisme, Biaise OnesiDhore AHANHANZO GLELE Ampliations : PR AN C CS CES HAC HCJ PM/CAGEPDS MEF AUTRES MINISTERES SG DGBM- DCF-DGTCP-DGID-DGDI BN-DAN-DLC GCOMB-DGCST-INSAE BCP-CSM-IGA UAC-ENAM-FADESP UNIPAR-FDSP 2JO1.
