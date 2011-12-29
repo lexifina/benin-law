@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 29 décem Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Premier Ministre, Chargé de oordination de l'Action Gouvernementale, de l'Evalua des Politiques Publiques, du Programme de Dénation tion et du Dialogue Social, Le Ministre de l'Economie et des Finances, Le Ministre Chargé de la Microfinance, de l'Emploi des Jeunes et des Femmes, Reckva MADOUGOU AMPLIATIONSiPR6 AN4 CS2 CC2 CES 2 HAAC 2 HCJ 2 PM/CCAGEPPPDDS 4 IVIEF4iICMEJF4AUTRES MINISTERES 23 SGG 4 DGBM-DCF-DGTCP-DGID-DGDDI 5 BN-DAN-oLC 3 GCONB-DGCST-INSAEJGE 4 BCP-CS|\,I- IGAA 3 UAC-ENAM-FADE§P 3 UNIPAR -FDSP 02 FNM 6 FNPEEJ 2 JO 1.- Ek Dr Boni YAYI ?"W Pascal lrénée KOUPAKI Alavi Adidiatou MATHYS
