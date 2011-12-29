@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 29 décembre 2O1 1 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI Article 2 : Les soldes et accessoires des intéressés sont mandatés t" ?6 Le Premier t\4inistre Chargé de la Coordination de I'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, Le Ministre du Travail et de la Fonction Publique, Mëmouna KORA KILEADI.- Le Ministre de l'Enseignement Supérieur et de la Recherche Scientifique, Francois Adebavo ABIOLA Alavi Adidiatou MATHYS.- A-U8!!AlLgX§ r PR 6 AN 4 CS 2 CC 2 CES2 HAAC 2 HCJ 2 PIVI/CCAGEPPPDDS 4 MEF4 IrTFP 4 iTESRS 4AUTRES IVlINISTERES 22 SGG 4 DGBM-DCF-DGTCP.DGID.DGDDI 5 BN.DAN.OLC 3 GCOMB-DGCST-INSAE 3 BCP-CSIV]-IGAA 3 UAC- ENATI - FADESP 3- UNIPAR - FDSP 2 JO 'I,.
+IIM É4 P"gr Pascal lrénée KOUPAKI Le Ministre de l'Economie et des Finances,
