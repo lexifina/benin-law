@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, lê 30 decembre 2011 Par le Président de la République, Chef de I'Etat, chef du Gouvernement, i Le Ministre de l'Economie et des Finances, Le Premier Ministre Chargé de la Gouverneme ntale, de l'Evaluation rdination de l'Action Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, Le Ministre de l'Agriculture, de l'Elevage et de la Pêche, Katé SABAÏ AMpLIATIONS : PR 6 AN 4 CS 2 CC2 CES2 HAAC 2 PM/CCAGEPPPDDS 4 l\4EF 4 MAEP4AUTRES [,rtlN|STERES 23SGG4DGBM-DCF- EêIôF5ëI6ôcoor 5 BN-DAN-DLC 3 GcoMB.DGCsT-INSAE 3 BCP.CSI\4-IGAA 3 UAC' ENAIII _ FAOESP 3- UNIPAR _ FDSP 2 CeRPAJBORGOU/ALIBORI) c)6 %'- Dr. Boni YAYI t^ry_c Pascal lrénée KOUPAKI Alayi Adidiatou MATHYS
