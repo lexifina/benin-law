@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le go decembre 2011 Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, fro Le [t/linistre de l'Economie et des Finances, Le Ministre de l'Agriculture, de l'Elevage et de Pêche, tr Katé SABAï AMPLIATIONS: PR: 06i AN: 04,CC.04, CS : 04 ; HAAC : o1iCES 01 :HCJ4 PM/CCAGEPPPDDS4MAEP4O4;; MEF: 04; SGG:04; AUIRES NIINISTERES:28; DGAE-DGCPE : 04 ; DGBM-DCF-DGTCP-DctD-DGDDt: OS. BN-DAN-DLC: 03. GCONB-DCCT- INSAE 03 BCP-CNS-IGAA: 03;UAC-ENAM-FADESP: 03: UNIPAR-FDSP: 02; SOcE[rA: 04; JO:Oi. w Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, Dr Boni YAYI Pascal lrénée KOUPAKI Alavi Adidiatou MATHYS
