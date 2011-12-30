@@ -1,0 +1,5 @@
+# Visas
+
+REPUBLIQUE DU BENIN PRESIDENCE DE LA, REPUBLIQUE DECRET N"2011-844 du 30 decembre 2011 Chargeant Monsieur Marcel A. de SOUZA, Ministre du Développement, de l'Analyse Economique et de la Prospective de I'intérim de Madame Adidjatou A.
+MATIIYS, Ministre de I'Economie et des Finances pour compter du jeudi 08 au dimanche 11 décembre 2011 .
+LE PRESIDENT DE I,A REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT, vu la Loi n'90-032 du 11 décembre 1990, portant constitution de la République du Bénin vu Ia Proclamation Ie 29 mars 2011 par la cour constitutionnelle des résultats définitifs de l'éIection présidentielle du 13 mars 2011 i vu Ie Décret n" 2011-500 du ll juillet 2011 portant composition du Gouvernement i DECRETE Article ler : Pendant l'absence de Madame Adidjatou A. n[ATHys, Ministre de l,Economie et des Finances, son intérim sera assuré par Monsieur Marcel A. de souZA, Ministre du Développement, de l'Analyse Economique et de la prospective, pour compter du jeudi 0g au dimanche 11 décembre 2011.
