@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à CotOnOg, lg30 decernbre 2011 Par le Président de la République, Chef de t'État, Cfret du Gouvernement, Le Premier li/linistre Chargé de la Coordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, Le ltllinistre de l'Economie et des Finances, AE-pIê!ig-!s : PR 10 AN 6 CS 2 CC 2 HCJ 2 CES 2 tlA..a.C 2 HCJ 2 PM/CCAGEPPPDDS 4 SGG 4 MEF 4 AUTRES MINISTERES 24 DGBM.OCF-DGICP-DGID-DGDDI 5 BN-DAN.DLC 3 GCONB-DCCT-INSAE 3 BCP.CSM.IGAA 3 UAC. ENAM,FADESP 3 UNIPAR-FDSP 02 _ JO 1, Dr Boni YAYI fugr Pascal lrénée KOUPAKI Alavi Adidiatou MAïHYS
