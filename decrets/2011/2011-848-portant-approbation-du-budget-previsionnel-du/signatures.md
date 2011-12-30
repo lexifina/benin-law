@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 3o decembre Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, (4,,n^r,û Le [/inistre de l'Economie et des Finances, Le l\4inistre de l'lndustrie, du Commerce et des Petites et Moyennes Entreprises, AMPLIATIONS:PRO AN4: CS 2; CC2,CES2; HAAC 2; HCJ 2 ; MP/CCAGEPPPDDS 4 ;MtCpME 4 ; tüEF 4 AUTRES MINISTERES 23; SGG 4 ; DGAE - DGCPE 2 - PAC 2 ; DGBM-DCF-DGTCP-DGID-DGDDI 5 i BN-DAN-DLC-|GE4 ; cCOtVtB- DGCST-INSAE-IGE 4 i BCP-CSM-IGAA 3: UAC-ENAi4-FADESP 3: UNIPAR-FDSP2 1 JO 1. ÔK Pascal lrénée KOUPAKI Alavi Adidiatou MATHYS Madina SEPHOU
