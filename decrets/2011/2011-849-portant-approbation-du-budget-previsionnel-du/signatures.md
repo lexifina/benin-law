@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 30 decembre 2011 Dr BoniYAY! Le Premier [\4inistre Chargé de la Coordi on de l'Action Gouvernementale, de I'Evaluation des P ques Publiques, du Programme de Dénationalisation et du Dialogue Social, t** AlayiAdidiatou MATHYS Valentin DJENONTIN-AGOSSOU AMPLIATIoNS: PR6; AN4; CS2; CC2: CES2; HAAC2; HCJ 2 ; PMiCCAGEPPPDDS a ; MCAAT 4 ; ;MEF-AUTRES MINISTERES 23: SGG 4 ; DGAE - DGCPE 2 - PAC 2 | oGBII-DCF-DGTCP-DGID-DGDDI 5 ; BN-DAN-DLCIGE; GCOMB- DGCST-INSAE-IGE 4 i BCP-CSIü-IGAA 3 ; UAC-E|,JAI,,I-FADESP 3 ; UNIPAR-FDSP2 1 JO '1. dh Pascal lrénée KOUPAKI Le t\ilinistre de la Culture, de l'Alphabétisation, de l'Artisanat et du Tourisme, 4,.
