@@ -1,0 +1,10 @@
+# Signatures
+
+Fait à Cotonou, le :o decembre 2011 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI J Cotation L'emprunt sera inscrit à la cote de la Bourse Régionale des Valeurs Mobilières (BRVM) trois mois au plus tard après la date de jouissance.
+Fiscalité Les obligations sont défiscalisées, c'està-dire exemptées d'impôts et taxes, Le paiement des intérêts et le remboursement du capital seront effectués par les Sociétés de Gestion et d'lnterméd iation (SGl) de la sous-région, agréées pour la conservalion des titres. Les intérêts seront payés chaque année. Le remboursement du capital se fera en quatre ans après une année de différé.
+Garantie L'emprunt est garanti par l'Etat du Bénin Liquidité du titre Une convention de liquidité des titres sur le marché sera signé entre l'émetteur et le consortium des SGI coarrangeurs.
+Personnes concernées L'émission obligataire est ouverte aux personnes physiques et morales des pays membres de l'Union Economique et Monétaire Ouest Africaine (UEMOA), ainsi qu'aux investisseurs régionaux et internationaux.
+Co-Arrangeurs Syndicat de placement Consortium des Sociétés de Gestion et d'lntermédiation et d'autres intermédiàires habilités du marché financier ré9ional.
+Toutes les SGI ainsi que les établissements bancaires de l'UEMOA ayant signé le contrat de syndication de l'emprunt & Article 3; Le [Vlinistre de l'Economie et des Finances est chargé de l'application du présent décret qui prend effet pour compter de sa date de signature et sera publié au Journal Officiel.
+Cr/ Le Premier Ministre Chargé de la Coordination de I'Action Gouvernemental, de l'évaluation des Politiques Publiques' du Programme de Dénationalisation et du Dialogue Social, 2n«g9 Le li4inistre de l'Economie et des Finances, Alavi Adidiatou MATHYS AMPLIATIONS:PR6AN4CS 2 CC 2 CES 2HAAC2 HCJ 2 Pi'/CCAGEPPPDDS 4 MEF 4 AUTRES MINISTERES 23SGG A OCEIIIOCT,OCTCP-DGID-DGDDI 5 BN.DAN-DLC 3 GCONB-DGCST-INSAE'IGE 4 BCP-CSM-IGAA 3 UAC'ENAM- FADESP 3 UNIPAR-FDSP 2 JO 1..
+tr Pascal lrénée KOUPAKI &
