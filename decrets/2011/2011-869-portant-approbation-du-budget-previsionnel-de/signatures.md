@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 30 decembre 2011 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr Boni YA Le Premier Ministre Chargé de la Coo nation de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, w Le Ministre de la Communication et des Technologies de I'lnformation et de la Communication, Max Barthélémv AHOUEKE Le Ministre de l'Analyse Economique, du Développement de la Prospective, t Marce I atn SOUZA e AMPLIATIONS:- PR6 -CAB-MIL 6-AN 2- CC2-CS 2 HCI 2-CES 2- HAAC 2 PM/CCAGEPPPDDS 4 MCTIC 4 MEF 4 i.4DAEP 4AUTRES IIINISTERES 23 SGG 4 SPD2.DEP-INSAE 3 DSIA 2 DGBM-DCF-DGTCP.DSDV-CF 8 ONEP.GCONB-DGCST3_UAC-ENAM-FASJEP 3- UNIPAR.FDSP 2.OOPA 1-JO 1.
+dL Pascal lrenée KOUPAKI Le Ministre de l'Economie et des Finances, Alavi Adidiatou MATHYS
