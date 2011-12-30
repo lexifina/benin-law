@@ -1,0 +1,5 @@
+# Visas
+
+REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE DECRET N' 2011-841 du 30 decembre 2011 Chargeant Monsieut Lambet KOTY, Ministre des Travaux Publics et des Ttan§polts, dc I'intédrn de Monsieur Blaise Onésiphore AHANHANZO-GLELE, Mini§tre dc l'Environnement, de I'Habitat et de I'Utbânisme du mercredi 07 au metctedi 14 décembre 2011.
+VU vu \rLl LE PRESIDENT DE LA REPUBLIQUE CHEF DE L'ETAT CHEF DU GOIJVERNEMENT, la Loi 90-032 du 11 décembre 1990 portant constitution de la Répubüque du Bénin ; la Proclamation le 29 mars 2r.)1 1 par la Cout Constirutionnelle des résultats définitifs de l'élect-ion ptésidentielle du 13 mats 2011 ;
+le déctet n"2011-500 du 11Jui1let 2011 portant comPosition du Gouvemement I DECRETE Àrticle 1"' : l)our compter du 07 décembre 2011, Monsieur Lambert KOTY, Ministre dcs Travaux Publics et des Tlanspofts, cst chârgé dc l'ürtérrm dc Monsieut Blaise onésiphore AHÀNHANZO GLELE, \.timstre dc l'Environncmeflt, de I'FIal;rtat et de l',Llrbanisr:re pendant son absence
