@@ -1,0 +1,15 @@
+# Visas
+
+FRATERNITE-JUSTICE TRAVAIL PRESIDENCE DE LA REPUBLIQUE DECRET N'2012.002 DU 06 JANVIER 2012 Portant réquisition de l'usine de la société MCI de Nikki et de son personnel au titre de la campagne d'égrenage 2011-2012 LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT, Vu la loi n'90-32 du 11 décembre 1990 portant Constitution de la République du Bénin ;
+Vu la proclamation le 29 mars 2011 par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du 13 mars 201 1 ;
+Vu le décret n' 2011- 500 du '11 juillet 2011 portant composition du Gouvernement ; Vu le décret n" 2012-001 du 06 janvier 2012 Chargeant Monsieur Pascal lrénée KOUPAKI, Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social de I'intérim du Président de la République pour compter du 06 janvier 2012 ;
+vu le décret n" 2010-593 du 31 décembre 2010 modiflant et complétant le décret n' 2007-494 du 02 novembre 2007 portant attributions, organisation et fonctionnement du Ministère de la Défense Nationale ;
+Vu le décret n" 2007-465 du 16 octobre 2007 portant attributions, organisation et fonctionnement du Ministère de l'lntérieur et de la Sécurité Publique ; Vu le décret n" 2008-1 11 du 12 mars 2008 portant attributions, organisation et fonctionnement du Ministère de l'Economie et des Finances ;
+vu le décret n" 2009-179 du 05 mai 2009 portant attributions, organisation et fonctionnement du Ministère du Commerce ;
+1, REPUBLIQUE DU BENIN Vu le décret n' 2009-180 du 05 mai 2009 portant attributions, organisation et fonctionnement du Ministère de I'lndustrie ;
+Vu le décret n'2006-582 du 02 novembre 2006 portant attributions, organisation et fonctionnement du Ministère de l'Agriculture, de l'Elevage et de la Pêche ; Vu la décision de suspension temporaire d'attribution de quota de coton graine à la société MCI pour une période de cinq (05) ans par le Comité Paritaire de suivi de la Filière Coton en sa session du 26 mai 2011 ;
+Vu le compte rendu de la séance du 07 décembre 2011 sur les négociations en vue de I'exploitation à travers l'égrenage à façon de l'usine MCI par SODECO ; Considérant qu'au titre de la campagne 2011-2012, MCI ne dispose d'aucune allocation de coton graine ;
+Considérant le refus des responsables de MCI de faire exploiter I'usine d'égrenage de Nikki dans le cadre d'un contrat d'égrenage à façon ;
+Considérant la vive tension qui règne à Nikki du fait de la non exploitation de cette usine depuis cinq campagnes environ ;
+Considérant la menace de trouble à l'ordre public qui s'exacerbe de jour en jour à Nikki;
+Considérant le péril sur les campagnes à venir et ses impacts socio-économiques ; Sur proposition conjointe du Ministre de I'Agriculture, de I'Elevage et de la Pêche et du Ministre de I'lndustrie, du Commerce, des Petites et Moyennes Entreprises ; Le Conseil des Ministres entendu en sa séance extraordinaire du vendredi 06 janvier 2012,
