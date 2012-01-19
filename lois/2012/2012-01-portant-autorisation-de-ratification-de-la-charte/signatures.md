@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 19 lanvier 2012, Par le Président de la République Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI - Le Premier Ministre Chargé de la Coordination de I'Action Gouvernementale, de l'Evaluation des Politiques publiques, du Programme de Dénationalisation et du Dialogue Social, ./', (û6*r,,tc U- .,,û Pascal lrénée KOUPAKI.- l'Extérieur, d S UZA.- BAK ARI AMPLIATIONS: PR6- -AN 4- CC 2 - CS 2-HAAC 2 - CÊS 2 - HCJ 2 PM/CCAGEPPDDS 4 MAEIAFBE 4 MoAEP4 MEF 4 AUTRES MINISTERES 22- SGG 4 - DGBM-DCF.DGTCP-DGID-DGDDI 5- BN.DAN.DLC.3 - GCONS-DCCT]NSAE 3- BCP. CSN-IGAA 3. UAC.ENAM.FASJEP 3- UNIPAR-FDSP 2- JO 1,.
+Le Ministre du Développement, de I'Analyse Economique et de la Prospective, Le Ministre des Affaires Etrangcrres, de I'lntégration Africaine, de la Francophonie et des Béninois de I a \ ù
