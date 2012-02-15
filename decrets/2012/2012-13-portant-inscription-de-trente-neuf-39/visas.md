@@ -1,0 +1,17 @@
+# Visas
+
+REPUBLIQUE DÙ BENIN PRESIDENCE DE LA REPUBLIQUE Vu la proclamation le 29 mars Constitutionnelle des résultats présidentielle du 13 mars 2011 ;
+Vu le décret n'2012-O04 du 24 composition du Gouvernement ;
+DECRET N'20I2-OI3 DU I5 FEVRIER 2O{2 portant inscription de trente neuf (39) commissaires de police au tableau d'avancement aux grades supérieurs au titre de I'année 2012.
+LE PRESTDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, GHEF DU GOUVERNEMENT, Vu la loi n"90-32 du 11 décembre 1990 portant Constitution de la République du Bénin , Vu la loi n"93-010 du 20 août 1997 portant statut spécial des Personnels de la Police Nationale ;
+définitifs la Cour l'élection par de janvier 2012 portant Vu le décret n" 2011-758 du 30 novembre 2011 fixant la structure-type des Ministères ;
+Vu le décret n"2007-465 du 16 octobre 2OO7 portant attributions, organisation et fonctionnement du Ministère de I'lntérieur et de la Sécurité Publique ;
+Vu le décret n"2008-8'17 du 31 décembre 2008 portant attributions, organisation et fonctionnement de la Direction Générale de la Police Nationale ;
+Vu le décret n'59-222 du 15 décembre 1959 portant règlement sur la rémunération, les indemnités et avantages matériels divers alloués aux Fonctionnaires des Administrations et Etablissements Publics de l'Etat et les actes qui l'ont modifié;
+ft Vu le décret n'97-622 du 30 décembre '1997 portant Statuts Particuliers des Corps des Personnels de la Police Nationale ;
+Vu le décret n'2002-395 du 06 septembre 2002 portant identification des Autorités investies du pouvoir de nomination et de promotion des fonctionnaires de la Police Nationale dans leurs différents grades ;
+Vu l'arrêté année 2011 n' 134|M|SPC/DC/SGM/DGPN/SA du 04 août 2011 portant composition, attributions et fonctionnement de la Commission d'Avancement des Personnels de la Police Nationale ;
+Vu le procès-Verbal n"917/MISPC/DGPN/DAP/SPRH/SA du 14 octobre 2011 de la Commission d'Avancement des Personnels de la Police Nationale, au titre de l'année 2012;
+Sur proposition du Ministre de l'lntérieur, de la Sécurité Publique et des Cultes;
+Le Conseil des Ministres entendu en sa séance du 08 février .*D EE RE T.E A/- POUR LE GRADE DE CONTROLEUR GENERAL DE POLICE 1- BOCO Tohounfona lgnace Constant Wilfrid B/- POUR LE GRADE DE COMMISSAIRE DIVISIONNAIRE DE POLICE 1- TOZE Jean 2- IDRISSOU Moukaïla C/- POUR LE GRADE DE COMMISSAIRE PRINCIPAL DE POLICE 1- AHOUANSE GUEGUE lsaac 2- HOUNNONKPE Nazaire Ahofodji 3- DAGOU Makpondéhou Aristide 4- ATCHOU Didier §!j1i!111"': Sont inscrits par ordre de mérite, au tableau d'avancement aux grades supérieurs au titre de l'année 2012, les Commissaires de Police dont les noms suivent :
+z"r J 5- GOUNADON Paulin 6- SlDl IBRAHIMA Bachirou 7- IDRISSOU Foudou 8- DUROJAYE Emmanuel Nazaire Serge 9- SANTOS Bénitos Laurentio Ghislain 1o- LOKO GBEYOU Grégroire 11- MAMA SAKA Saïdou 12- DAGA Salihou 13- SEDOHOUN Kossi 14- AGBOSSAGA César 15- SAKA Orou 16- GAFFAN Yaovi lnnocent Narcisse 17- da MATHA Etienne 18- HOUNSINOU Martial Pascal 19- CODJO Thomas 20- LALOU Urbain 21- COFFI Claude Nicolas Basilide 22- BAGUIDIYAROU Yérima Koto 23- AGUIDA Eugène 24- HOUNDE SéIdou 25- OGOUCHORO Sévérin Odjougbèlè 26- BANOIN Edmond 27- BLOCHAOU Achille 28- ATTOLOU Nestor 29- ZANKRAN Edouard Gnambodè 30- JOHNSON Euloge Michel Sylvain Béni 31- AGBOTAN lvlathias 32- AGOSSADOU Pierre Coovi 33- HOUSSOU Gabin SYlvain Comlan f(, D/- POUR LE GRADE DE COMMISSAIRE DE POLICE DE lERE CLASSE GANHOUN Comlan Clément ZOUNON Chitou Assogba BOCOVO Justine Ghislaine Sêwanoudé
