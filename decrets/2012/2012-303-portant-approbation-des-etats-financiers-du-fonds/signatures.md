@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le ze août 2012 Par le Président de la République Chef de l'Etat, Chef du Gouvernement, Le Premier Ministre Chargé de la Coordination de I'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, /,ry Le Ministre de I'Economie et des Finances, Le Ministre Chargé de la Microfinance de l'Emploi des Jeunes et des Femmes, Jona Réckva MADOUGOU AMPLIATIONS: PR 02 ; SGG 02, AN 02, CS 02; CC 02; CES 02; H,AAC 02; HCJ 02; PM/CCAGEPPPDDS 4 02;MMFEJF 02; MEF 02: Aukes Ministères 24 : DGB 01 ;DEB01 ;CF 01 ;DGAE01 ;DGTCP01 ;BCEAO01 i CNCOS 02 ; FNM 02 ;; Archives 02 ; Chrono 01 JO 01. (tr Dr. Boni YAYI Pascal lrénée KOUPAKI &
