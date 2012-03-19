@@ -1,0 +1,7 @@
+# Visas
+
+REPUBLIQUE DU BENIN
+- -@---- PRESIDENCE DE LA REPUBLIQUE :*--@----- DECRET N'.2O12=O3.9.. du..1 9. .ma.rs 2012 Chargeant Monsieur Alassane SOUMANOU, Ministre de l'Enseignement Secondaire, de la Formation Technique et Profession nelle, de la Reconversion et de l'lnsertion des Jeunes, de l'intérim de Monsieur Eric Kouagou N'DA, Ministre des Enseignements Maternel et Primaire.
+LE PRESIDENT DE LA REPUBUqUE, CHEF DE L,ETAT, CHEF DU GOUVERNEMENT, Vu la loi N' 90-032 du L1 décembre 1990, portant Constitution de la République du Bénin;
+Vu la proclamation du 29 mars 2OIL par la Cour Constitution nelle des résultats définitifs de l'élection présidentielle du 13 mars 2011 ;
+Vu le décret n" 2011.-500 du ll juillet 2011, portant composition du Gouvernement ; DECRETE
