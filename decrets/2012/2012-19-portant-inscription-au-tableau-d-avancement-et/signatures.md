@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 19 rnars Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI Article 2: Les GENDARMERIE NATIONALE Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social Pu*r Pascal lrénée KOUPAKI Le Ministre d'Etat Chargé de la Défense Nationale, J lssifou KOGUIN'DOURO Le titlinistre de l'Economie et des Finances, Alayi Addidiatou MATHYS AMPLIATIONS:PR6-CABMIL02-AN4-CS2-CC2-CES2-HAAC2-l\.4DN4-MEF02-AUTRESMINISTERES24-SGG4-CEl\rc2- CEMAT 2- CEMFA 02- CEIVIFN O2.DGGN 02 _ DSIA 02. DOPA O2.DGB.DCF.DGTCP- 3 - GCOM-DCCT- BCP-CSN-IGAA 3 - HCJ 1-JO ,I - INTERESSES 6I- ARCHIVES.Ol.CHRONO O1 JO 1,, * t/
