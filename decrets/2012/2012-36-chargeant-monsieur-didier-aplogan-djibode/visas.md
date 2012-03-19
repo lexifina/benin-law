@@ -1,0 +1,5 @@
+# Visas
+
+Décret N" 2012-036 du 19 me r§ 2012, REPUBLIQUE DU BENIN FRATER[lTE JUSTfE TRÂVÂIL PR.ESIDENCE DE LA REPUBLIQUE Chargeant Monsieur Didier APLOGAN-DJIBODE Ministre de la Jeunesse, des Sport et loisirs de I'lntérim de Monsieur DJENONTIN-AGOSSOU Valentin Minisne de la Culture, de I'Alphabétisation, de I'Artisanat et du Tourisme, pour compter du Dimanche 15 Janvier au Mercredi 25 lanvier 2012 LEPRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEP DU GOUVERNEMENT Vu la Loi n" 90-032 du I I décembre 1990 portant Constitution de la République du Bénin ;
+Vu la proclamation le 29 mars 201I par la Cour Constitutionnelle des resultats définitifs de l'élection présidentielle du I 3 mars 201 I ;
+Vu le décret n'2011-500 du I I juillet 201lportant composition du Gouvernement ; Article l": Monsieur Didier APLOGAN-DJrBODE, Ministre de la Jeunesse, des sport et Loisirs (MJSL) est chargé de l'intérim de Monsieur DJENoNTIN-AGossou valentin Ministre de la culture, de I'Alphabetisation, de I'Artisanat et du Tourisme (MCAAT), pour compter du Dimanche 15 Janvier 2012 au'Mercrcdi 25 tanvier 2012.
