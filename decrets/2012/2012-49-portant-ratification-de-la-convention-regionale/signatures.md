@@ -1,0 +1,5 @@
+# Signatures
+
+Fait à Cotonou, le 22 nar s 2o7z Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, r Boni YAYI portant ratification de la Convention régionale sur la reconnaissance des études et des diplômes de l'enseignement supérieur en Amérique Latine et dans la région des Caraïbes, adoptée à Mexico, le 19 juillet 1974.
+Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, Pascal lrénée KO UPAKI.- ,t Le Ministre de l'Enseignement Supérieur et de la Recherche Scientifique, Le Ministre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de l'Extérieur, Francois Adebavo ABIOLA- Nassi rou ARIFARI.- AMPLIA TIONS i PR 6. ,AN 4- CC 2 - CS 2 _ NAAC 2 - CES 2 . HAÂC 2 HCJ 2 PM/CCAGEPPDDS 4 MAEIAFBE 4 MESRS 4 AUTRES I\,'IINISTERES 23- SGG 4. DGBIV-DCF.DGTCP.DGID.O GDDI 5. BN-DAN.DLC. 3 - GCONB-DCCT.INSAE 3- BCP-CSN.
+IGAA 3- UAC ENAM.FASJEP 3. UNIPAR.FDSP 2- JO 1 - eÉr
