@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le zz mars 2 Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, & PRESIDENCE DE LA REPUBLIOUE Dr Boni YAYI ) Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, fi,qyt Pascal lrénée KOUPAKI.- Le Ministre de I'Enseignement Supérieur et de la Recherche Scientifique, Le Ministre des Affalres Etrangères, de l' lntégration Africaine, de la Francophonie et des Béninois de I'Extérieur, Francois Adeba VO ABIOLA- Nassirou BAK ARIFARI.- au.E!!ÂI!.qx§: pR 6- -AN 4- CC 2 - CS 2-HAAC 2 -CES 2 - HAAC 2 HCJ 2 P|\,/CCAGEPPDDS 4IVIAEIAFBE 4 MÉSRS 4 AUTRES [,lINISTERES 23. SGG 4. DGBM-DCF-DGTCP.DGID.DGDDI 5- BN-DAN-DLC.3. GCONB-DCCT]NSAE 3- BCP-CSN- IGAA 3, UAC,ENAiI.FASJEP 3, UNIPAR-FDSP 2. JO 1,.
+? tr tl
