@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le ro avril 2012 Par le Président de la RéPublique, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI.- & Le Premier Ministre Chargé de la Coordination de l'Aetion Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, o^qy Pascal lrén KOUPAKI.- l'Extérieur, Marcel Al tn de SOUZA.- AUPt!âIl-qI§: PR6- -AN 4- CC 2 -CS 2-HAAC2 -CES2 - HCJ 2 PM/CCAGEPPDOS 4 MAEIAFBE 4 MDAEP 4MËF4 À!ïFEE lalfrièrenes 22- SGG 4 - DcBM-DcF-DGrcP-DGtD-DGDDI 5- BN-DAN-DLC- 3 - GcoNB-oCCT-INSAE 3- BCP- CSN.IGAA 3. UAC-ENAM.FASJEP 3. UNIPAR-FDSP 2. JO 1..
+Le Ministre du Développement, de l'Analyse Economique et de la Prospective, Le Ministre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de I Nassirou BAKO ARIFARI
