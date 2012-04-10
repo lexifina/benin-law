@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonos, ls 10 avril Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, 20t2 Dr Boni YAYI & ,) Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, Pascal lrén KOUPAKI.- Alavi Adidi atou MATHYS- Nassirou B K ARIFARI.- A[zu=-lqI§: PR 6- -AN 4- Cc 2 - CS 2 -HAAC2 - CES 2 - HAAC 2 HCJ 2 PM/CCAGEPPODS 4 MAEIAFBE 4 MEF 4 ÂIîFE-s unrsrenes 23- sGc 4 - DGBM-DcF-DGTCP-oGtD-DGDDT 5- BN-DAN-DLo- 3 - GcoNB-occr-lNSAE 3- BcP-csN- IGAA 3- UAC-ENAM-FASJEP 3. UNIPAR-FDSP 2. JO 1.- Le Ministre de l'Economie et des Finances, Le Ministre des Affaires Etrangères, de I' lntégration Africaine, de la Francophonie et des Béninois de I'Extérieur, b 6,«".y tl
