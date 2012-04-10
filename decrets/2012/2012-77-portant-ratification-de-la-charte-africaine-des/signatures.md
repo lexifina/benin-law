@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 10 avril 2012 Par le Président de la RéPublique, Chef de I'Etat, Chef du Gouvernement, AYI.- r Boni Y cê q/ Le Premier tvlinistre Chargé de la Coordination de I'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, ûoy Pascal lrénée KOUPAKI.- Le Ministre Délégué auprès du Président de la République Chargé de I'Economie Maritime, des Transports tVlaritimes et des I nfrastructures Portuaires, Le lVlinistre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de l'Extérieur, Ba ba lola Jean-Michel Hervé ABIMBOLA- Nassirou BAKO RIFARI.- AUEL!ÀIIQ.I§: PR6- -AN 4- CC 2 -CS 2-HAAC2-CES 2 ' HCJ 2 PI,/CCAGEPPDDS 4 MAEIAFBE 4 MDCEMTMIP/PR i-nurnes urursrenEs 22- sGc 4 - DcBM-DcF-DGTcP-DGID-DGDDI 5- BN-DAN-DLc- 3 - GCoNB-occT'INSAE 3- BcP- CSN.IGAA 3- UAC.ENAIVI-FASJEP 3- UNIPAR.FDSP 2- JO 1..
+ffi
