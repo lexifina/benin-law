@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, 1e.26 a'trit zotT Par le Président de la RéPublique, Chef de l'Etat, Chef du Gouvernement, ntÂg( Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, Porte-Parole du Gouvernement, vi Marie Chri na GB PFl6:AN4; CS2; CC2: CES 2; HAAC 2: HGJ 2 ; MP/CCAGEPPPDDS-4 ; GS/MJLDH-PPG 4; MEF i Àùines ürr.rrsrÉRes âg; soo a ; ooAE - occPÉ 2 - PAc 2 ; DGBM-ocF-oGrcP'oGlD-DGDDI Ë :"Ér.r"iiÀr'r-ôiô-io-e+ ; eôôrvrs-oe isr-INSAE-lcE 4; BoP-CSM-IGAA 3; UAC-ENAM-FADESP 3: UNIPAR.FDSP2 1JO 1.
+f;-l|-i ffi Dr Boni YAYI Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, AMPLIA1lONS Pascal lrénée KOUPAKI Le Ministre Chargé des Relations avec les lnstitutions, Safiatou BASSABI ISSIFOU MOROU ry
