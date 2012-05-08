@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 8 nai 2Or2 Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, Dr Boni YAYI Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de I'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, î,aA* ffi le Directeur du Centre National de Télédétection et du Suivi Ecologique;
+Pascal lrénée KOUPAKI Le Ministre Délégué auprès du Président de la République, Chargé de l'Economie Maritime, des Transports Maritimes et des lnfrastructures Po ires, ise Onesi AHANH Valention DJEN OSSOU AMPLIATIONS : PR 6 . AN 4 . CC 2 - CS 2 . CES 2 - HAAC 2 HCJ 2 _ Pi'/CCAGEPPPDDS 4 MEHU 4 MDCEMTMIP/PR 4 AUTRES MINISTERES26-SGG4-DGB.DCF.DGTCP-DGDDI 4. BN-DAN-DLC 3- GCONB-OCCT.INSAE 3- BCP-CSM.IGAA 3 - UAC- ENAM-FADESP3.UNIPAR.FDSP 2.CCIB 1.JO 1, Le Ministre de l'Environnement, de l'Habitat et de l'Urbanisme,
