@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le I ma i 2012 Parle Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAY l.- Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, K, c,ay ffi Pascal lrénée KOUPAKI Le Ministre de I'Economie et des Finances, B no Assouan C lan D LA Ampliations:PR6-AN4-CC2-CS2-CES2-HAAC2HCJ2-PM/CCAGEPPPDDS4IVEF4IICTIC4MEF4-AUTRES IVIINISTERES 23 - SGG 4 - DGB-DCF-DGTCP.DGDDI 4-BN-DAN-DLC 3. GCONB-DCCT-INSAE 3- BCP.CSI\iI.IGAA 3. UAC- ENAI\'.FADESP 3 - UNIPAR.FDSP 2. CCIB 1_ INTERESSES 21 - JO 1, (A Le Ministre de l'lntérieur, de la Sécurité Publique et des Cultes, AlaviAdidiatou MATHYS 6-=
