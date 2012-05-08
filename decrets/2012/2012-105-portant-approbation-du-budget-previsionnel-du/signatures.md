@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 8 mai 2012 Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, Dr Boni YAYI Le Premier Ministre Chargé de la Coordination, de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, Quw Le l\Iinistre de l'Economie et des Finances, Le Ministre de l'lndustrie, du Commerce, des Petites et Moyennes Entreprises, AlaviAdidiatou MATHYS Atr-pllllglsrPR6-AN4-CC2-CS2-CES2-HAAC2HCJ2-PM/CCAGEPPPDDS4MEF4MICPME4-AUTRES Ii|INISTERES 23. SGG 4 - DGB.DCF.OGTCP-OGDDI 4 - BN-DAN.DLC 3 - GCONB.DCCT-INSAE 3. BCP-CSM-IGIA 3. UAC. ENAM-FAOESP 3 - UNIPAR.FDSP 2 - CCIB 1 . JO 1, Pascal lrénée KOUPAKI Madina SEPHOU
