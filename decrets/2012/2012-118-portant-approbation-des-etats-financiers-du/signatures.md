@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le r r nai 2012 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, Le Ministre des Travaux Publics et des Transports, KOTY Ampliations: PR:6-AN:4-CS :02-CC :02-CES :o2-HAAC :02-HCJ 2 PM/CCAGEPPPDDS 4 lvlEF :o4-iÿITPT :04- iIDAEP 04 AUTRES MINISTRES:22- SGG 4 DGBM-DCF-DGTCP-DGID-DGDDi 5 BN-DAN-DLC 3 GCONE- DGCST-INSAE-IGE 4 BCP-CSM-IGAA 3 UAC-ENAII-FAOESP 3 UNIPAR-FDSP 2 JO 1, Dr. Boni YAYI Pascal lrénée KOUPAKI AlaviAdidiatou MATHYS
