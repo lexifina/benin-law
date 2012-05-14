@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le t a nai 20t2 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Chargé de la Défense Nationale, k & ll s'agit de:
+Dr BoniYAY|.- Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, Pascal lrénée KOUPAKI Le Ministre de I'Economie et des Finances, Le Ministre du Travail et de la Fonction Publique, Mëmouna KORA ILEAD as GB AMPLIATIOIIS: PR:06; AN:04; CC : 04; CS:04;HAAC:01|CES: 01 HCJ 01 PM/CCAGEPPPDDS 4lrJSL4 SGG:04i MEF: 04i AUTRES iTINISTERES: 23: DGAE-DGCPE: 04 i DGBM-DCF-DGTCP-DGID-DGDDI: 05. BN-DAN-DLC: 03. cCONB-DCCT-INSAE: 03; BCP-CNS-IGAA: 03;UAC-ENAi,-FADESP: 03i UNIPAR-FDSP: 02; SOGEiTA: 04; JO:01. ,(\ U ?,,gy
