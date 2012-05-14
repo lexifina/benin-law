@@ -1,0 +1,5 @@
+# Visas
+
+1912/2015 ARRETE pcrtant creation, attritx.Jtions, composition et fonctiomernent dJ cornite de rnarQJe de certification pa.r les referentiels s1.r les produits dor ... ARRETE portant creation, attributions, composition et fonctionnement du comite de marque de certification pour les referentiels sur les produits d'origine animale LE MINISTRE DE L'INDUSTRIE, DU COMMERCE ET DES PETITES MOY ENNES ENTREPRISES, Vu la Loi n• 90-032 du 11 decerrbre 1990, portant Constitution de la Republiqu e du Benin ; Vu 1 a Proclamation le 29 mars 2011 , par la Cour Constitution nelle des resultatsdefinitifs de l'eleclion presidentielle du 13 mars 2011 ;
+Vu le Deere! n• 2012-069 du 10 avril 2012, portant composition du Gouvemernent; Vu le Deere! n• 2011-758 du 30 novembre 2011, fixant la structure-type des Ministeres; Vu le Deere! no 2009-180 du 05 mai 2009 portant attributions, organisation et fonctionnement du Ministered e l'lndustlie ; Vu le Deere! n°2010-477 du 05 novembre 2010 portant creation, attributions; organisation et fonctionnernent de l'Agencel3eninoise de Normalisation et de Gestion de la aualtte (ABeNOR); Considerant les necessttes de service ;
+ARRETE
