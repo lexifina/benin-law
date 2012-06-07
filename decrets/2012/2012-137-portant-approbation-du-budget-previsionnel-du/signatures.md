@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le z 5 uin 20 12 Par le Président de Ia République, Chef de l'Etat, Chef du Gouvernement, Le Premier [Vlinistre Chargé de la Coordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, ootg Pascal lrénée KOUPAKI Le ttlinistre du Développement, de l'Analyse Economique et de la Prospective.
+Le Ministre de l'Economie et des Finances, Marcel Alatn de SOUZA Ati!?!!ÂI!O!!!l: PR: 06; AN: 04; CC :04; CS : 04 ; HlÂC : Oi|CES: 01 HCJ 01 PM/CCAGEPPPDDS 4 MJSL 4 SGG: 04; MEF] 04 AUTRES MINISTERES: 23; DGAE-DGCPE: 04; DGBM-DCF-DGTCP-DGID-DGDDI: 05. BN-DAN-DLC: 03. GCONB-DCCT-INSAE 03: BCP-CNS-IGAA: 03;UAC-ENAM-FAOESP: 03; UNIPAR-FDSP: 02; SOGEIüA: 04i JOr01. ot§_ i Dr Boni YAYI Alavi Adidiatou MATHYS
