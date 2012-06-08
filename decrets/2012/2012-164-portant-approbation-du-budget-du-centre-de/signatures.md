@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonos, ls 08 j u in 2012 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Premier Ministre chargé de la Coordination de l'Action Gouvernementale, de l'Evaluation des Politiques publiques, du Programme de Dénationalisation et du Dialogue Social, Le Ministre de l'Economie et des Finances, PascaI lrénée KOUPAKI ?*W "F nh zr Le Ministre du Travail et de la Fonction Publique, Mêmouna KO KI LEADI AuEtlÀ!.gI§:PR6.AN4.cc2-cS2.cEs2.HAAC2HcJ2-PM/CCAGEPPPDoS4MEF4MTFP4MEF4-AUTRES i,M+STENESZO-SGG4-DGB.DCF-DGTCP-OGDDI 4- BN.DAN-DLC 3. GCONB-OCCT-INSAE 3- BCP'CSM-IGAA 3- UAC- ENAM.FADESP 3 - UNIPAR-FOSP 2. CCIB 1 . JO,l atr Dr BoniYAY| AlaviAdidiatou MATHYS t
