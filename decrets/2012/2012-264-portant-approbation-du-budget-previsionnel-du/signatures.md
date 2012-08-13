@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 11 août 2012 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de I'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, î«rç,t" Le Ministre de l'Economie et des Finances, Le Ministre de la Famille, des Affaires Sociales, de la Solidarité Nationale, des Handicapés et des Personnes du Troisième Age, Fatou a AMADO U DJIBRIL ÀE-p!ia!!g!§:pR6-AN4-SGG4-CC2-HIÂC2-CES2-HCJ2PM/CCAGEPPPDDS4iTFASSNHPTA4-MEF4-Aulres Ministères 28- DGBM-DCF-DGTCP-DGID-DGDDI 5 - BN-DAN-DLC 3 - GCONB-DCCT-INSAE 03 - BCP-CSM-IGAA 3 - UAC-ENAM- FASEG 3. _ FARIPH 4 JO 01, Dr Boni YAYI Pascal lrénée KOUPAKI AlaviAdidiatou MATHYS &
