@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 11 doît 2a12 Par le Président de la RéPublique' Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI.- Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, Ztg'rc PascaI lrénée KOU PAKI Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, Porte-Parole du Gouvernement, AK Marie-Elis hristiana G DO AMPLIATIONS: PR:6:AN I04;CS:02;CES: 02;HAAC:2;MCJ i2:MS: 1 : HCJ:02; PMCCAGEPPDDS:4 tr,pOelp,n:MEF:4;MS:4;AUTRESMINISTERES:23;SGGr4;DGBM-DCF-DGTCP-DGID-DGDDI:5;BN-DAN- DLC :3 : GCONB-DGCST-INSAE : 3 ; BCP-CSM-CPI-IGAA :4 i UAC-UNIPAR-ENAM-FADESP :4 ; JO :1 ' aft
