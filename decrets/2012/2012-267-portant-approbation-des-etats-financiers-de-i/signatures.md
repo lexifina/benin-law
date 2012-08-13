@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 'lf août 2o1 2 Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, Le Ministre de l'Economie et des Finances, Jo s GBIAN AMPLATTONS pR4:AN2,CS2iCC2iHCJ2tCES2itlAÂC2iSGG4tMMFEJF4,MEF,l,AuÙ.!Minrslèr6!23.DGB-DCF.{,ÂC_UNIPAR-ENÀ,VI_F^OESPa.JO'l ffi DECRETE Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Chargé de la Défense Nationale, Dr Boni YAYI.- cow Pascal lrénée KOUPAKI Le Ministre Chargé de la Microfinance, de I'Emploi des Jeunes et des Femmes, Réckva MADOUGOU {
