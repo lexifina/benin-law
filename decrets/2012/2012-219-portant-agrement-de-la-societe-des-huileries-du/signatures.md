@@ -1,0 +1,5 @@
+# Signatures
+
+Fait à Cotonou, le 1) aout 2012 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, î,o"É Le Ministre du Développement, de I'analyse Economique et de la Prospective, Marce I lain de SOUZA Le l\/inistre de l'Environnement, de l'Habitat et de I'Urbanisme, à.
+Blaise Onesiphore AHA rukaruz Dr. Boni YAYI Le Premier l\tlinistre Chargé de la Coordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, Pascal lrénée KOUPAKI Le Ministre de I'Economie et des Finances, Alavi Adidiatou MATHYS Le [t4inistre de l'lndustrie, du Commerce, des Petites et lVloyennes Entreprises, Madina SEPHOU t d 0rb- I Le Ministre du Travail et de la Fonction Publique, aupllalLgl§:pR6-AN4-CS2-CC2-CES2-HAÂC2-HCJ2-PM/CCAGEPPPDOS4MDAEP4-MEF4-MICPME4-MTFP4- IIIETITI A-EUTNCS MINISTERES 21 - SGG 4. DGBMl'DCF1' DGTCP 1 - DGID 1' DGDDI 1-BN 1'DAN 1.DLC 1 . GCONB 1. DGCSTI-|NSAEl-BCP1-CSM1-CPl 1-IGAA'!-UACl-UNIPARl-ENAI\, 1- FADESP 1 - JORB 1- Sociêté des Huileries du Bénin- Bohicon (SHB-Bohicon) 1.
+//
