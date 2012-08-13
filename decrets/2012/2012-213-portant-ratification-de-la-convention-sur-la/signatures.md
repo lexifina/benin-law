@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 1l août zote Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI ô 6l Le Premier Ministre Chargé de la Coordination de I'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, Pascal lrénée KOUPAKI Le Ministre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de l'Extérieur, Le Ministre de l'Agriculture, de l'Elevage et de la Pêche, Nassirou BAK FARI Sabai KATE AEdE!!9!§_: pR 6 AN 85 CC 2 CS 2 CES 2 HAAC 2 HCJ 2 PM/CAGEPPPoDS 4 MAEP 4 MAEhFaE 4 AUTRES MINISTERES 24 SGG 4 oGBli,lDCF- DGTCP.oGID-DGDD! 5 BN-DAN-DLC 3 GCO[/tB-DGCST-INSAE 3 BCP-CSM-IGÂA 3 UAC-ENAM-FADESP 3 UNIPAR-FDSP 2 JO I ù G*u*rc gP,
