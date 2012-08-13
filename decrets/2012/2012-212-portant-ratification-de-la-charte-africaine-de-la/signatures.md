@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 11 août 2012 Dr Boni YAYI fr ft Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, ?,og* Pascal lrénée KOUPAKI Le Ministre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de l'Extérieur, Le l\4inistre de la Jeunesse, des Sports et Loisirs, a!!!!!3!!.9!.!-: pR 6 AN 85 CC 2 CS 2 CES 2 HAAC 2 HCJ 2 PIj/CAGEPPPDDS 4 MJSL 4 MAETAFBE 4 AUTRES MINTSTERES 22 SGG 4 DGEM-OCF DGTCPOGIO.OGDDI 5 EN.DAN.DLC 3 GCOI,'B.DGCST.INSAE 3 BCP.CSI\,4'IGAA 3 UAC'ENAM.FADESP 3 UNIPAR.FOSP 2 JÔ 1 ^ Nassirou BAKO ARIFARI Didier APLOGAN-DJIBODE
