@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 1l août 2012 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI.- Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques' du Programme de Dénationalisation et du Dialogue Social, î.y Le Ministre de l'lndustrie. du Commerce et des Petites et Moyennes Entreprises, Madina SEP u.- PascaI lrénée KOUPAKI.- Le Ministre de I'Economie et des Finances, J sGB Le Ministre des Affaires Etrangères, de I'lntégration Africaine, de la Francophonie et des Béninois de l'Extérieur, Nassirou BAKO ARIFARI.- AMPLIATIONS: PR 6- -AN 4- CC 2. CS 2_HAAC2 - CES 2- HCJ 2 PM/CCAGEPPDDS 4 MAEIAFBE 4 MICPME 4 MEF 4 ÀUî-nes r./lrrursrenes 23- SGG 4 - DGBM-DCF.DGTCP.DGID-DGDDI 5. BN-DAN-DLC- 3. GCONB-DCCT-INSAE 3- BCP.CSN- IGÊÂ 3. UAC-ENAM-FASJEP 3- UNTPAR-FDSP 2- JO 'I..
+C/ d
