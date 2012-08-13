@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 1l août zo1 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, 0,«uo Le ttlinistre de I'Economie et des Finances, Le Ministre du Travail et de la Fonction Publique, Mëmouna KORA KILE Dt.- AUEtlAILg!§: PR6 AN4 CS2 CC2 CES 2 HAAC 2 HCJ2CSM2 PI\,/CCAGEPPPDDS 4 IVIEF4MTFP4 AUTRES MINISTERES 23 SGG 4 DGBIiI-OCF-DGTCP.DGID.DGDDI 5 BN-DAN.DLC 3 GCONB-DGCST-INSAE 3 BCP-CSM-3 UAC- UNIPAR-ENAM 3 FADESP-FDSP 2 INFOSEC 1 JO 1,- d§ Dr Boni YAYI Pascal lrénée KOUPAKI Alavi Adidiatou MATHYS.-
