@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 28 août 20t 2 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, âo,,# Ministre de l'Economie et des Finances, Ministre Chargé des Relations avec les lnstitutions, onas GBIAN Safiatou BASSABI ISSIFOU IMOROU AUE!!AM!§: PR 6 AN 4 cs2 cc2 CES2 HAACzHCJ2 PM/CCAGEPPPoDS 4 McRl 4 MEF4 AUTRÊS MINISTERES 25 MDN 4 -EMG 2- CEMAT 2 CEMFA O2-CEMFN 02- DGGN 02- SGG 4 DGBM.DCF.DGTCP-DGID.DGDDI 5 BN.DAN-DLC 3 GCOM&DGCST-INSAE 3 BCP.CSM.IGAA 3 UAC. ENAM _ FADESP 3. UNIPAR _ FDSP 2 JO 1, AN Dr BoniYAY| Pascal lrénée KOUPAK!
