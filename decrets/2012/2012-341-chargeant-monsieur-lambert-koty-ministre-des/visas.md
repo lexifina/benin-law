@@ -1,0 +1,5 @@
+# Visas
+
+REPUBLIQUE DU BENIN Chatgeant Monsieur Lambert KOTY, Ministre des Travaux Publics et des Traosports, de I'intérim de Monsieur Blaise Onésiphote AHÂNHÂNZO-GLELE, Mini§&e de I'Environaement, de I'Habitat et de l'Utbanisme du 15 au 27 iuia 2012.
+LE PRESIDENT DE IâREPUBLIQUE CHEF DE L'ETÀT CHEF DU GOUVERNEMENT, \,al b Lor 90-032 du 11 décembte 1990 portant Constitudon de la République du Bénin ; \r[J la Proclamation le 29 mars 2011 par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du 73 mars 201'l ;
+VU le décret no2012-069 du 10 2vr112012 ponant composition du Gouvemement; VIJ le décret rro2012-173 du 16 juin 2012 chargeatt Monsieur Pascal Irénée KOUPAKI, Premier Ministre Charge de la Coordination de I'Actior Gouvemementale, de l'Evaluation des Poütiques Publiques, du Programme de Dénationaüsation et du Dialogue Social, de hntérim du Ptésident de la Répubüque, Chef de l'Etat, Chef du Gouvemement Chargé de la Défense Nationale pour comptet du 16 jutn 2072. DEC
