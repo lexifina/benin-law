@@ -1,0 +1,5 @@
+# Signatures
+
+Fait à Cotonou, le 02 oc Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, Dr Boni YAYI.- portant ratification du protocole portant amendement à l'accord sur les Aspects des Droits de Propriété lntellectuelle qui touchent au Commerce (ADEPIC), adopté par le Conseil Général de l'Organisation Mondiale du Commerce, le 06 décembre 2005.
+LE PRESIDENT DE I"A REPUBLIQUE, CI{EF DE L'ETAT, GHEF DU GOUVERNEMENT, o A- Le Premier Ministre Chargé de la Coordination de I'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, Le Ministre de l'lndustrie, du Commerce, des Petites et Moyennes Entreprises, Pascal lrénée KOU PAKI l'Extérieur, Madina SEPHOU.- Nassirou BA FARI.- AUE!!ÀM!§: PR 6-AN 4- CC 2 - CS 2-HAAC2 - CES 2 - HCJ 2 PM/CCAGEPPDDS 4 MAEIAFBE 4 MICPME 4 AUTRES IIIII'IISTCNES Z+- SCG 4. DGEM.DCF-DGTCP.OGID.DGDDI 5' BN'DAN-DLC- 3 - GCONB'DCCT-INSAE 3' BCP'CSN]GAA 3' UAC' ENAM.FASJEP 3- UNIPAR-FDSP 2- JO '1,.
+d* îw Le Ministre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de
