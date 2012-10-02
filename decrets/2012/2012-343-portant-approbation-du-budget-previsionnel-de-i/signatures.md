@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le Oz octobrê 2012 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Ministre de l'Economie et des Finances, nas GBIAN AMPLIATIONS: PR6AN4 CS2CC2CES2HCJ2HAAC2 HCJ2PM/CCGEPPPDDS4MEF4 MICPME4 AUTRES MINISTERES 23S GG 4 DGB-DCF-DGTCP.DGID.DGDDI 5 BN.DAN.DLC 3 GCONB.DCCT-INSAE 3 BCP-CSM-IGAA-IGE 4 UAC ENAM-FADESP 3 UNIPAR-FDSP 2 JO 1, D'Boni YAYI Le Premier Ministre Chargé de la Coordination de I'Action Gouvernementale, de I'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, 2,,g* Pascal lrénée KOUPAKI Le Ministre de l'lndustrie, du Commerce, des Petites et Moyennes Entreprises, Madina SEPHOU db
