@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 05 oc Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI.- c-b Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de I'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, f,^ Le Ministre de l'Economie et des Finances, Le Ministre de l'Agriculture, de l'Élevage et de la Pêche nas Katé SABAÏ.- AMPLIATIONS : PR 6- AN 4- CC 2 - CS 2 - HAAC 2 - CES 2 - HCJ 2 PM/CCAGEPPDDS 4 MAEIAFBE 4 AUTRES MINISTERES 24- SGG 4 - DGBIVI-DCF.DGTCP-DGID.DGDDI 5. 8N.DAN-DLC- 3 - GCONB-DCCT-INSAE 3. BCP.CSN-IGAA 3- UAC-ENAM.FASJEP 3- UNIPAR-FDSP 2. JO 1-- ütu Pascal lrénée KOUPAKI.- w
