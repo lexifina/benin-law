@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 06 n.vembrê 2o'1 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Chargé de la Défense Nationale, Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, Le Ministre de l'Economie et des Finances, Le Ministre de l'lntérieur, de la Sécurité, Publi s Cultes, Jo s GBIAN Benoît Assouan omla DEGLA UPt!ÀIlgI§ : PR 6 - AN 4 - CC 2 - CS 2 - CES 2 - HAAC 2 HcJ 2 - PM/CCAGEPPPDDS 4 MEF 4 lvllSPC 4 lvlEF 4 - AUTRESMINISTERES23-SGG4.DGB.DCF-DGTCP,DGDDI4.BN-DAN-DLC3-GCONB-DCCT-INSAE3-BCP-CSIVI- IGAA 3 - UAC-ENAM.FADESP 3 UNIPAR-FDSP2_CCIB1_INTERESSES 16 JO 1, .+* ü) Dr Boni YAYI Pascal lrénée KOUPAKI
