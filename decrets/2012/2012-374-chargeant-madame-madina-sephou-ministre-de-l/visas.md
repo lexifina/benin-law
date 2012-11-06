@@ -1,0 +1,6 @@
+# Visas
+
+VU VU VU VU REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE DECRET No2012-174 DU c6 NOVEMBP& 2C12 Chargeant f4adame l4adina SEPHOU Ministre de l'lndustrie, du Commerce, des Petites et Moyennes Entreprises, de l'intérim de l4adame Sofiatou ONIFADE BABA-MOUSSA, Ministre de l'Energre, des Recherches Pétrolières et Minières, de l'Eau et du Développement des Energies Renouvelables pour compter du 08 au 22 août 2012.
+LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT.
+La Loi N"90-032 du 11 décembre 1990 portant Constitution de la République du Benin; La Proclamation le 29 mars 2011 par la Cour Constitutionnelle des résultats définitift de lél€ction présidentielle du 13 mars 2011 ;
+Le Décret N"2012-069 du 10 Avril 2012 portant composition du Gouvernement; Le Décret No2012-129 du 28 mai 2012 portant intérim du Président de la République; DECRETE Article le': Pour compter du 08 au 22 août 2012, Madame Madina SEPHOU Ministre de llndustrie, du Commerce, des Petites et Moyennes Entreprises est chargée de l1ntérim de Madame Sofiatou OI{IFADE BABA-MOUSSA, Ministre de l'Energie, des Recherches Pétrolières et Minières, de l'Eau et du Développement des Energies Renouvelables, absente du territoire national.
