@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 06 novembre 20'1 2 Par le Président de la RéPublique, Chef de l'Etat, Chef du Gouvernement, / Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, Le Ministre des Affaires Etrangères de I'lntégration Africaine, de la Francophonie et des Béninois de I'Extérieur, Nassirou BAKO RIFARI Le Ministre du Développement, de I'Analyse Economique et de la Prospective, Le Ministre de l'Economie et des Finances, onas GBIAN Le Ministre de l'lndustrie, du Commerce, des Petites et Moyennes Entreprises, \ Marcel A n de SOUZA AUe!!À[.!g!§:PRi6;AN:4:CS4;CES.2:!1AAC 2]HCJ:2:PMCCAGEPPPS2;MAEIAFBE4iMDAEP4;MEF 4;MICPME 4;
+ÂûîÉE§Tj i-srenes, zl; scc, 4; DGB/MEF-DcF-ocTcp-octlDGDor : 5; BN-DAN-DLC: 3; GcoNlB-DGcsr-lNsAE : 3 - BcP CSMIGAAIGÊ 4 : FADESP 3. UP-FoSP2 JO 1.- I M Dr Boni YAYI /,tgg, Pascal lrénée KOUPAKI Madina SEPHOU I t
