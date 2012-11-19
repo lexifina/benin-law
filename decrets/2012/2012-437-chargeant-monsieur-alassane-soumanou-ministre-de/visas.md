@@ -1,0 +1,4 @@
+# Visas
+
+REPUBT.ICUE DU BENIN PRESIDENCE DE LA REPUBLIQUE DECRETN'2012 - 417 DV 19 NoVEMBRE 201 2 Chargeant Monsieur Alassane SOUMANOU, Ministre de l'Enseignement Secondaire, de la Formation Technique et Professionnelle, de Ia Reconversion et de l'lnsertion des Jeunes (MESFTPRIJ), de l'intérim de Monsieur François Adébayo ABIOLA, Ministre de l'Enseignement Supérieur et de la Recherche Scientifique pour compter du mardi 17 juillet 2012au dimanche 29 juillet2012.
+LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT, VU la loi n'90-032 du 11 décembre 1990 portant Constitution de la République du Bénin , VU la proclamation le 29 mars 2011 par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du 13 mars 201 1, VU le Décret N" 2012-069 du 10 avril 2012 portant composition du Gouvernement
