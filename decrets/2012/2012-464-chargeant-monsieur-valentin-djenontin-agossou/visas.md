@@ -1,0 +1,4 @@
+# Visas
+
+REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE DECRETN"2012 -464 DU 19 NOVEMBRE 2O12 Chargeant Monsieur Valenün DJENONTIN- AGOSSOU, Ministre Délégué auprès du Président de la République Chargé de l'Ec,onomie Maritime, des Transports Maritimes et des lnfrastructu res Portuaires (MDCEMTMIP/PR), de I'intérim de Monsieur François Adébayo ABIOLA, Ministre de I'Enseignement Supérieur et de la Recherche Scientifique pour compter du jeudi 30 août 2012au dimanche16 septembre 2O12.
+LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT, VU la loi n" 90-032 du 1 1 décembre '1990 portant Constitution de la République du Bénin , VU la proclamation le 29 mars 2011 par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du 13 mars 201 1 , VU le Décret N' 2012-069 du 10 avril 2012 portant composition du Gouvernement DECRETE :
