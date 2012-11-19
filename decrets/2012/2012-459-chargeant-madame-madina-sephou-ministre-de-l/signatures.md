@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Co nou, I 19 novÉmbrc 201 2 VU VU VU Le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI AIItLIATIONS. pR6-pR2 - 5GG2'AN 2{S 2 - CES2 - HC] 2- CC 2- HAAC2- r,1IC4- MEF2- I'IIN;STERES 29 . ÀUTRES -JORE 1 û Article 1"': Pour compter du 06 au 09 Juin 2012, Madame Madina SEPHOU lulinistre de l'lndustrie, du Commerce, des Petites et lvloyennes Entreprises est chargée de l'intérim de Madame Sofiatou ONIFADE BABA-MOUSSA, Ivlinistre de l'Energie, des Recherches Pétrolières et l'4rnières, de l'Eau et du Développement des Energies Renouvelables, absente du territoire national.
