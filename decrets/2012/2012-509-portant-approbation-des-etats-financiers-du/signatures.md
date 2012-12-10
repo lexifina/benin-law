@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le lo décembre 2012 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, QtA, Le Ministre de I'Economie et des Finances, Jo GBIAN Le Ministre de l'Agriculture, de I'Elevage et de la Pêche, katé SABAI auPt!ÂI!.glg: pR6 AN4 CS2 CC2 CES2 HAAC 2 HCJ 2 PM/CCAGEPPPDDS 4 MAEP4 MEF4 AUTRES MINISTERES 24 SGO4 Si,TP 2 DGAE-DGCPE 2 DGBM.DCF-DGTCP-DGID.DGDDI 5 BN-DAN.DLC.3 GCONB-DCCT-INSAE 3 BCP.CSM-IGAA 3 BCP-CSM-IGAA 3 UAC-ENAM.FADESP 3 UNiPAR-FDSP 2 . JO 1, c Dr BoniYAY| Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, Pascal lrénée KOUPAKI q r
