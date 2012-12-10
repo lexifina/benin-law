@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 10 déccmore 2012 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de I'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, 2,n Le Ministre de l'Economie et des Finances, J as Le Ministre de l'Environnement, de l'Habitat et de l'Urbanisme, I LE ASEtlAf!.9!§ : PR 6- AN 4- CC 2 - CS 2 - HAAC 2 - CES 2 - HCJ 2 PM/CCAGEPPDDS 4 MEHU 4- MEF 4- AUTRES MINISTERES 23- SGG 4. DGBM.DCF-DGTCP-DGID.DGDDI 5. BN.DAN-DLC- 3 - GCONB-DCCT-INSAE 3- BCP-CSN-IGAA 3- UAC-ENAM.FASJEP 3- UNIPAR-FDSP 2- FNE JO I,- i Dr BoniYAY| Pascal lrénée KOUPAKI oY &
