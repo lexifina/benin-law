@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, [e 10 déccmbre 201 2 Par [e Président de [a Répubtique, Chef de ['Etat, Chef du Gouvernement, Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de t'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Diatogue Sociat, Le Ministre de ['Economie et des Finances, on AN AleUÂIg!§: PR6AN 4 CS2 CC 2 CES2 HÀÂC 2 HCJ 2 PM/CCAGEPPPDDS 4 MEF4 AUTRES MINISTERES 25 SGG4 DGBM. DCF.DGTCP.OGID.DGDDI 5 BN.DAN.DLC 3 GCOMB.OGCST.INSÀE 3 BCP.CSM.IGAA 3 UAC- ENAt,l - FADESP 3. UNIPAR. FDSP 2 JO 1.- d Dr Boni YAYI û,,Gÿ^ Pascal lrénée KOUPAKI
