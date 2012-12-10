@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 10 d êmbre 2O1ê Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de I'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, (?" Le Ministre de l'Economie et des Finances, n GBIAN AUEtIAILgI§ : PR 6 - AN 4 - CS 2 - CC 2 - cES 2 - HAAC 2 HCJ 2 - PM/CCAPPPDDS 4 - McRl 4 MEF 4 - AUTRES MINISTERES 23 - SGG 4 DGBM.DCF-DGTCP-DGID.DGDDI 5 BN.DAN-DLC 3 GCOM&DCCT-INSAE 3 BCP-CSM.IGAA 3 UAC- ENAM - FADESP 3. UNIPAR - FDSP JO 1, eh 2r Dr BoniYAY! Pascal lrénée KOUPAKI Le Ministre Chargé des Relation avec les lnstitutions, Safiatou BASSABI ISSIFOU MOROU
