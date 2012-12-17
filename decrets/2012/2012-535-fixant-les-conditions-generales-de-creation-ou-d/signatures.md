@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 17 décêmbre 2012 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI Le Premier Ministre chargé de la Coordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, ptl,6"l,n16^ Le Ministre de I'Economie et des Finances, Le Ministre des Enseignements Maternel et Primaire, J N AMPLIATIONS : PR 6 AN 4 CC 2 CS 2 CES 2 HAAC 2 HCJ 2 PM/CCAGEPPPDDS 4 MEF 4 MEMP 4 AUTRES MINISTERES 24 SGG 4 DGBM-DCF.DGTCP.DGID.DGDDI 5 BN.DAN 3 GCONB.DCCT.INSAE 3 BCP-CSM-IGAA 3 UAC. ENAM-FAOESP 3 UNIPAR.FDSP 2 JO 1, ù- Pascal lrénée KOUPAKI I Eric Kouaqou N'DA
