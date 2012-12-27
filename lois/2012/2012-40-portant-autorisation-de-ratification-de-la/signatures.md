@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 27 décembre Par le Président de la République Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI.- Le Premier Ministre Chargé de la Coordination de l'Actiçm Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, Pascal Irénée KOUPAKI.- le Ministre de la Communication et des Technologies de l'Information et de la Communication, Max Barthélémy AHOUEKE.~ le Ministre des Affaires Etrangères, de l'Intégration Africaine, de la Francophonie et des Béninois de l'Extérieur, Nassirou BAKO AMPLIATIONS: PR 10 PM 2 AN 6 CS 2 CC 2 CES 2 HAAC 2 HCJ 2 SGG 4 MINISTERES 2 JO 1
