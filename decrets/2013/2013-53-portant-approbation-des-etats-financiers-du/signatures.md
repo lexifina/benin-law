@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le Par le Président de la RéPublique, Chef de l'Etat, Chef du Gouvernement, Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques du Programme de Dénationalisation et du Dialogue social, ?trcy, Le tvlinistre de l'Economie et des Finances, J s Le Ministre des Travaux Publics et des Transports, mbert KOTY Ampllations: PR 2; CES2; AN 2: SGG2;CC'l :CS1:HAAC1:MEF2;MTPT2i AUTRES MINISTÈRES22'; 6ËÂ--E-DGcpE 2; ôNSR 5; DGBM 2: oGTcP 2; INSAE 1; UNB 'l; FASEc 1; FADSP; Et'lAM 1: ENEAM 1; GCONB 1: JO 1.u -z (/ d Dr. Boni YAYI Pascal lrénée KOUPAKI
