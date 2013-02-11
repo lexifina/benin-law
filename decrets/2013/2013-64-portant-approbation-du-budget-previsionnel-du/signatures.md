@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 11 février 201J Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, Le Premier Ministre Chargé de la Coordination de I'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, Qoff Pascal lréné KOUPAKI Le Ministre de l'Economie et des Finances, Le Ministre Chargé de la Microfinance de l'Emploi des Jeunes et des Femmes, Jon A. GBI Rékiatou MADOUGOU DO Ampliations : PR 6 ; AN 4I CS 2; CES 2; HAAC 2; HCJ 2 - PMCCAGEPPPDDDS 4.,,MEF 4 MCIiIEJ 4 AUTRES MTNISTERES 24 SGG 4; DGBM-DCF-DGTCP-DGID-DGDDI 5; BN-DAN-DLC 3; GCONB-DGCST- db Dr BoniYAY| INSAE3: BCP-CSM-IGE4 -UAC - ENAM-FADESP 3- UP-FDSP 2 Archives 01 iJO-Oh/ /
