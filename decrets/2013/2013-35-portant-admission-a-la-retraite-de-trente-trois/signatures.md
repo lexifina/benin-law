@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le '1 .1 févrler 2011 Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, Le Premier Ministre Chargé de la Coordination de l'Action, Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, I6PC Le Ministre de I'Economie et des Finance, Le Ministre de l'lntérieur, de la Publique et des Cultes, B Assouan AEp!.!3!ie.E9-: PR:06-AN:04-CS: 02-CC: 02-HCJ:02-CES: 02-HAAC: 02-MISPC: 04- MEF | 04 - ÂUTRES [llN S:26-S DGTCP,OGID.DGDDI 05 - SERVICES RATTACHES CABINET OGPN: 06 DDPN-To{JTES UNITES PN: 87 - BNoANOLC I 03 - GC B.OCCT.INSAE rGAA:03- UNB+iIA+AOESP: 03 - INTERESSES:33 - DOSSIERS II.ITERESSES:33 §YNAPo|-|CE:0'l - DELEGATIONS DU PERSoNNEL:0'1 CHRONO : 01- ARCH IVES:01.2. /- .r @ DrBoni YAYI Pascal lrénée KOUPAKI (_ 04 - oGB,DCF- 03 - 8CP-CSM,
+- JoRB : 01 -
