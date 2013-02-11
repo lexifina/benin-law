@@ -1,0 +1,6 @@
+# Signatures
+
+Fait à Cotonou, le 11 février 201f Dr Boni YAYI.- DECRETE:
+Par le Président de la RéPublique, Chef de l'Etat, Chef du Gouvernement, 6l û Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de I'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, Le Ministre des Affaires Etrangères, de l' lntégration Africaine, de la Francophonie et des Béninois de I'Extérieur, Le Ministre de l'lndustrie, du Commerce et des Petites et Moyennes Entreprises.
+Sofiatou ONI FADE BABAMO USSA.- Le Ministre des Enseignements Maternel et Primaire, Eric Kouaqou N'DA.- Le Ministre de l'Enseignement Supérieur et de la Recherche Scientifique, Francois Adébavo ABIOLA.- Nassirou AK RIFA RI Babalola Jean-MichelH. ABIMBOLA Le Ministre de l'Enseignement Secondaire, de la Formation Technique et Professionnelle de la Reconversion et de l'lnsertion des Jeunes, sa ne UM ou.- rfl <- nas GBI A-UEt!ÀIlgI§:pR6-AN4-CC2-CS2-HAAC2-CES2-HCJ2-P|\,/CCAGEPPDDS4-I'IAEIAFBE4-MCAAT4-MICPME4-ME|\4P4- MESFTPRIJ 4 - MESRS 4 -MEF 4- AUTRES MINISTERES 20. SGG 4. DGBM-DCF'DGTCP-OGID'DGDDI 5- BN'DAN-DLC' 3 - GCONB'
+3. BCP.CSN-IGAA 3. UAC.ENAM.FASJEP 3. UNIPAR.FDSP 2- JO 1.- î,rc-gz Ministre de la Culture, de l'Alphabétisation de l'Artisanat et du Tourisme, Pascal lrénée KOUPAKI.- Ministre de l'Economie et des Finances, '";î* db-
