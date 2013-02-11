@@ -1,0 +1,5 @@
+# Signatures
+
+Fait à Cotonou, le r t février 2o1 ] Par le Président de la RéPublique, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI.- d, H Le Premier Ministre chargé de la coordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, Le Ministre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de I'Extérieur, Pascal lrén e KOUPAKI..
+Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, Porte-Parole du Gouvernement, Na BAKO A ARI.- Le Ministre de I'lndustrie, du Commerce et des Petites et MoYennes Entreprises, Akuavi Marie- Elise C. GBEDO.- Le Ministre de l'Economie et des Finances, Sofiatou ONIFAD BABAMO USSA.- o as GBIAN.- AMPLIATIONS:PR6,AN4.CC2-CS2-HAAC2.CES2-HCJ2'PM/CCAGEPPDDS4-MAEIAFBE4'Ii!JLOH4'AUTRESMINISTERES 23- SGG 4 . DGBM.DCF.DGTCP-DGIO.DGDOI 5- BN.OAN.DLC. 3 ' GCONB'DCCT'INSAE 3' BCP'CSN-IGAA 3' UAC'ENAM'FASJEP 3 ' UNIPAR-FDSP 2- JO '1..
+dk 0ry ------'--- q
