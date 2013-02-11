@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 11 f évrlar 201J Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, Le Premier Ministre Chargé de la ordination de I'Action Gouvernementale, de l'Evaluation des Politiques Publiques' du Programme de Dénationalisation et du Dialogue Social, (trcyt Le Ministre I'lntérieur, de la Sécurité Publique et des Cultes, Benoît Assouan Co EGLA Amoliations PR6-AN4-CC2-CS2-C MINISTERES 24. SGG 4 - DGB.DCF-DGTCP-OG Le Ministre de I'Economie et des Finances, 2.HAAC2 HCJ 2 - PM/CCAGEPPPDDS 4 MEF 4 IUISPC 4 - AUTRÉS DDI 4-BN.DAN.DLC 3. GCONB-DCCT.INSAE 3- BCP-CSM]GÂÂ 3 - UAC- N J & ENAI.,4.FADESP 3 . UNIPAR-FDSP 2 - CCIB 1- JO 1 r Dr Boni YAY I Pascal lrénée KOUPAKI ry
