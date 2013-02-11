@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 11 févrLer 2011 Par le Président de la RéPublique, Chef de l'Etat, chef du Gouvernement, Le Premier Ministre Chargé de la Coordination de I'Action, Gouvernementale, de l'Evaluation des Politiques Publiques' du Programme de Dénationalisation et du Dialogue Social, K# Le Ministre de l'Economie et des Finances, J Le Ministre de l'Agriculture, de l'Elevage et de la Pêche, w Katé SABAï DOS 4 ;MAEP 4l MEF4 AUTRES MINISTERES N-OLC-lGE4 : GCOMB-DGCST'INSAE-IGE 4 iBCP- aMPLIATIONS: PR 6 : AN 4; CS2l CC2; CES2; IIAAC 2; HCJ2 :PM/CCAGEPPP â; sEê7j DGAÊ - oôcpe z - pec z ; DGBM-DcF-oGrcP-DGID'oGDDI 5: BN-DA CSMIGAA 3 : UAC-ENAM-FAOESP 3 | UN\PARry' d Pascal lrénée KOUPAKI Dr Boni YAYI
