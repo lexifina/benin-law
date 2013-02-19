@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le tg f evrier 2or3 Par le Président de la RéPublique, Chef de l'Etat, Chef du Gouvernement, Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de I'Evaluation des Politiques Publiques' du Programme de Dénationalisation et du Dialogue Social, et6 Le Ministre de l'Economie et des Finances, AS N Le Ministre de l'lndustrie, du Commerce et des Petites et Moyennes Entreprises, AMPLIATIoNS: PR6AN4cs2cC2 cEs 2 HAAC 2 HcJ2 PM/CCAGÊPPDDS 4 MEF 4 McTlc4MlcPl\,E4AUÎRES fifrËre'=a-Es zt sèé'i'bèàù-ôci-oèrôp-ôèro-oooor 5 BN-DAN-DLc-IcE 4 ccoMB-Dccsr-INSAE-IGE 4 BcP-csM-IGAA 3 UAC-ENAM-FADESP 3 UNIPAR-FDSP 2 , ABeNOR 2: ;JO 1 æ Dr BoniYAYI Pascat lrénée KOUPAKI Akuavi MarieElise Christiana GBEDO
