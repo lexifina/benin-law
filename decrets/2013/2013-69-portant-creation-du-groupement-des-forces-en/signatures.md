@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le rs fevrier 2013 Par le Président de la RéPublique, Chef de I'Etat, Chef du Gouvernement, Chargé de la Défense Nationale, Le Premier tVlinistre chargé de la Coordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social Pascal lrénée KOUPAKI Le fvlinistre de I'Economie et des Finances onas AMPLIATIONS: PwCAB/MIL 2 - AN 2 - CS 2. CC 2-CES 2.HAAC 2 HCJ 2 PM/CCAGEPPPDDS 4 _ MEF 4.. AUTRES ES 25- SGG 04 -CEl\rG 2 - C E|\,4AT 2 -CEMFN 2_CEi'FA2-SPD 02- IGE-DEP-INSAE 03. DSIA02-DGBM- DCF- B-DCCT-INSAE 3-BCP-CSM-IGAA 3-UAC-ENA-FASJEP3- JO 01- Archives 01- ) I\,4IN ISTE R DGTCP - Chrono 01 DGIO-DG I O5 -BN-DAN.DLC 3-GCON OV Dr BoniYAY| 2t«g§
