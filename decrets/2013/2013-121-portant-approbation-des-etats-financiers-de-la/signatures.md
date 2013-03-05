@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le os nars 2ot3 Par le Président de la RéPublique, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI Le Premier Ministre Chargé de la Coordination de I'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, P*w Le Ministre de l'Economie et des Finances, J AMPLIATIONS PR4.AN4-HCJ2-CC Ministères 23 - DGB-C F-DGTCP.DGID-DGDDI-DGE . UAC-ENEAi' -FADESP- 2 - CES 2 - SGG2 - HAAC 2 - PM/CCAGEPPPDDS 4 MEF 4 - Autres o - ror r- eN-onN-oLc 3 - GCONG-DCCT-INSAE 3 - BCP-CSM-IG'lÂ 3 S ffi FASEG 4. UNIPAR 1 - LNB 5. JO Pascallrénée KOUPAKI
