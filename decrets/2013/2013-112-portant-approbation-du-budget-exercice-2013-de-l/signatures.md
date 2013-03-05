@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le os rnars 2013 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de l'évaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, ,rh Dr BoniYAY| 0"Wi Pascal lrénée KOUPAKI-j,, Ministre de l'Economie et des Finances, BIAN Le Ministre de la Communication et des Technologie de I'lnformation et de la Communication, Max Barthé]émv AHOUEKE n Amoliations: PR'1 ;CES 1; AN 2;SGG2;CC 1;CS 1;HAACI ; PM/CCAGEPPPDDS 2; l\tlEF ; MCTIC 1 ; Autres Ministères 24, ONIP 2; DGAE-DGCPE 1 | DGB 1 i DGTCP 1 ; INSAE I ; UNB : FASEG 1 ; FADSP 1 ; ENAM l ; ENEAM'l i GCONB I ; JORBI dV &
