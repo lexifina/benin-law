@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, Ie 05 rnars 2ot3 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, Le Ministre de l'Economie et des Finances, J sA Le Ministre Chargé de la trlicro finance, l'Emploi des Jeunes et de Femmes, RéKiatou MADOUGOU YE AUEI!ÀII9Nq:PR: 06 ; AN 2;cS 2;cc2;HCJ 2;cES 2;l-l.AAc 2; SGG 4;HCJ 2 PM/CCAGEPPPDDS 4 MCMEJF: -îl JuEr-?lert,es Ministères:24; DGB-DCF-DGCTP-DGID-DGDDU05 ; BM-DAN-DLC: 03: GCONB-DFCINSAE: 03 i BCP-CSMJGAA : 03 ; UNIPAR-FDSP : 02 i JO :01 ,,- , 4/ t.) ft Dr Boni YAYI ûg* Pascal lrénée KOUPAKI
