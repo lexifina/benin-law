@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 20 mars 2073 Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de I'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, ryEK' Droits de l'H mme, Jon Le tvlinistre du Travail et de la Fonction Publique, Mêmouna ZA LEADI A.UEI!ÀMI§: pR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 HCJ 2 PM/CCAGEPPDDS 4 MEF 4 GS/MJLDH-PPG 4MTFP4AUTRES MINISTERES 23 SGG 4 DGBM.DCF.DGTCP-DGID-DGDDI 5 8N.OAN-DLC-IGE 4 GCOMB-DGCST-INSAE-IGE 4 BCP-CSM.IGAA 3 UAC' Le Ministre de l'Economie et des Finances, ENAM-FADESP 3 UNIPAR-FDSP 2 ONAS,A 1 JO lry,- dN Le Garde des Sceaux, Ministre de de la Justice de la Législation et des Pascal lrénée KOUPAKI Dr Boni YAYI Rékiatou MADOUGOU YEDO
