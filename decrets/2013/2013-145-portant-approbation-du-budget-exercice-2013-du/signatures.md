@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le zo mars 2013 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de l'évaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, d6 ?,,«r,n -r Dr BoniYAYI Pascal lrénée KOUPAKI Ministre de I'Economie et des Finances, Le Ministre de la Culture, de l'Alphabétisation, de l'Artisanat et du Tourisme, ic LA Ampliâtions: PR 6;AN 4:CC 2, HCJ 2; CS 2; HAAÇ 2 i PNI/CCAGEPPPDDS 4; l\tlDAEP 4; I'IAEP 4; t\rrera:OVI',UIOH-PPG4;AUTRESMINISTERES22;JO1:SGG4;SONAPRA2;SP/CTD2;DGB-DCF- DGCP-DGID-DGDDI 5 ; BN-DAN-DLC 3 ; GCONB-DCCT-INSAE 3 ; CPI/MPDAEP 2: CA2 | OPA6 JO V>/
