@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 2o rnars 2013 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Chargé de Ia Défense Nationale, Le Premier Ministre Chargé de la Coordination de I'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, ?*W Pascal lrénée KOUPAKI Le Ministre de l'Economie et des Finances, Jo sG AUEL!ÀL9I§: PR/CAB/MIL 2- AN2- CS 2- cC 2-cES 2-HAAC 2 -MEF 2-PMICCAGEPPPoDS 4 lvlDN 4 - AUTRES MINISTERES26.SGG04.CEMG2-CEMAT2.CEMFN2-CEMFA2_SPD02-IGE-OEP]NSAE03.DS'A02_DGBM-DCF. DGTCP - DGID-DGDDI 05 _BN-DAN.DLC 3.GCONB.DCCT-INSAE 3.BCP.CSM-IGAA 3-UAC-ENA-FASJEP3. JO O1- ATchivES O1- Chrono 01.JO 1 & ) Dr BoniYAY|
