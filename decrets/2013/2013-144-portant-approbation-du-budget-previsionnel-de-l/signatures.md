@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 2o ,,.s Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, db Pascal lrénée KOUPAKI Dr. BoniYAY| ltl6*td6 n-- Le Ministre de l'Economie et des Finances, Le Ministre de l'Environnement de l'Habitat et de l'Urbanisme Blaise Onésiphore AHANHANZO-GLELE Amoliations:PR6;AN4iÇC2:HCJ2;CS2;HAAC2;PM/CCAGEPPPDDS4:MOAEP4iMAEP4;MEF4;GS/MJLDH- PPG 4 ; AUTRES MINISTERES 22 | JO 1 ', SGG 4 ; SONAPRA 2 : SP/CTD 2 ; DGB-DCF-DGCP-DGID-DGDD| 5;BN-DAN-DLC 3 : GCONB-DCCT{NSAE 3 ; CPI/MI)DAEP 2 ; CAz: OPA6 JO 1d//- 0b
