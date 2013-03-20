@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 20 tna.t 2013 Par le Président de la RéPublique, Chef de l'Etat, Chef du Gouvernement, ffi I Dr Boni YAYI _-_4 LePremierMinistreChargédelaCoordinationdel'ActionGouvemementale' de l'Evaluation des Politiques Publiques' du Programme de Dénationalisation et du Dialogue Social' tc Pascal I. KOUPAKI Le Ministre Chargé de la Microfinance/ de l'EmPloi des Jeunes et des Femmes Le Ministre de l'Economie et des Finances 2,q, nas GBIAN Sofiatou ONIFADE BABA-MOUSSA Le Ministre de la Réforme Administrative et lnstitutionnelle Martial SOUNTON t II ob 4l AUTRES MINISTERES' æ-'dc iôér-ocr-ocrcp-DGID-DGDDI : 5 BN- DAN.DLC: S CCONE-DCâ'TNSET '? SCP'CSM-IGAA:3 UAC-ENAM - îN'iÀ.l --.Àossp - ressà-s- up-rosp | 2 Jo ,4///
