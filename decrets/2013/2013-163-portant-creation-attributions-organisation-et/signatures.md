@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le oz avrit 2013 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, Le Ministre du Travail et de la Fonction Publique, Pascal lrénée KOUPAKI Le l\/inistre de l'Economie et des Finances, Mëmouna KORA KI LEADI o S Martial SOUNTON AMPLIATIONS SGG 01 ;AN 01 ;CC 01 , HAAC 01 ;PM/CAGEPPPODS 01 , MTFP01: MEF01 :lüRAl 01 , iilDAEP 01 TIGSEP db 01 ;DGFP 01iAiüBASSADES 6t PNUD 01; l\,llN|STERES 22 CHRONO 01 ; JO 01 Dr Boni YAYI c,qv Le l\4inistre de la Réforme Administrative et lnstitutionnelle.
