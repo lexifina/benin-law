@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 11 avril Dr BoniYAY| Le Premier Ministre, Chargé de la Coordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, Pascal lrénée KOUPAKI Le Ministre de l'Economie et des Finances, Le Ministre de l'lndustrie, du Commerce, des Petites et Moyennes E repnses, Jo BI A uavi Marie-Elise Christiana GBEDO AMPLIATIONS: PR 6-AN 4-CS z-CC 2-CES 2-HAAC 2- PM/CCAGEPPPDDS 4-MEF 4-MICPME 4 AUTRES MINISTRES 24_ ABePEC 4-DGAE-DGCPE 2-DGB-DCF-DGTCP-DGID-DGDDI 5-INSAE 3 UAC-ENAM-FADESp 3-UN I PAR-FDSP 2-JORB r4_- û,«**o, #---
