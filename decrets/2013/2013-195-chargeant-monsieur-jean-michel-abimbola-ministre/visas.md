@@ -1,0 +1,4 @@
+# Visas
+
+REPUBLIQUE DU BEMN PRESIDENCE DE LA REPUBLIQUE DECRET No 2013-195 du 11 avril 2013 Chargeant Monsieur Jean-Michel ABIMBOLA Ministre de la Culture, de l'Artisanat et du Tourisme, de l'intérim de Monsieur Jonae À GBIAN, Ministre de I'Economie et des Finances, pour compter du lundi 03 au mercredi 10 avril 2013.
+T,E PRESIDENT DD LAREPUBIJQUE, CHEF DE L'ETAT, CHEF DU C'OUVERI.IEMENT, Vu la Loi n'90'032 du 11 décembre 1990, portânt Constitution de Ia République du Bénin Vu la Proclamation Ie 29 mars 2011par Ia Cour Constitutionnelle des résultats définitifs de I'éIection présidentielle du 13 mars 2011 i DECRETE Article 1o : Pendant l'absence de Monsieur Jonag GBIÀN, Ministre de l'Economie et des Finances, son intérim sera assuré par Monsieur Jean-Michel ABIMBOLA, Ministre de la Culture, de I'Artisanat et du Tourisme, pour compter du lundi 03 au mercredi 10 avril 2013
