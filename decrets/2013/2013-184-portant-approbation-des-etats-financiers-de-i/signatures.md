@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le r1 avril 2013 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Ministre de I'Economie et des Finances, J G AMPLIATIONS: PR MEF 4-MICPME 4 Le Premier Ministre, Chargé de la Coordination de I'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, Le Ministre de l'lndustrie, du Commerce, des Petites et Moyennes Entrepris Akuav i Marie-Elise Christiana GBEDO 6-AN 4-CS 2.CC 2-CES 2-HAAC 2_PM/CCAGEPPPDDS 4- AUTRES MINISTRES 24-ABePEC 4-DGAE-DGÇPÉ. 2- DGB-DCF-DGTCP-DGID.DGDDI 5-INSAE 3 UAC-ENAM-FADESP 3-UNIPAR- FDSP ?-JORB z.ay/ t/ Dr Boni YAYI orcyyg Pascal lrénée KOUPAKI
