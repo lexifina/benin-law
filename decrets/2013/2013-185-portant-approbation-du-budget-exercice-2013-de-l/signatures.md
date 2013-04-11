@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 11 avril 2013 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Premier Ministre, Chargé de la Coordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, ?*w, Le Ministre de l'Economie et des Finances, le Ministre de I'lndustrie, du Commerce et des Petites et Moyennes Entreprises, J BIAN âuet!ÀL!.qIg:pR6-AN4-SGG4-CC2.CES2-HAAC2-MEF4-MTCPME4-AUTRESMINISTERES24-AB9PÉC4- 6-ceM-DFC-Dcrcp-DGID-DGDDT 5-BN-oAN-DLc3-GCONB-DCCT-INSAE3-BCP-CSM-IGAA3-UAc-ENAM- FASEG3-JO1 D'Boni YAYI Pascal lrénée KOUPAKI Akuavi Marie-Elise Christiana GBEDO ÿ
