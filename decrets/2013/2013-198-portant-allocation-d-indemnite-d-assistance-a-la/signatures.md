@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 17 avril 2013 Par le Président de la RéPublique, Chef de I'Etat, Chef du Gouvernement' Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques' du Programme de Dénationalisation et du Dialogue Social, dtu Dr Boni YAYI 0^*o Pascal lrénée KOUPAKI .
+( Babalola Jean Michel Hervé ABIMBOLA N4inistre intérimaire RéKi UGOU YE Le Ministre du Travail et de la Fonction Publique, Mêmouna KO EADI AMPLIATIONS : PR 6, AN 4, CS 2, CC 2, CES 2, HAAC 2, MFE 4, MJLDH 4, AUTRES MINISTERES 24' SGG 4' IGE 3, DGBM-DCF.DGTCP.DGID-DGDDI 5, FADESP 3, UNIPAR.FDSP 2, IGE 2, JO1 3, GCOMB-DGCST-INSAE 3, BCP-CSM-IGAê 3, UAC.ENAM- Le Ministre de l'Economie et des Finances, BN- Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, Porte-Parole du Gouvernement, l eb r
