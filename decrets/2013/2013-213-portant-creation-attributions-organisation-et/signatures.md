@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, leo: mai 2013 Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, Le Premier Ministre é de la Coordination de l'Action luation des Politiques Publiques, Gouvernementale, d Eva du Programme de Dénationalisation et du Dialogue Social, Le Ministre des Finances et de I'Economie J asG Le Ministre de l'lntérieur, de la S ublique et des Cultes, Benoît Assouan Coml auE!!ÀILgl§-pR 6 AN 4 CC2 CS 2 tiAAC 2 CES 2 HCJ 2 PM/CCAGEPPPDDS 4 MISP 4 AUTRES MINISTERES 25 SGG 4 DGBM- OCF-DGTCP-DGID-DGDDI 5 BN-DAN-DLC 3 GCONB-DCCT.INSAE 3 BCP-CSM-IGAA 3 UAC-ENAM-FADESP 3 UNIPAR-FDSP 2 JO1 @ Article 6 : L'Office Central de Répression de la Cybercriminaiité collabore avec toutes les administrations publiques ou privées qui sollicitent son assistance technique ou son expertise pour se mettre à l'abri des méfaits des cybercriminels. Dr Boni YAYI 2in,,g.
+Pascal lrénée KOUPAKI J
