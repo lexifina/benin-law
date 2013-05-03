@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 03 mai Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Premier Minis Chargé de la Coordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, P,,rc,^1gr Pascal lrénée KOUPAKI Le Ministre de l'Economie et des Finances, Le Ministre de l'lndustrie, du Commerce et des Petites et Moyennes Entreprises, Akuavi Marie-Elise Christiana GBEDO nas Dr Boni YAYI <-- (,b ;
+Le Ministre des Affaires Etrangères, de I'lntégration Africaine, de la Francophonie et des Béninois de I'Extérieur, Nassirou FARI Â44!!ê!j.g!§-: PR 6, AN 4, CC 2, CS 2, l-l,AAC 2, CES 2, PM/CCAGAPPPDDS 4, MDAEP 4, MICPME 4, MEF 4, MAEIAFBE 4, AUTRE ifii§EEEE z+. sGG 4, DGB.DCF.oGTCP-DGIo.DGooI 5, DPE.DAN.DLC 3, GCON&DGCST.INSAE.IGE 4, BCP-CSM.AGAA 3. UAC.ENAM. ,ory FADESP 3. UNIPAR.FDSP-CCIB 3, dD
