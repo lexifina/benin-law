@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le zr mai 2013 Par le Président de la RéPublique' Chef de l'Etat, Chef du Gouvernement Dr Bo Le Premier Ministre Chargé de rdination de l'Action iYAYI o Gouvernementale, de l'Evaluatio es Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, 2,,^# Le Ministre de l'Economie et des Finances, Jo AN Ampli ons : PR :6-AN :4-CS DCF.DGTCP.DGID-DGDDI-05-JO-01 Le Ministre de la Décentralisation' de la Gouvernance Locale, de l'Administration et de I'Aménagement du Tenitoire' Rap aël EDOU :02-CC :02-cES :02-HMC :02-MEF :04-MDGIÂAT :o4-AUTRES MINISTRES :24-sGG :04-DGB- ur & Pascal lrénée KOUPAKI
