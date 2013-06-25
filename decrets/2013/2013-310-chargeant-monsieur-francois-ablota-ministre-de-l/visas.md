@@ -1,0 +1,5 @@
+# Visas
+
+REPUBLIQUE DU BENIN ---@--- PRESIDENCE DE LA REPUBLIQUE ---@--- DECRET N".?.Q.1 3-3.14..0U- 25..J.UrN 2013 Chargeant Monsieur François ABlOtA, Ministre de l'Enseignement Supérieur et de la Recherche Scientifique de l'intérim de Monsieur Eric Kouagou N'DA, Ministre des Enseignements Maternel et Primaire' LE PRESIDENT DE tA REPUBUqUE, CHEF DE L,ETAT, CHEF DU GOUVERNEMENT, Vu la loi N" 90-032 du 1L décembre L990, portant Constitution de la République du Bénin ;
+Vu la proclamation du 29 mars 2O\7 par la Cour Constitution ne lle des résultats définitifs de I'élection présidentielle du 13 mars 2011 ;
+Vu le décret n" 2012-069 du l-0 avril 2012, portant compositlon du Gouvernement ; DECRETE Article Lo': Pour compter du mercredi 10 au mardi 16 octobre 201-2, Monsieur François ABIOLA, Ministre de l'Enseignement Supérieur et de la Recherche Scientifique est chargé de l'intérim du Ministre des Enseignements Maternel et Primaire, Monsieur EriC KoUagOU N'DA, pendant son absence; pour raison de mission à l'extérieur du Bénin'
