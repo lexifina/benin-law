@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 25 j uin 2013 Par le Président de la République, Chef de l'Etat,Chef du Gouvernement, Le Premier Ministre Chargé de I oordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, Le Ministre de la Communication et des Technologies de I'lnformation et de la Communication, Le Ministre de l'Economie et des Finances, Max Barthélémv AHOUEKE AMPLIATIONS:PR6AN4CS2CC2CES2HAAC2HCJ2PMCCAGEPPPDDS4MCTIC4MEF4AUkeSMinistères24SGG4 DGBM.DCF.DGTCP FDSP2 JO .1 N & GIO-DGDDI 5 BN.DAN,DLC 3 GCONB.DGCST.INSAE 3 BCP.CSM.IGAA.IGE 4 UAC,ENAM-FADESP 3 UP. 10v Dr BoniYAY| îrryr- Pascal lrénée KOUPAKI
