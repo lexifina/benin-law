@@ -1,0 +1,7 @@
+# Visas
+
+ooo I.v ooo REPUBLIQUE DU BENIN oooooooooo PRESIDENCE DE LA REPUBLIQUE ooooooooooooo DECRET NO 2OI3-3I8 DU 13 JUILLET 2013 Chargeant Monsieur Pascal Irénée KOUPAKI, Premier Ministre Chargé de la Coordination de I'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social de I'intérim du Président de la République pour compter du 14 juillet 2013.
+LE PRESTDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT, Vu la loi n" 90-032 du I I décembre 1990 portant Constitution de la République du Bénin ;
+Vu la proclamation le 29 mars 2011 par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du 13 mars 2011 ;
+Vu le décretn" 2011-449 du 28 mai 20ll portant création de poste de Premier Ministre Chargé de la Coordination de l'Action Gouvemementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social ;
+Vu le décret no 2013-008 du 05 Février 2013 portant composition du Gouvernement, DECRETE Article l"' : Pendant l'absence de Monsieur le Président de la République, Chef de l'Etat, Chef du Gouvernement, Monsieur Pascal Irénée KOUPAKI, Premier Ministre Chargé de la Coordination de l'Actiong c§ Gouvernementale, de l'Evaluation des Politiques Publiques, du programme de Dénationalisation et du Dialogue social est chargé d,as=surer I'intérim dès le départ de la délégation présidentielle pour Abuja à partir du 14 juillet 2013 .
