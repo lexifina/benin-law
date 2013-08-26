@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou,le zo aour 2013 Par le Président de la RéPublique, Chef de l'Etat, Chef du Gouvernement, Le Premier Ministre Chargé de la Coordination de I'Action Gouvernementale, de l'Evaluation des Politiques Publiques' du Programme de Dénationalisation et du Dialogue Social, ory* Le Ministre de l'Economie et des Finances, onas GBIAN Le Ministre des Travaux Publics et des Transports, AMPLIATIONS: PR 6:AN 4: CC 2; HCJ 2i CS 2: HAAC 2: PI\,/CCAGEPPPDDS 4; I'TPT4; MEF4 ;AUTRES Fenes z+; lo r : scc 2;; Sp/cTD 2; 9GB-DçF-DG6P-961D-DGDDI 5; BN-DAN-DLç 3; ccoNB-DccTlNsAE 3 | BCP-CSM-r-GAA 3-UAC-ENAM-FAOESP-FASEG 4-UNIPAR-FDSP 2 LPB SA 5-JORB 1.2\ /r al§- Dr. Boni YAYI Pascal lrénée KOUPAKI Lambert KOTY
