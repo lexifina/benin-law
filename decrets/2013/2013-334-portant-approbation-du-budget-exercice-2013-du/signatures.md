@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 26 aout 201 3 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Premier Minishe, Chargé de la Coordination de I'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social' Qq* Pascal lrénée KOUPAKI Le Ministre de l'Economie et des Finances, Le Ministre de l'Environnement, de l'Habitat et de I'Urbanisme, Blaise , AHANHANZO -GLELE Ampliations PR 6, -AN 4-CS 2- CC 2'- CES 2 - HAAC 2 -HCJ 2- MEF 4 - MEHU 4 - AUTRES MINISTERE§ 24' SGG 4, ' DGAE' oocËe z - DGBM-DçF-oGTqe-DGDDI 5 - BN-oAN-oLC 3 - GcpNB- oGcST - INSAE-I6E 3 - BcP-cMS-lG4l 3 - UAc- ENAM-FAOESP 3 - UNIPAR-FDSP 02 - CENAGREF 2 - JO 1. 7 /v oh Dr Boni YAYI
