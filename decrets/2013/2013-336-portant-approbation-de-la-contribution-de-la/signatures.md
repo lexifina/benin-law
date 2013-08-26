@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 26 aout 20 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Premier Ministre, Chargé de la Coordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, "/.r- Le Mlnistre de l'Economie et des Finances, AMPLTATToNS:PR 4 -AN 4 -HCJ2-CC2- CS 2 - CES 2 - SGG 2 HAAC 2-PM2 - MEF 4 -Autres Ministères25-DGB-CF-DGTCP-DGID-DGDDI-DGE6-lGF1-BN-DAN-DLC3-GCONG-DCCT-INSAE 3- BCP.CSM.IGAA 3 - UAC.ENEAM-FADESP-FASEG 4 - UNIPAR 1 -JO 1 r' /.- v & Dr Boni YAYI Pascal lrénée KOUPAKI
