@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le oo septembre 2013 Dr Boni YAYI.- Premier Ministre Chargé de la Coo atio n de l'Action Gouvernementale, de l' luation des Politiques Publiques, du Pr amme de Dénationalisation et du Di ue Social, Le Ministre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de I'Extérieur, tÉ Pascal lrénée KOUPAKI.- Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, Porte-parole du Gouvernement, now, AMPLTATTONS: PR 6 i AN 4; CS 2; MAEIAFBE 2; MJLDH 8; Autres Ministères 24; Ambassade du sn=-inrnrre.asne 2;J9RB 1,HcJ2; DACP/MJLDH 6 ; S.G.E G coNB 2 i DCCT 2; UAC-ENA; FADESP N irou BAK RIFARI,- 3;lntéressé1;DAN5;
+Mêmouna KORA KI LEADI.- (.tliaA*e iatétinaae) 0b Par le Président de la République, Chef de l'Etat, Chef du Gouvernement,
