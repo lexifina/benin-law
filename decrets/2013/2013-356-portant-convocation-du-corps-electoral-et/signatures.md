@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 06 septembre 2013 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Ministre de I'Economie et des Finances, Le Garde des Sceaux, Ministre de la Justice de la Législation et des Droits de I'Homme, Le Ministre de la Décentralisation, de la Gouvernance Locale, de l'Administration et de l'Aménagement du Tenitoire, N on Valentin DJENONTIN-AGOSSOU Le Ministre de l'lndustrie, du Commerce des Petites et Moyennes E nses, Safiou ld FFO lsidore GNONLONFOUN Ampliations: PR 0l SGG 03 AN 01 JORB 01 CC 0l HCJ 01 CS 01 HAAC 01 CES 01 MICPME 02 AUTRES MINISTERES 25 ARCHIVES O1 ft Dr Boni YAYI
