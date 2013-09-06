@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 06 seprenbre 2013 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI.- Premier Ministre Chargé de la ordination de l'Action Gouve rne me nta le, e l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, Le Ministre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de l'Extérieur, "1C, Pascal lrénée KOUPAKI.- Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, Porte-parole du Gouvernement, ûo* Nassirou BAKO A IFARI..
+Mêmouna KORA I LEADI - ( "Uitist^e AMPLIATIONS: PR 6;AN 4;CS 2;MAEIAFBE 2; MJLDH 8;Autres Ministères 24 ; Ambassade du Bénin/Allemagne 2 ; JORB 1 ; HCJ 2 ; DACP/MJLDH 6l S.G.E.G.CONB 2; DCCT 2 i UAC-ENA; FADESP 3llntéressét;OANsyV et§
