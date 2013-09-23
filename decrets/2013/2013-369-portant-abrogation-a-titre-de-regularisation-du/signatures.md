@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le z: sep mbre ordination Politiques Publiques, de l'Action Gouvernementale, de l'Evaluati du Programme de Dénationalisation ES du Dialogue Social, 0)h Pascal l. KOUPAKI P,ow Dr Boni YAYI Le Ministre de l'Agriculture, de I'Elevage et de la Pêche, Le Ministre du Développement, de I'Analyse Economique et de la Prospective, Marcel A. de SOUZA Le Ministre de l'lndustrie, du Commerce et des Petites et Moyennes Entreprises, w.
+Katé SABAï Le Ministre de l'Economie et des Finances, onas avt Marie-El tse C. GBEDO Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de I'Homme, Porte-parole du Gouvernement, Mêmoun RA ZAK LE DI e6 \ ( M i n i st re i nté ri m a i re ) AMPLTATIONS : PR 6 ; AN 4 ; CS 2 ; CC 2 ; HAAC 2 ; HCJ 2 ; PM/CCAGEPPPDDS 4 ; MAEP 4 MDAEP 4; MEF 4; AUTRES MINISTERES 23; PREFETS 6; SGG 4; DGAE-DGCPE 2; DGB-DCF-DGTCP-DGID-DGDDI 5 ; DPE-DAN-DCL-IGE 4 ; GCONB-DCCT-INSAE 3 ; BCP-
