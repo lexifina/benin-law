@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le oa octobre 2013 Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, Le Ministre de l'Economie et des Finances, Jo GBI S Le Ministre de la Communication et des Technologies de l'lnformation et de la Communication, // AMPLIATIoNS: PR 6; AN 4: CC 2t HCJ 2; CS 2i HAAC 2; PM/CCAGEPPPODS 4; MCTIC 4; MEF4 I AUTRES MINISTERES 2a ; JO I ; SGG 2; SP/CTD 2 ; OGB-DCF-DGCP-oGID-OGDDI 5:SN-DAN-DLC 3 : GCONB-DCCT-INSAE 3 : BCP- csM-1-GAA 3-UAC-ÊNAM-FADESP-FASEG 4-UNTPAR-FDSP 2 LPB SA 5-JO 1.ôz t Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr. BoniYAY| Pascal lrénée KOUPAKI ..--i Max Barthélémy AHOUEKE
