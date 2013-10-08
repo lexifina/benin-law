@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le o8 octobre 2013 Dr. Boni YAYI (F Le Premier Ministre Chargé de la Coordination de l'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, fr,0 Ji, .L Le Ministre de la Communication et des Technologies de l'lnformation et de la Communication, Le Ministre de l'Economie et des Finances, Mox Borthélém Y AHOUEKE N AMPLIATIONS: PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 HCJ 2 PMCCAGEPPPDDS 4 MCTIC 4 AUTTES ministères 25 SGG 4 DGBM-DCF-DGTCP-DGID-DGDDI 5 BN-DAN-DLC 3 GCONB-DGCST-INSAE 3 BCP.CSM-IGAA.IGE 4 UAC-ENAM-FADESP 3 UP-FDSP2 JO J eft Poscol lrénée KOUPAKI
