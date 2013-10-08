@@ -1,0 +1,3 @@
+# Visas
+
+REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE DECRETNo zot3-aot DU 08 ocroBRE 2013 Chargeanl Monsieur Raphaël EDOA, Minislre de l'Ënvironnement Chargé de la Gestion des Changements Climdiques, du Reboisemenl et de la Proleclion des Ressources Nalurclles el Foreslières, de l'intérim de Madame Naomie AZARIA HOANHOUI, Ministe de I'Indust e du Conmerce, des Petiles et Moyenrres Enlrep ses Pour compter du Mercredi 06 novembre au Vendredi 08 novembre 2013 LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT Vu la Loi N'90-032 du I 1 décembre 1990, portant Constitution de la République du Bénin ; Vu le décret 2013-457 du 08 octobre 2013 portant composition du Gouvemement. DECRETE
