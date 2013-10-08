@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le o8 octob Par le Président de la RéPublique, Chef de I'Etat, Chef du Gouvernement, Dr BoniYAYI.- Le Premier Ministre Charg a de I'Action Gouvernementale, de l'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, 2,"*" Le Ministre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de l'Extérieur, irou BA RIFARI.- Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de I'Homme, Porte-parole du Gouvernement, Mêmouna KORA ZAKI LEADI..
+("L,Laa*æ ittt&irnoaw) auEt!Àugl§ : pR 6 AN 4 CC 2 CS 2 HAAC 2 CES 2 HAC 2 HCJ 2 PMCCAGEPPPPDDS 4 GS/MJLDH 4 IVIAEIAFBE 4 eurne-§llfrGrenes 24 2 DGBM-DoF- DGTCp- DGrD- DGDDr 5 BN-DAN-DLC 3 GcoNB-DGcsr-INSAE-lGE 4 BcP-csN -IGAA 3 UAC.ENAM-FADESP 3 UNIPAR.FDSP 02 INTERRESE ' 'O ' , NU t (/b Coord ination Pascal lrénée KOUPAKI.-
