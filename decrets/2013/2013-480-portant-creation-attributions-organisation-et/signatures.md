@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 07 novenbre 2013 Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, Le Ministre du Développement, de l'Analyse Economique et de la Prospective, Marcel de SO Le Ministre de l'Economie et des Finances, Le Ministre de l'Urbanisme, de I'Habitat et de l'Assainissement, Le Ministre de l'Environnement, Chargé de la Gestion des Changements Climatiques, du Reboisement et de la Protection des Ressources Naturelles et Forestières.
+Raphaël EDOU Le Ministre des Transports et des Travaux Publics, S 2 HAAC 2 HO 2 MDAEP 4 MEF 4 MECGCCRPRNF 4 MTPT4 Autres Ministères AMPLIATIONS : PR 6 AN 4 CS 2 CC 2 22 SGG 4 DGBM-DCF-DGTCP-DGIO-D FADESP 3 UP-FDSP2 JO I / -.' \t/ *- DI 5 BN-DAN-DLC 3 GCONB-DGCST-INSAE 3 BCP.CSM.IGAA.IGE 4 UAC.ENAM- 9v Dr Boni YAYI Natôndé AKE

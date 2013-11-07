@@ -1,0 +1,9 @@
+# Visas
+
+REPUBLIOUE DU BENIN ,1tutûita-1uti..!Û@il Vu Vu PRESIDENCE DE LA REPUBLIQUE DECRET N' 2013.480 DU 07 NOVEMBRE 2013 portant création, attributions, organisation et fonctionnement de ['Agence Béninoise des Grands Travaux (ABGT).
+LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT, la loi n' 90-32 du I I décembre 1990 portant Constitution de la République du Bénin ; la proclamation le 29 mars 201 I par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du 13 mars 201 I ;
+le décret n"2013-457 du 08 octobre 2013 portant composition du gouvernement; le décret no2012-191 du 03 juillet 2013 fixant la structure type des ministères ; le décret n"2012-544 du 17 décembre 2012 portanl attributions, organisation et fonctionnement du Ministère du Développement, de I'Analyse Economique et de la Prospective ; le décret n 2012-428 du 06 novembre 2012 portant attributions, organisation et fonctionnement du Ministère de l'Economie et des Finances ;
+le décret N"2012-376 du 06 novembre 2012 portant attributions, organisation et fonctionnement du Ministère des Travaux Publics et des Transports ;
+le décret no2007 -447 drt 02 octobre 2007 portant attributions, organisation et fonctionnement du Ministère de l'urbanisme, de l'Habitat, de la Reforme Foncière et de la Lutte contre l'Erosion Côtière ;
+le décret n" 2007 -493 du 02 novembre 2007 portant attributions, organisation et fonctionnement du Ministère de l'Environnement et de la Prolection de la Nature ; le rapport du Comité chargé des travaux de relecture du projet de décret portant création, attributions, organisation et fonctionnement de I'Agence Béninoise des Grands Travaux (ABGT);
+proposition du Président de la République, Chefde I'Etat, Chefdu Gouvernement ; Le Conseil des Ministres entendu en sa séance du 29 octobre 2013, Vu Vu Vu Vu Vu Vu Vu Vu Sur Le DEGRETE Chapitre I : DE LA CREATION, DE LA DENOMINATION, DE L'OBJET' DU SIEGE ET DE LA DUREE.
