@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à COtonou, le 26 novembre 2013 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Ministre de I'Energie, des Recherches Le Ministre de l'Economie et des Finances, Pétrolières et Minières, de et du Développement nergres Renouvel ES, C Barth Ivlinistre du Développement, Economique et de la P pective, S GBIAN e l'Analyse Garde es Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, \ Marcel Alain de SOUZA Valentin DJENONTIN-AGOSSOU AMPLIATIONS : PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 HCJ 2 MDAEP 4 MEF 4 MERPMEDER 4 MJLDH 4 AUtTCS MiNiStèrCS 22 SGG 4 DGBM.DCF-DGTCP.DGID'DGDDI 5 BN-DAN'DLC 3 GCONB-DGCST'INSAE 3 BCP-CSM.IGAA-IGE 4 UAC.ENAM-FADESP 3 UP-FDSP2 JO ffi Dr BoniYAY|
