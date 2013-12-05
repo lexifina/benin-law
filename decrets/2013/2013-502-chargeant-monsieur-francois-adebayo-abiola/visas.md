@@ -1,0 +1,4 @@
+# Visas
+
+ooo lv. ooo REPUBLIQUE DU BENIN oooooDoooo PRESIDENCE DE LA REPUBLIQUE ooooooooooooo DECRET No 2013-soz DU 0s DECEMBRE 2013 Chargeant Monsieur François Adebayo ABIOLA' Miniitre d'Etat Chargé de l'Enseignement Supérieur et de la Recherche Scientifique, de f intérim du Président de la République pour la Turquie à Paftir du Dimanche 08 décembre 2013' LE PRESTDENT DE LA REPUBLIQUE' CHEF DE L'ETAT, CHEF DU GOUVERNEMENT, Gouvernement;
+DEC RETE Article l.' : Pendant l'absence de Monsieur le Président de la République, ôEffà.-t'ptat, Chef du Gouvernement, Monsieur François Adebayo Àgiol,,a,, Ministre d,Etat chargé de l,Enseignement Supérieur et de la Recherche scientifique, est chargé d'assurer l'intérim dès le départ de la àlleÀution présidentielle pour lalurquie à partir du 08 décembre 2013'
