@@ -1,0 +1,6 @@
+# Décret n° 2013-545 du 24 décembre 2013 Chargeant Monsieur Christian SOSSOUHOUNTO, Ministre de l'Urbanisme, de l'Habitat et de l'Assainissement de l'intérim de Monsieur Fulbert AMOUSSOUGA GERO, Ministre à la Présidence de la République chargé de la Coordination des Politiques de mise en œuvre des Objectifs du Millénaire pour le Développement et des Objectifs de Développement Durable pour compter du 05 au 12 décembre 2013
+
+- Source : Secrétariat général du Gouvernement du Bénin (sgg.gouv.bj), documenthèque, <https://sgg.gouv.bj/doc/decret-2013-545/download>
+- Date : 2013-12-24 (date du texte dans son intitulé (promulgation/signature) ; la date de publication au Journal officiel n’est pas donnée par la source)
+- Couche texte : fournie par l’éditeur sur un document numérisé (non relue)
+- Unités : 2 articles
