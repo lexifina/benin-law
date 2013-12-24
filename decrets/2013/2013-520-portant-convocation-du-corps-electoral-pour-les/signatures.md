@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou le 24 ece Par le Président de la République Chef de l'Etat, Chef du Gouvernement, Le Ministre de I'Economie et des Finances, Le Ministre de l'Industrie, du Commerce, des Petites et Moyennes Entreprises, Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de I'Homme, entin DJENON -A SSOU I Le Ministre de la Décentralisation, de la Gouvemance Locale, de I'Administration et de l'Aménagement du Tenitoire, Nao AZAR NHOUI Isidore GNON NFO N Ampliations : PR : 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 HCJ 2 MICPME 2 GSMJLDH 2 MDGLAAT 2 l\,lEF 2AUTRES MINISTERES 22 SGG 4 DGBM.DCF-DGTCP.DGID-DGDDI 5 BN-DAN-DLC- 3 GCONB. DGCST-INSAE 3 BCP-CSM.IGAA-IGE 4 -UAC-ENAM-FADESP- 3 UP-FDSP 2 JO 1 Dr Boni YAYI l 0h
