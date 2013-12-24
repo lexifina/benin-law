@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 2 dec re 2013 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Premier Ministre Chargé de la Coo ination de l'Action Gouvernementale, de I'Evaluation des Politiques Publiques, du Programme de Dénationalisation et du Dialogue Social, û,«- Pascal lrénée KOUPAKI.- Le Ministres de I'Economie et des Finances, Le Garde des Sceaux, Ministre de la Justice, de la Législation Droits de l'Homme, Porte-parole du Gouvernement, Mêmouna KORA KILEADI- Ministre intéri a ire AMPLIATIONS:PR 6AN 4 CS 2 CC 2 CES 2 HAAC 2 MJLDH 4I/lÊF4AUTRES MINISTÉRES 28 SGG4 DGBII-DCF. Fcrcpocoocoot 5 BN-DAN-DLC 3 ccoNB-DGcsr-tNSAE 3 BCp-csM-tGAA 3 UAC-ENAM-FADESP3 UNIPAR-FDSP 2 INTERESSE 01 JO 1, asG eh Boni YAYI.-
