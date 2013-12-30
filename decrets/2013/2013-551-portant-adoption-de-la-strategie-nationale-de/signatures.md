@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 30 de..rbre 2013 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI Le Ministre de la Défense Nationale, Le Ministre de l'Economie et des Finances, Denis ALI YEEIMA o AS ,// Le Ministre de l'Economie Maritime et des I nfrastructures Portuaires, Le Ministre de I'lntérieur, de la Sécurité Publique et des Cultes, Martine Françoise A. DOSSA Francois HOUESSOU AMPLIATIONS : PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 HCJ 2 MDN 2 MEF 2 MEMIP 2 MISPC 2 AUTRES MINISTERES 22 SGG 4 DGBM-DCF-DGTCP-DGID-DGDDI 5 BN.DAN.DLC3 INSAE-IGE 4 BCP-CSM-IGAA 3 UAC-ENAM-FADESP 3 UNIPAR- FDSP 02 JO r.- Q-v.- , CJb @
