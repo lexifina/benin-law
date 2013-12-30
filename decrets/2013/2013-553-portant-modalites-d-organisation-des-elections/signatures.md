@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 36 decembre 2013 Par le Président de la RéPublique, Chef de I'Etat, Chef du Gouvernement, ôlr- V\ %- Dr Boni YAYI Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, Le Ministre du Travail, de la Fonction Publique, de la Réforme Administrative et lnstitutionnelle, chargé du Dialogue Social, artial SOUNTON Le Ministre de l'Economie et des Finances, IAN AMDI|At|ONS: PR 6 -AN 4 - CC2. HAAC 2 - CES 2- MTFPRAI.DS 4 - MJLDH 4 - AUTRES MINISTERES I+-soc4-DGBM-DCF-DGTCp-DGID-DGDDI 5-BN-DAN-DLo3-GcoNB-DCcr-lNSAE3-BCP-csM- IGAA 3 - UAC-ENAM-FADESP 3 - UNIPAR-FDSP z - JO 1. bek Valentin DJENONTIN-AGOSSSOU
