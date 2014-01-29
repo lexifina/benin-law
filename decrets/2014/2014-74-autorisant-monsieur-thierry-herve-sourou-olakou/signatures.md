@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 29 janvier 2014 Par le Président de la RéPublique, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI.- Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, I Nassirou BAKO RI ARI.- AMPLIATIONS: PR6AN 4 CC 2 CS 2 HAAC 2 CES 2 HAC2 HCJ 2 GS/MJLDH 2 i'AEIAFBE 2 AUTRÉS MINISTERES 24 AMBASsADE BENTN/ALLEMAcNE z oèeM-oôr- DGTCP- oGlD- DGDDI 5 BN-DAN-DLc 3 GCONB-DGcST-INSAE{GE 4 BcP- CSN -IGAA 3 UAC-ENAI\'.FADESP 3 UNIPAR.FDSP 02 INTERRESE 1 JO 1' Le Ministre des Affaires Etrangères, de I'lntégration Africaine, de la FrancoPhonie et des Béninois de l'Extérieur, Valentin DJENONTIN-AGOSSOU.- dù
