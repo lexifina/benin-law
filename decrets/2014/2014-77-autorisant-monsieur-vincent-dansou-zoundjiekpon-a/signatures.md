@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 29 j anv ier 2ot4 Par le Président de la RéPublique' Chef de l'Etat, Chef du Gouvernement, Dr BoniYAY|.- N irou BA IFARI Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, Valentin DJENO NTIN.AGOSSOU.- AMPLIATIoNS:PR6AN4cc2cs2HAAC2cES2HAc2HCJ2GS/MJLDH2MAEIAFBE2AUTRESMINISTERES24 îïTÉffiîroe se'nj,irinliLüÀcr.rË ; -Dèôü-ôéi ôércp- ocro- DGDDr 5 BN-DAN-DLo 3 GcoNB-DGcsr-TNSAE-|GE 4 BcP- ô§H'-lèm iunt-eruAM-FADESP 3 UNIPAR-FDSP 02 INTERRESE 1 Jo 1' Le Ministre des Affaires Etrangères, de I'l ntégration Africaine, de la FrancoPhonie et des Béninois de l'Extérieur, eÀ
