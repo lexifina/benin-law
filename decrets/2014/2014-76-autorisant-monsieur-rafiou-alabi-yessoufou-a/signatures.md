@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 29 janvier 2ot4 Par le Président de la RéPublique, Chef de I'Etat, Chef du Gouvernement, Dr oni YAYl.- Le Ministre des Affaires Etrangères, de l'lntégration Africaine, de la FrancoPhonie et des Béninois de l'Extérieur, Nassiro u BAKO ARiF Rl.- Valentin DJENONTIN-AGOSSOU.- AMPLIATIoNS:PR6AN4Cc2cs2HAAC2cES2HAc2HcJ2GS/MJLDH2MAEIAFBE2AUTRESMINISTERES24 îiifiËooe'*ooe eenjriveliÈür-cNe ,;6i[i:ôéi- ôêrcp- ooto- DGD-D| 5 BN-DAN-DLC 3 GcoNB-DGcsr-INSAE-rGE 4 BcP- ôêr.r -ièe,q iunc-EHAM-FADESP 3 UNIPAR-FDsP 02 INTERRESE 1 Jo 1' ofr- Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme'
