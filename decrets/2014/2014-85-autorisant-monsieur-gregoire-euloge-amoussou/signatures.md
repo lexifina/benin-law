@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le zg j anvier 2ot4 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr BoniYAY|.- Le Ministre des Affaires Etrangères, de I'lntégration Africaine, de la Francophonie et des Béninois de l'Extérieur, Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, Nassirou B K AR ARI.- AUEIIÀIIQI§: PRoAN 4 cc 2 cS2 HAAC 2 CES 2 HAc 2 HCJ 2 GS/MJLDH 2 MAEIAFBE 2 AUTRES MINISTERES 24 Ai,BASSADE BENIN/ALLEMAGNE 2 DGBM-DCF. DGTCP. DGID. DGODI 5 BN-DAN-DLC 3 GCONB-DGCST.INSAE-IGE 4 BCP- CSN .IGAA 3 UAC-ENAM.FADESP 3 UNIPAR-FOSP 02 INTERRESE 1 JO 1, Valentin DJENONTI N-AGOSSOU.-
