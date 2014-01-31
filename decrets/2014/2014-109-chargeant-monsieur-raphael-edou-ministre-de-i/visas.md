@@ -1,0 +1,4 @@
+# Visas
+
+REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE DECRET N" 2014-109 DU 31 JANVTER 2014 LE PRESIDENT DE LA REPUBLIQUE CHEF DE L'ETAT CHEF DU GOUVERNEMENT, \/IJ la Loi 90-032 du l1 décembre 1990 portant Constitutron de la Répubüque du Bénin ; \TLI la Proclamation le 29 mars 2011 parlz Cour Constitutionnelle des résultats défirunfs de I'élecuon présidentielle du 13 mars 201 1 ;
+VU le décret n'2013-457 du 08 Octobre 2013 poftant composition du Gouvetnement I DECRETE Anicle 1"' : Pour compter du Dimanche 26 Janvier 2014, Monsieur Raphaël EDOU, Ministre de I'Enüronnement Chargé de la Gestion des Changements Climatiques, du Reboisement et de la Ptotection des Ressources Naturelles et Forestiètes, est chargé dc I'intérim de Monsieur Christian E. G. SOSSOUHOUNTO, Ministre de I'Urbanisme, de I'Habitat et de l'Âssainissement pendant son absencc.
