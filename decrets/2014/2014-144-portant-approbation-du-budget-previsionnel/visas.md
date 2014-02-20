@@ -1,0 +1,11 @@
+# Visas
+
+Vu Vu Vu Vu Vu Vu Vu Vu Vu Vu Vu APJB/C IrI 04/01/1 4 REPUBLIQUE DU BENIN Jr at e r nit é -J u s tic e -fraÿ a i ( PRESIDENCE DE LA REPUBLIQUÊ LE PRESIDENT DE LA REPUBLIQUE, GHEF DE L'ETAT, GHEF DU GOUVERNEMENT, la loi n' 90-32 du 1'1 décembre 1990 portant Constitution de la République du Bénin ; la loi n' 88-005 du 26 avril 1988 portant création, organisation et fonctionnement des entreprises publiques et semi-publiques ;
+la loi n" 93-009 du 02 juillet 1993 portant régime des forêts en République du Bénin ; la proclamation le 29 mars 2011 par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du 1 3 mars 201 1 ;
+le décret n" 2013457 du 08 octobre 2013 portant composition du Gouvernement ; le décret n"2012-191 du 03 juillet 2012 fixant la structure-type des Ministères ; le décret n" 2007-447 du 02 octobre 2007 portant attributions, organisation et fonctionnement du Ministère de l'Urbanisme, de l'Habitat, de la Réforme Foncière et de la Lutte Contre l'Erosion Côtière MUHRFLEC ;
+le décret n" 2012-428 du 06 novembre 2012 portant attributions, organisation et fonctionnement du Ministère de l'Economie et des Finances ;
+le décret n" 96-271 du 02 juillet 1996 portant modalités d'application de la loi 93-009 du 02 juillet 1993 portant régime des forêts en République du Bénin , le décret n'89-398 du 07 novembre 1989 portant approbation des statuts de l'Office National du Bois ;
+le décret n" 2000-488 du 09 octobre 2000 portant modification des statuts de l'Office National du Bois et autorisation de la filiation de sa branche industrielle ; Vu le relevé des résolutions et recommandations de la session ordinaire du Conseil _k rqfu d'Administration de l'Office National du Bois du 15 novembre 2013 ; [y DECRET N" 2014-144 DU 20 FEVRIER 2014 portant approbation du budget prévisionnel, exercice 2014, de l'Office National du Bois (oNAB).
+Vu le procès verbal de la session du Conseil d'Administration de l'Office National du Bois du 15 novembre 2013 ;
+Sur rapport du Ministre de l'Environnement Chargé de la Gestion des Changements Climatiques, du Reboisement et de la Protection des Ressources Naturelles et Forestières;
+Le Conseil des Ministres entendu en sa séance extraordinaire du 03 janvier 2014, DEGRETE:
