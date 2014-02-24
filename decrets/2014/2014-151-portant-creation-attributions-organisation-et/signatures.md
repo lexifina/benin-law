@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 24 f evrler 2014 Par le Président de la République, Chef de I'Etat, Chef du Gouvernement Le Ministre d'Etat chargé de l'Enseignement Supérieur et de la Recherche Scientifique, Le Ministre de I'Economie et des Finances, Le Ministre du Travail, de la Fonction Publique et de la Réforme Administrative et lnstitution nelle, Chargé du Dialogue Social, a SO T AMPLIATIONS : PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 HCJ 2 MECESRS 2 MTFPRAICDS 2 MEF 2 Autres Ministères 23 SGG 4 DGBM-DCF-DGTCP-DGID-DGDDI 5 BN-DAN-DLC 3 GCONB-DGCST-INSAE 3 BCP-CSM.IGAA-IGE 4 UAC-ENAM-FADESP 3 UP-TDSP2 JORB 1 c+ q Dr Boni YAYI t* Francois Adebavo ABIOLA ,49Ias-GBIAN
