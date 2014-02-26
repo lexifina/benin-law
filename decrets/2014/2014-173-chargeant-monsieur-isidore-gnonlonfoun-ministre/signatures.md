@@ -1,0 +1,5 @@
+# Signatures
+
+Fait à Cotonou, le 26 fevrier 2014 Par Le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI.- AMPLIATIONS :PR 6; AN 4; CS02; CC 02;CES 02; HAAC 02;}{CJ02;
+AUTRES MINISTERES 29 ;SGG 04; DCIMIL 02; DEPARTEMENTS 06; IO 01 ; ARCHIVES 01. ù- LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT.
+DECRETE
