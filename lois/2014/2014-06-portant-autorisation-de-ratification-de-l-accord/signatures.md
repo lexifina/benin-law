@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, [e os de l'accord de prêt d'un montant de vingt cinq de francs CFA environ, signé à Cotonou, [e 2 Le Président de ta Répubtique, Chef de l'Etat, Chef du Gouvernement, milliards (25 000 000 000) 3 décembre 2013, entre [a mars 2014 db r Boni YAYI Le Ministre de ['Economie et des Finances, BIAN Le Ministre des Travaux Pubtics et des Transports, Natondé KE AMPTIAIIONS: PR 6- AN 4-CC2- CS2_HAAC2.CES2- HCJ2MÉT2 MTPT 2. AUTRES MINISTERES 24- SGG 4 - DGBM.DCT.DGTCP.DGID.DGDDI 5- BN-DAN.DLC- 3 - GCONB-DCCTINSAE 3. BCP-CSN]GAA 3- uAC-ENAM-FASJEp 3- uNIPAR-FDSP z- tona r.- fr1 - / 0lô-
