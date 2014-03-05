@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, [e os mars 2o74 Le Président de [a République, Chef de t'Etat, Chef du Gouvernement, Le Ministre du Dévetoppement, de ['Anatyse Economique et de [a Prospective, istre de I'Economie et des Finances, ûh Marcel A. de SOUZA Jonas GBIAN L'Assembtée Nationate a détibéré et adopté en sa séance du25 févrter 2014 ; Le Président de ta Répubtique promulgue [a loi dont ta teneur suit :
+Dr Boni YAYI Le Ministre de ['Agricutture, de ['Elevage et de [a Pêche Le Ministre Chargé de [a Microfinance, De t'Emptoi des Jeunes et des Femmes il Francoise Abraoua ASSOGBA AMPTIATIONS: PR 6- AN 4- CC 2-CS 2- HAAC 2- CES 2. HCJ 2MDAEP 2MEF 2 MAEP 2 MCMEJF 2- AUTRES MINISTERES 22. SçG 4 - DGBM.DCF-DGTCP.DGID.DGDDI 5. BN-DAN-DLC- 3 . GCONB.DCCT-INSAE 3- BCP-CSN- rGAA 3- uAc-ENAM-FAsJEp 3- uNlpAR-FDSp z- rcae t.-f{ ) eft Fatoumata AIyIADOU DJIBRIL
