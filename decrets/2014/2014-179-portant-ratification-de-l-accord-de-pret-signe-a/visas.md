@@ -1,0 +1,7 @@
+# Visas
+
+REPUBLIQUE DU BENIN Fràterôité-Justlcê-Tr.vàil PRESIDENCE DE LA REPUBLIQUE DECRET 2014- 17e DU 06 MARS 2014 portant ratification de l'accord de prêt signé à Cotonou, [e 23 décembre 2013, entre ta Répubtique du Bénin et ta Banque ouest Africaine de Dévetoppement (BOAD), dans te cadre du financement partiel du projet de réhabititation et de renforcement de ta route Parakou-Djougou.
+LE PRESIDENT DE LA REPUBLIQUE, GHEF DE L'ETAT, GHEF DU GOUVERNEMENT, VU ta toi n" 90-32 du 11 décembre 1990 portant Constitution de ta Répubtique du Bénin ; VU [a [oi n' 2014- 06 du 05 mars 2014 portant autorisation de ratification de t'accord de prêt signé à Cotonou, te 23 décembre 2013, entre [a Répubtique du Bénin et [a Banque Ouest Africaine de Dévetoppement (BOAD), dans [e cadre du financement partiel du projet de réhabititation et de renforcement de [a route Parakou-Djougou.
+VU [a proctamation, [e 29 mars 2011 par la Cour Constitutionnelle, des résultats définitifs des élections présidentiet(es du 13 mars 201 1 ;
+VU [e décret n"2013-457 du 08 octobre 2013 portant composition du Gouvernement ; DECRETE:
+Articte 1"':Est ratifié l'accord de prêt d'un montant de vingt cinq milliards (25 000 000 000) de francs CFA environ, signé à Cotonou [e 23 décembre 2013, entre [a Répubtique du Bén'in et [a Eanque Ouest Africaine de Dévetoppement (BOAD), dans [e cadre du financement partiel du projet de réhabititation et de renforcement de [a route Parakou- Djougou et dont [e texte se trouve ci-joint.
