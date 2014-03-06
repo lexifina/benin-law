@@ -1,0 +1,6 @@
+# Visas
+
+REPUBLIQUE DU BENIN Frâtêrnrtè Jurilce.Travàil PRESIDENCE DE LA REPUBLIQUE DECRET N' 2014-182 DU 06 MARS 2014 portant ratification de l'accord de prêt signé à Cotonou [e 23 décembre 2013 entre ta Répubtique du Bénin et [a Banque Ouest Africaine de Dévetoppement (BOAD) dans le cadre du financement partiel du projet de renforcement des systèmes d'atimentation en eau potabte du centre secondaire de Djougou et des locatités de Savè, Tchaourou et Tanguiéta.
+LE PRESIDENT DE LA REPUBLIQUE, GHEF DE L'ETAT, GHEF DU GOUVERNEMENT, VU [a loi n' 90-32 du 11 Bénin ;
+décembre 1990 portant Constitution de ta Répubtique du VU [a loi n" 2014- 07 du 06 mars 2014 portant autorisation de ratification de l'accord de prêt signé à Cotonou [e 23 décembre 2013 entre ta Répubtique du Bénin et [a Banque Ouest Africaine de Dévetoppement (BOAD) dans [e cadre du financement partiel du projet de renforcement des systèmes d'atimentation en eau potable du centre secondaire de Djougou et des locatités de Savè, Tchaourou et Tanguiéta. VU [a proc[amation, [e 29 mars 2011 par Ia Cour Constitutionnetle, des résuttats définitifs de ['élection présidentielte du 13 mars 201 1 ;
+VU [e décret n'2013-457 du 08 octobre 2013 portant composition du Gouvernement ; DEGRETE:
