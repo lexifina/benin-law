@@ -1,0 +1,10 @@
+# Visas
+
+APJB/CM 03-01-14 REPUBLIQUE DU BENIN 'F r a t e rn i t é-Ju s t ic e -fr aÿ ai[ PRESIDENCE DE LA REPUBLIQUE DECRET N" 2014.201 DU I3 MARS 2014 portant approbation du budget prévisionnel, exercice 2014, du Centre Agricole Régional pour le Développement Rural du Mono et du Couffo (CARDER-MONO/COU FFO).
+LE PRESIDENT DE LA REPUBLIQUE, GHEF DE L'ETAT, GHEF DU GOUVERNEMENT, Vu la loi n" 90-32 du 11 décembre 1990 portant Constitution de la République du Bénin ;
+Vu la loi n' 94-009 du 28 juillet 1994 portant création, organisation et fonctionnement des Offices à caractères social, culturel et scientifique ; Vu la proclamation le 29 mars 201'l par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du 13 mars 2011 ;
+Vu le décret n'2013-457 du 08 octobre 2013 portant composition du Gouvernement ;
+Vu le décret n"2012-191 du Ministères , 03 juillet 2012 fixant la structure-type des Vu le décret n' 2012-541 du 17 décembre 2012 portant attributions, organisation et fonctionnement du Ministère de I'Agriculture, de I'Elevage et de la Pêche;
+Vu le décret n" 2012-428 du 06 novembre 2012 portant attributions, organisation et fonctionnement du Ministère de I'Economie et des Finances ; Vu le décret n'2013-137 du 20 mars 2013 portant transformation des Centres Régionaux pour la Promotion Agricole (CeRPA) en Centres Agricoles Régionaux pour le Développement Rural (CARDER) ;
+Vu le procès verbal de la session du Conseil d'Administration du Centre Agricole Régional pour le Développement Rural du Mono et du Couffo du 27 septembre 2013;
+Sur rapport du Ministre de I'Agriculture, de l'Elevage et de la pêche ; K ,,1 M Fait à Cotonou, te 13 ma S 20t4 Par le Président de la RéPublique, Chef de l'Etat, Chef du Gouvernement, Le Ministre de I'Agriculture, de l'Elevage et de la Pêche, é.- Jonas GBIAN AMPLIATIONs:PR6AN4cs2cc2cEs2HAAC2HcJ2MEF2MAEP2AUTRESMIN|STERES24sGG4 DGBM-DCF.DGTCP-DGID.DGDDI 5 BN.OAN-DLC3 INSAE-IGE 4 BCP-CSM]GAA 3 UAC'ENAM-FADESP 3 UNIPAR- FDsp 2 cARDER MoNo/couFFo 2 n^a r.- l$ Le Conseil des Ministres entendu en sa séance extraordinaire du 03 janvier 2014, DECRETE:
