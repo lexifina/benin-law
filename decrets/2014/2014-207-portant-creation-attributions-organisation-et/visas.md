@@ -1,0 +1,14 @@
+# Visas
+
+APJB/ REPUBLIQUE DU BENIN T dt emi t i J t ÿ t. c -'Ir d\' 4i[ [A SUB§TITUER A L,ANCIENNE COPIE] PRESIDENCE DE LA REPUBLIQUE DECRET N" 2014.207 DU 14 MARS 2014 portant création, attributions, organisation et fonctionnement de la Commission Nationale Permanente de Concertation et de Négociations collectives GouvernemenUCentrales et Confédérations Syndicales.
+LE PRESIDENT DE LA REPUBLIQUE, GHEF DE L'ETAT, GHEF DU GOUVERNEMENT, Vu la loi n'90-32 du 11 décembre 1990 portant Constitution de la République du Bénin ;
+la loi n'86-013 du 26 février 1986 portant Statut Général des Agents Permanents de l'Etat et les lois qui l'ont modifiée et complétée ;
+la loi n'98-004 du 27 janvier 1998 portant Code du Travail en République du Bénin ;
+la proclamation le 29 mars 2011 par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du 13 mars 2011 ;
+le décret n'2013-457 du 08 octobre 2013 portant composition du Gouvernement ; te décret n' 2012-191 du 03 juillet 2012 fixanl la structure-type des Ministères ; le décret n" 163-PR/MFPTT du 26 mai 1967 portant délégation de certains pouvoirs du Président de la République au Ministre chargé de la Fonction Publique en matière d'administration des personnels de l'Etat;
+le décret n" 2014-037 du 29 janvier 2014 portant attributions, organisation et fonctionnement du Ministère du Travail, de la Fonction Publique, de la Réforme Administrative et lnstitution nelle Chargé du Dialogue Social ;
+le décret n" 2012-540 du 17 décembre 2012 portant attributions, organisation et fonctionnement du Ministère de l'Enseignement Supérieur et de la Recherche Scientifique;
+le décret n"2012-428 du 06 novembre 2012 portant attributions, organisation et fonctionnement du Ministère de l'Economie et des Finances ;
+le décret n' 2009-51 9 du 16 octobre 2009 portant création, attributions, organisation et fonctionnement de la Commission Nationale Permanente de Concertation et de Négociations Collectives GouvernemenUCentrales et Confédérations Syndicales ;
+le décret n'2013-552 du 30 décembre 2013 portant différentes formes d'organisations syndicales des travailleurs et critères de leur représentativité ; proposition conjointe du Ministre d'Etat Chargé I'Enseignement Supérieur et de la Recherche Scientifique et du Ministre du Travail, de la Fonction Publique, de la Vu Vu Vu Vu Vu Vu Vu Vu Vu Vu Vu Sur dh Réforme Administrative et lnstitutionnelle, chargé du Dialogue Social ; Le conseil des Ministres entendu en sa séance extraordinaire des 14 et 1s février 2014, DEGRETE:
+@rER:DELAcREATloNETDEL,oBJETDELAcoMMlSSloN NATIONNALE PERMANENTE DE CONCER}ATION ET DE NEGOCIATIONS COLLECTIVES GOUVERNEMENT / CENTRALES ET CONFEDERATIONS SYNDICALES 4!tie!e 1"': ll est créé une commission Nationale permanente de concertation et de Négociations collectives (CNPCN) Gouvernement iCentrales et Confédérations Syndicales.

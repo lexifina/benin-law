@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 14 mars 2or4 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, tu Dr Boni YAYI.- ,7 Francois Adebavo ABIOLA Le Minlstre du Travail, de la Fonction Publique, de la Réforme Administrative et lnstitutionnelle Chargé du Dialogue Social, Le Ministre de l'Economie et des Finances, o GBIAN AMPLIATIONS : PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 HCJ 2 MECESRS 2 MTFPRAIDS 2 MDAEP 2MEF 2 AUTRES MINISTERES 22 SGG 4 DGBM-DCF-DGTCP.DGID.DGDDI 5 BN.DAN.DLC 3 GCONB-DGCST- rNSAE 3 Bcp-csM-rGAA-rGE 4 uAc-ENAM-FADEse 3 up-FDSpz rcae t l( Cb Le Ministre d'Etat Chargé de I'Enseignement Supérieur et de la Recherche Scientifique, w /zt=-= (
