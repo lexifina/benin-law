@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 13 mars 2074 ÿ Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Ministre d'Etat, Chargé de l'Enseignement Supérieur et de la Recherche Scientifique, François Adebayo ABIOLA Le Ministre de l'Economie et des Finances, Le Ministre de l'lndustrie, du Commerce, des Petites et Moyennes Entreprises, a,b- J as GBIAN Nao HOU Dr Boni YAYI I Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, Va Ientin ENONTIN-AGOSSOU AMPLIATIONS : PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 HCJ 2 MECESRS 3 MEF2 MGLDH 2 MICPME 2 Autres Ministères 22- SGG 4 DGBM-DCF-DGTCP-DGID-DGDDI 5 BN-DAN-DLC 3 GCONB-DGCST- INSAE 3 BCP-CSM-IGAA-IGE 4 UAC-ENAM-FADESP 3 UP-FDSPz JORB 1 ry 0ô- .ar"
