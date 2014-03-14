@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 14 mars 2ol Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, Dr Boni YAYI.- Le Ministre d'Etat Chargé de I nseignement Supérieur et de la Recherche Scientifique, Francois Adebavo ABIOLA Le Ministre du Développement, de l'Analyse Economique et de la Prospective, Le Ministre du Travail, de la Fonction Publique, de Ia Réforme Administrative et lnstitutionnelle chargé du Dialogue Social, gh Marcel Alain de SOUZA A \^-a== Martial SOUNTON Le Ministre de l'Economie et des Finances, AMPLIATIONS : PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 HCJ 2 MECESRS 2 MTFPRAIDS 2 MDAEP zMEF 2 AUTRES MINISTERES 22 SGG 4 DGBM.DCF-DGTCP.DGID.DGDDI 5 BN-PAN-DLC 3 GCONB.DGCST. TNSAE 3 BCP-CSM-|GAA-IGE 4 UAC-ENAM-FADESP 3 UP-FDSP2 )OR} L lL )
