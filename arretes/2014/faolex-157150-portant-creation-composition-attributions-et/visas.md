@@ -1,0 +1,15 @@
+# Visas
+
+REPUBLIQUE DU BENIN Fraternité - Justice - Travail MINISTERE DU DEVELOPPEMENT, DE L' ANALYSE ECONOMIQUE ET DE LA PROSPECTIVE MINISTERE DE L'ECONOMIE ET DES FINANCES MINISTERE DES AFFAIRES ETRANGERES, DE L'INTEGRATION AFRICAINE, DE LA FRANCOPHONIE ET DES BENINOIS DE L'EXTERIEUR CABINETS ARRETE INTERMINISTERIEL i} W., ~ .
+Année 2014 n° eJd3 /MDAEP/MEF/MAEIAFBE /ifl?G~ DGI D/CCAD Portant création, composition, attributions et fonctionnement du comité interministériel permanent d'appui à la mise en œuvre de la Politique Nationale de l'Aide au Développement (PNAD 2011-2020) Le Ministre du Développement, de l'Analyse Economique et de la Prospective; Le Ministre de l'Economie et des Finances;
+Le Ministre des Affaires Etrangères, de l'Intégration Africaine, de la Francophonie et des Béninois de l'Extérieur Vu la loi n° 90-032 du 11 décembre 1990 portant Constitution de la République du Bénin;
+Vu la proclamation le 29 mars 2011, par la Cour Constitutionnelle, des résultats définitifs de l'élection présidentielle du 13 mars 2011 ;
+_-rI:;;;:=-_V:",:u le décret n° 2012-191 du 03 juillet 2012 fixant la structure type des ministères;
+Vu le décret n° 2013-457 du 08 octobre 2013, portant composition du Gouvernement;
+Vu le décret n° 2012-544 du 17 décembre 2012 portant attributions, organisation et fonctionnement du Ministère du Développement, de l'Analyse Economique et de la Prospective;
+Vu le décret n° 2012-428 du 06 novembre 2012 portant attributions, organisation et fonctionnement du Ministère de l'Economie et des Finances;
+Vu le décret n° 2012-196 du 13 juillet 2012 portant attributions, organisation et fonctionnement du Ministère des Affaires Etrangères, de l'Intégration Africaine, de la Francophonie et des Béninois de l'Extérieur;
+Vu le décret n° 2011·893 du 30 décembre 2011 portant adoption de la Politique Nationale de l'Aide au Développement (PNAD 2011-2020) ;
+Sur proposition du Ministre du Développement, de l'Analyse Economique et de la Prospective ;
+ARRETENT:
+CHAPITRE 1 : CREATION ET ATTRIBUTIONS
