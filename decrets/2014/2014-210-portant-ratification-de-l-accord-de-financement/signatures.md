@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, [e lg mars 2014 Par te Président de [a RéPubtique, Chef de t'Etat, Chef du Gouvernement, d( Dr Boni YAYI Le Ministre de t'Economie et des Finances, as GBI Le Ministre de [a Santé, Le Ministre de ['Agricutture, de l'Etevage et de ta Pêche, Fatouma AMADOU DJIBRIL Le Ministre de [a Famitle, des Affaires Sociates, de [a Sotidarité Nationale, des Handicapés et des Personnes de Troisième Age, Naom RIA NHOUI intérimaire AMPTIAIIONS: PR 6- AN 4-CC2- CS2_HAAC2.CE!2- HCJ 2MET 2M^ËP2 MS 2 MFASSNHPTA 2. AUTRES MINISTERES 23. SGG 4 - DGBM-DCF-DGTCP.DGID-DGDDI 5- BN-DAN.DLC- 3 - GCONB-DCCT- rNsAE 3- BCp-csN-rGAA 3- uAc-ENAM-FASJEP 3- UNIPAR-FDSP z- rc*e t.- il\. @ Dorothée Akoko KINDE GAZARD
