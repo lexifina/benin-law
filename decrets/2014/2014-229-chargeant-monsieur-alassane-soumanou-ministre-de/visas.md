@@ -1,0 +1,4 @@
+# Visas
+
+REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE DECRET No 2014 -22e DU 27 MARS 2o74 Chargeant Monsieur Alassane SOUMANOU, Ministre de l'Enseignement Secondaire, de la Formation Technique et Professionnelle, de la Reconversion et de I'lnsertion des Jeunes (MESFTPRIJ), de l'intérim de Monsieur François Adébayo ABIOLA, Ministre d'Etat Chargé de I'Enseignement Supérieur et de la Recherche Scientifique pour compter du lundi 17 mars 2014 au mercredi 26 mars 2014.
+VU VU LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT, la loi n" 90-032 du 101 décembre 1990 portantconstitution de la Républiquedu Bénin, la proclamation le 29 mars 201'l par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du 13 mars 201 1 , le Décret N" 2013-457 du 08 octobre 20'13 portant composition du Gouvernement VU DECRETE
