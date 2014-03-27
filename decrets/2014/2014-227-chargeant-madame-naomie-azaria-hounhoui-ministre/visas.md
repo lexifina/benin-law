@@ -1,0 +1,6 @@
+# Visas
+
+..REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE DECRET NO 2OI4_227 DU 21 MARS 2074 Chargeant Madame Naomie AZARIA HOUNHOUI, Ministre de l'lndustrie, du Commerce, des Petites et Moyennes Entreprises, de I'intérim de Madame Marie- Laurence SRANON SOSSOU, Ministre de la Famille, des Affaires Sociales, de la Solidarité Nationale, des Handicapés et des Personnes de Troisième Âge, pour compter du 09 au 23 mars 2014.
+LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT, Vu la loi n' 90-032 du 11 décembre 1990, portant Constitution de la République du Bénin , Vu la proclamation, le 29 mars 2011 par la Cour Constitutionnelle, des résultats définitifs de l'élection présidentielle du 13 mars 201 1 ;
+Vu le décret n" 2013-457 du 08 octobre 2013 portant composition du Gouvernement;
+DECRETE Article 't"': Pour compter du dimanche 09 mars au dimanche 23 mars 2014, Madame Naomie AZARIA HOUNHOUI, Ministre de l'lndustrie, du Commerce, des Petites et Moyennes Entreprises, est chargée de l'lntérim de Madame Marie-Laurence SRANON SOSSOU, Ministre de la Famille, des Affaires Sociales, de la Solidarité Nationale, des Handicapés et des Personnes de Troisième Âge pendant son absence.
