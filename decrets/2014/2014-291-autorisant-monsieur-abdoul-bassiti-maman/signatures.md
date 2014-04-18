@@ -1,0 +1,3 @@
+# Signatures
+
+Fait a Cotonou, le 18 avril 2Ol4 Par le Président de la RéPublique, Chef de I'Etat, Chef du Gouvernement, Dr Boni YAYI.- e Garde des Sceaux, firlinistre Le Ministre des Affaires Etrangères, de I'l ntégration Africaine, de la FrancoPhonie et des Béninois de l'Extérieur, de la Justice, de la Législation et des Droits de l'Homme, Nassirou BAKO A Rl.- n DJENO TIN GOSSOU.- AUEUÀ[.!QI§: PR 6 AN 4 CC 2 CS 2 HAAC 2 CES 2 HAC 2 HCJ 2 GS/MJLDH 2 MAEIAFBE 2 AUTRES MINISTERES 24 ffi§fi§§ffi-gEN1N/ALLEMAGNE 2 DGBM.DCF- DGTCP- DGID. DGDDI 5 BN.DAN-DLC 3 GCONB-DGCST-INSAE-IGE 4 BCP' CSN -IGAA 3 UAC.ENAM-FADESP 3 UNIPAR-FDSP 02 INTERESSE 1 JORB 1 0bq
