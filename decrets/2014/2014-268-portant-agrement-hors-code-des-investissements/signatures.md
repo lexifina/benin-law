@@ -1,0 +1,5 @@
+# Signatures
+
+Fait à Cotonou, le 18 avril 2ol4 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Ministre du Développement, de l'Analyse Economique et de la Prospective, Ma Alain de SOUZA Le Ministre de la Culture, de l'Alphabétisation, de l'Artisanat et du Tourisme, Le Ministre de l'Economie et des Finances, Le lvlinistre de I'Environnement Chargé de la Gestion des Changements Climatiques, du Reboisement et de la Protection des Ressources Naturelles et Forestières, I Jean-Michel ABIMBOLA Raphaël EDOU Dr Boni YAYI Mh Le Ministre du Travail, de la Fonction Publique, de la Réforme Administrative et lnstitution nelle Chargé du Dialogue Social, Martial SOUNTON AMPLIATIONS: PR 6- AN 4- CS2' CC 2- CES 2- HAAC Z'HA2 - MDAEP 4- MEF 4- MCAAT 4 - MTFPRAI-DS 4 -MECGCCRPRNF 4- AUTTES MiNiStèTES 21- SGG 4 - DGBM 1-DCF 1 . DGTCP 1- DGID
+1. DGDDI 1 - BN 1. DAN 1 - DLC 1. GCONB 1- DGCST 1 - INSAE 1- BCP 1 - CSM 1. CPI 1- IGAA 1 . UACl-UNIPARl.ENAMl-FADESPl-SOCiété,,HOTELPEACEANDLOVE,,S.A. 1..JORB1.
+0r# ?
