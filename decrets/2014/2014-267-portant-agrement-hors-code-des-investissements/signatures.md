@@ -1,0 +1,5 @@
+# Signatures
+
+Fait à Cotonou, le 18 avril 201,4 Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, Dr Boni YAYI Le Ministre du Développement, de I'Analyse Economique et de la Prospective, Le Ministre de l'Economie et des Finances, t \ Le ltlinistre du Travail, de la Fonction Publique, de la Réforme Administrative I nstitutionnelle Chargé du Dialogue Social, Le Minis de l'Environnement Chargé de nas üwk? IUL Marcel Alain de SOUZA la Gestion des Changements Climatiques, du Reboisement et de la Protection des Ressources Naturelles et Forestières, MartialSOUNTON Raphaël EDOU Le Ministre de l'Energie, des Recherches Pétrolières et Minières, de l'Eau et du Développement des Energies Reno AMPLIATIONS : PR 6-AN 4- CS 2 - CC 2- CES 2- HAAC 2- H
+- MDAEP 4. MEF 4 - MTFPRAI.
+DS 4- MECGCCRPRNF 4. MERPMEDER 4 - AUTRES MINISTERES 23- SGG 4. DGBM 1 - DCF 1 - DGTCP 1 - DGID 1 - DGDDI 1 - BN 1 - DAN 1 - DLC 1 - GCONB 1 - DGCST 1 - INSAE 1 - BCP 1. CSM 1-CPl 1-|GAA1-UACL-UNIPARl-ENAM1-FADESPl-SociétéBENINPETROS.A.l.-JORB1. Da *y
