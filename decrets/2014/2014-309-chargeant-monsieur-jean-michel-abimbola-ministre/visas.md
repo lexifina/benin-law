@@ -1,0 +1,3 @@
+# Visas
+
+LE PRESIDENT DE I"A REPUBLIQUE, CHEF DE r.,',ETAT, CHEF DU GOTryERNEMENT, Vu la Loi n.90-032 du 11 décembre 1990, portant Constitution de la République du Bénin Vu la Proclamation le 29 mars 2011 par la Cour Constitutionnelle des résultats définitifs de I'élection présidentielle du 13 mars 2011 i Vu Ie Décret n'2OL3-457 du 08 octobre 2013 portant composition du Gouvernement i DECRETE 1", : Pendant I'absence de Monsieur Jonas A. GBIAN, Ministre de l'Economie et des Ampliations: PR 6 AN 4 CS 3 MINISTERES 26 JO 1 Finances, son intérim sera assuré par Monsieur Culture, de l'Alphabétisation, de I'Artisanat et du lundi 14 avril 2014.
