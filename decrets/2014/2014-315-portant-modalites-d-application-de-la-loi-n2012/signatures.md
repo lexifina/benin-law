@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le o6 rnai 2074 Par le Président de la RéPublique' Chef de I'Etat, Chef du Gouvernement, r Dr Boni YAYI.- Le Ministre d'Etat chargé de l'Enseignement Supérieur et de la Recherche Scientifique' s§ Francois Adebavo ABIOLA Le Ministre de l'Economie et des Finances, Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de I'Homme, entin DJENO TIN GOSSOU.- n AMPLIATIONS:PR 6 SGG 4AN 4 CC 2 CS 2 HAAC 2 CES 2 HAC 2 HCJ 2 GS/MJLDH 2 I\'IEF 2 AUTRES r',rlilGrenes zs s DGBM-DoF- DGTcP- DGID- DGDDI 5 BN-DAN-DLC 3 GcoNB-DGcST-lNsAE-lGE 4 BcP-CSN - IGAA 3 UAC.ENAM.FADESP 3 UNIPAR-FDSP 02 JORB 1 , ch+
