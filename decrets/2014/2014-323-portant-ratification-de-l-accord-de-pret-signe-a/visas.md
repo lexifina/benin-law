@@ -1,0 +1,7 @@
+# Visas
+
+REPUBLIqUE DU BENIN Fràterrité-Ju5tice-Trôvàil PRESIDENCE DE LA REPUBLIQUE DECRET N' 2014-323 DU 20 MAI 2014 portant ratification de l'accord de prêt signé à Cotonou, [e 31 mars 2014 entre [a Répubtique du Bénin et ta Banque Ouest Africaine de Dévetoppement (BOAD) dans [e cadre du financement partiet du projet d'aménagement et de bitumage de routes structurantes: Comè - Lokossa - Dogbo et ta bretette Zounhouè 'Athiémé - Frontière du Togo, Savatou - Tchetti - Frontière du Togo et l.a bretette Logozohè - Glazoué et Djèrègbé - Dja - Owodé - Frontière du Nigeria.
+vu [a toi n" 90-32 du 11 décembre 1990 portant constitution de ta Répubtique du Bénin ;
+vu ta toi n" zo14-12 du 16 mai 2014 portant autorisation de ratification de I'accord de prêt signé à cotonou, [e 31 mars 2014 entre ta Répubtique du Bénin et ta Banque ouest Africaine de Dévetoppement (BOAD), dans te cadre du financement partiel du projet d'aménagement et de bitumage de routes structurantes : comè - Lokossa - Dogbo et ta bretette Zounhouè - Athiémé - Frontière du Togo, savatou - Tchetti - Frontière du Togo et ta bretette Logozohè - Gtazoué et Djèrègbé - Dja - Owodé - Frontière du Nigeria ;
+vu La proctamation, [e 29 mars 201 1 par [a cour constitutionnetle, des résuttats définitifs de t'étection présidentiette du 13 mars 201 1 ;
+vu te décret n'7013-457 du 08 octobre 201 3 portant composition du Gouvernement, DEGRETE:
