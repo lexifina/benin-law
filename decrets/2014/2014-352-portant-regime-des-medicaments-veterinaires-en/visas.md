@@ -1,0 +1,7 @@
+# Visas
+
+REPUBLIQUE DU BENIN FBATERNITE.'USTICE-IRÀVA IL PRESIDENCE DE LA REPUBLIQUE Vu Vu Vu Vu Vu DECRET N'2014-352 DU 02 JUIN 2014 portant régime des médicaments vétérinaires en République du Bénin.
+LE PRESIDENT DE LA REPUBLIQUE' GHEF DE L'ETAT' CHEF DU GOUVERNEMENT, la loi n" 90-32 du 11 décembre 1990 portant constitution de la République du Bénin ; I'acte additionnel n' 04/96 du '1 0 mai 1996 instituant un régime tarifaire préférentiel transitoire des échanges au sein de l'UEMOA et son mode de financement ; le règlement n o2t2oo6tcM/UEMOA du 23 mars 2006 établissant des procédures comriunautaires pour l'autorisation de mise sur le marché et la surveillance des médicaments véiérinaires et instituant un Comité Régional du Médicament Vétérinaire ;
+la directive n' 07/2006/CM/UEMOA relative à la pharmacie vétérinaire ; la proclamation le 2g mars 2011 par la Cour Constitutionnelle, des résultats définitifs de l'élection présidentielle du 13 mars 201 1 ;
+le décret n"2013457 du 08 août 2013 portant composition du Gouvernement ; le décret n"2012-191 du 03 juillet 2ol2fixanl la structuretype des Ministères ; le décret n 2012-514 du 17 décembre 2012, portant attributions, organisation et fonctionnement du Ministère de l'Agriculture, de l'Elevage et de la Pêche ; Sur proposition du Ministre de l'Agriculture, de I'Elevage et de la Pêche ; Le Conseil des Ministres entendu en sa séance du 17 avril2014' ARTICLE 1ER DEGRETE:
+TITRE I : DES DEFINITIONS On entend par médicament vétérinaire toute substance ou curatives à dministré à ou corriger

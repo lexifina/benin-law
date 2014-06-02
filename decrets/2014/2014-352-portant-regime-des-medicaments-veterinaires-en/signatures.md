@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 02 j uin 2or4 contraires sera P oh Par le Président de la RéPublique, Chef de I'Etat, Chef du Gouvernemenÿ Dr Boni YAYI D Le Ministre d'Etat Chargé de l'Enseignement Supérieur et de la Recherche Scientifique, Francois Adebavo ABIOLA.- Le Ministre de la Santé, Le Ministre de l'Agriculture, de l'Elevage et de la Pêche, koko NDE RD.- Fatouma AMADOU DJIBRIL.- AUEIIÀI9!§ : PR 6 SGG 4 AN 4 CS 4 CC 4 CES 4 HAAC 4 MECESRS 2 MAEP 2 MS 2 AUTRES MINISTERES 24 DGBM-DCF- DGTCP.DGlD.DGDDl5BN.oAN.DLC3GcoMB.oGcsT-lNSAE3EcP.cSM]GAA3UAc.ENAM-FADESP3.UNIPAR_FDSP2 JORB 1.- I4 0h lw
