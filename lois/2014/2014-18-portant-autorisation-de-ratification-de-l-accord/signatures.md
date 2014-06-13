@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, te'13 juin 2014 Par te Président de ta Répubtique, Chef de t'Etat, Chef du Gouvernement, LOt N' 2014-18 DU 13 JU|N 2014 portant autorisation de ratification de ['accord de prêt signé à Cotonou, [e 22 avril 2014, entre [a Répubtique du Bénin et [a Banque Arabe pour [e Dévetoppement Economique en Afrique (BADEA), dans [e cadre du financement partiel du projet de construction et d'équipement de l'Ecote normale supérieure de l'enseignement technique de Lokossa (ENSETL).
+AJ§ Dr Boni YAYI Le Ministre d'Etat Chargé de ['Enseignement Supérieur et de [a Recherche Scientifique, Le Ministre de ['Economie et des Finances, U François Adebavo ABIOLA AMPUATIONS: PR 6- AN 4-CC2- CS 2- HAAC 2 - CES 2 - tCJ2MÉF2 ESRS 2. AUIRES MINISTERES 25 - SGG 4. DGBM-DCF-DGTCP-DGID-DGDDI 5- BN-DAN-DLC.3 - GCON ENAM.FASJEP 3- UNIPAR-FDSP 2. JORB ].- NSAE 3- BCP.CSNIGAA 3- UAC- ûltu
