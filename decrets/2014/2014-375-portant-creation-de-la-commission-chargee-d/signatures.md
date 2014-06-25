@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le zs j uin 2ot4 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Ministre d'Etat Chargé de l'Enseignement Supérieur et de la Recherche Scientifique, Ministre de l'Economie et des Finances, Le Ministre du Travail, de la Fonction Publique, de la Réforme Administrative et lnstitutionnelle Chargé du Dialogue Social, J GB Martial S TON AMP : PR6 SGG4AN2 CCzCS2 HAAC2CES2HCJ 2 MECESRS 2 MTFPRAICDS 2 MEF 02 MTFP 02 Autres ministères 24 DGAE-DGCPE 04 DCBM-DCF-DGTCP-DGID-DGDDI 05 BN-DAN-DLC 3 GCONB-DCCT-INSAE 03 BCP-CNS-IGAA 03 UAC-ENAM-FADESP 03 UNIPAR-FDSP 02 JORB : 0l Dr Boni YAYI Francois Adebavo ABIOLA L
