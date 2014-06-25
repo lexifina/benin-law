@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 25 j uin zo74 Par le Président de la RéPublique, Chef de l'Etat, Chef du Gouvernement, ll N4 Dr Boni YAYI Le Ministre Chargé de l'Evaluation des Politiques Publiques et du Programme de Dénationalisation, Antonin DOSSOU Le Ministre du Développement, de l'Analyse Economique et de la ProsPective, Le Ministre de l'Economie et des Finances, onas Le Ministre de I'Energie, des Recherches Pékolières et Minières, de l'Eau et du DéveloPPement des Energies Renouvelables, ô \ Marcel Alain de SOUZA m Da KASS AMPLIATIoNS:PR6SGG4AN4cS2cC2CES2HAA}2HcJ2MCEPPPD2MDAEP2M MEF2AUTTRESMINISTERES23DGBM-DCF-DGTCP-DGID-DGDDI5BN-DAN.DLC3INSA CSM-IGAA 3 UAC-ENAM.FADESP 3 UNIPAR-FDSP 02 JORB 1.- RPMEDER 2 E-IGE 4 BCP- ry
