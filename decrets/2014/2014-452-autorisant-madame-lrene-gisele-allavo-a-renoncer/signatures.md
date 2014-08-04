@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le oa aout 2or4 Par le Président de la RéPublique, Chef de I'Etat, Chef du Gouvernement, Dr Boni YAYI.- Le Ministre des Affaires Etrangères, de l'lntégration Africaine, de la FrancoPhonie et des Béninois de I'Extérieur, Nassirou BAK IFARI.- Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, entin ENONT N-AGOSSOU.- Ar,PLlATloNs:PR6AN4cc2cs2HAAC2cEs2HAc2HcJ2GS/MJLDH2MAEIAFBE2AUTRESMINISTÊRES24 ôËËiiffiÈèiô;-'ôèiol-rËooii-àH-onror-c 1 GcoNB-occsr-TNSAE-rcE 4 BcP-csN -rcAÂ 3 ,A.-ENAM- FADESP 3 UNIPAR-FOSP 02 INTERESSEE 1 JORA 1 ///t 0+
