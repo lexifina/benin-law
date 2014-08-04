@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 04 aout 2ot4 Dr BoniYAYI.- Le Ministre des Affaires Etrangères, de l' lntégration Africaine, de la Francophonie et des Béninois de l'Extérieur, Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de I'Homme, NTIN.AG u.- Nassirou B K IFA Ai,PLIANONS IPR 6AN 4 CC 2 CS 2 HAAC 2 CES 2 HAC 2 HCJ 2 GS/I'JLDH 2 MAEIAFBE 2 AUTRES MINISTERÉS 24 ffiiËîseoe aer{r.lÀLler,re-or.re à bceir-ocr- Dcrcp- DGID- DGDDI 5 BN-FAN-DLc 3 ccoNB-DGcsr-INSAE-lGE 4 BcP' CSN .IGM 3 UAC.ENAM.FADESP 3 UNIPAR-FDSP 02 INTERESSEE 1 JORB 1,Lt/ ntin DJ Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, &
