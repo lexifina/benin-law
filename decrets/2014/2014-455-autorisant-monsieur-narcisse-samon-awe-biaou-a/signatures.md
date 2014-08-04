@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le oa aou r 2ot4 Par le Président de la RéPublique, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI.- Le Ministre des Affaires Etrangères, de l' lntégration Africaine, de la FrancoPhonie et des Béninois de l'Extérieur, N ssirou BAK IFARI.- AMPLIATIONS PR6 AN 4 CC 2 CS 2 HAAC 2 CES 2 HAC 2 HCJ 2 GS/MJLDH 2 AMBASSADE BENIN/ALLEMAGNE 2 DGBM.DCF- DGTCP- OGID. DGDDI 5 B CSN .IGAA 3 UAC.ENAM.F ADESP 3 UNIPAR-FDSP 02 INTERESSE 1 JORB 1 Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, n ENONTI GOSSO MAEIAFBE 2 AUTRES IUINISTERES 24 LC 3 GCONB.DGCST.INSAE-IGE 4 BCP- ô
