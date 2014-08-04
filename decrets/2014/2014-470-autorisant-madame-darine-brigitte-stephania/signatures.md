@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le o+ aour 2074 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le lrlinistre des Affaires Etrangères, de I'lntégration Africaine, de la Francophonie et des Béninois de l'Extérieur, Nassirou BAKO A Rt.- Valentin DJENONTIN-AGOSSOU.- AIq8.!.!ÂI!.9!L§ : PR 6AN 4 CC 2 CS 2 HAAC 2 cES 2 HAC 2 HCJ 2 GS/MJLDH 2 MAEIAFBE 2 AUTRES MINISTERES 24 À-rurEI§EÂoE-arr.lrN/ALLEMAGNE 2 DGBM-DCF- DGTcp- DctD- DGDDI 5 BN-DAN-oLC 3 GcoNB-DGcsr-INSAE-lGE 4 acP- csN -|GAA 3 UAC-ENAM-FADESP 3 UNIPAR-FDSP 02 INTERESSEE 1 JORB 1. A I üt§ Dr Boni YAYI.- Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme,
