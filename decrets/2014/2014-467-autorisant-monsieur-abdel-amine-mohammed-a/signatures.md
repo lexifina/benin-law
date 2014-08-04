@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 04 aout 2or4 Par le Président de la RéPublique, Chef de l'Etat, Chef du Gouvernement, Dr BoniYAYI.- Le Ministre des Affaires Etrangères, de l' lntégration Africaine, de la FrancoPhonie et des Béninois de l'Extérieur' Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, Nassiro BAK IFA alentin DJEN NTIN-AGO SSOU.- AMPLIATIONS PR 6 AN 4 CC 2 CS 2 HAAC 2 CES 2 HAC 2 HCJ 2 GS/MJLDH 2 MAEIAFBE 2 AUTRES MINISTERES 24 AIUBASSADE BENIN/ALLEMAGNE 2 DGBM-DCF. OGTCP- DGID- DGDDI 5 CSN -IGAA 3 UAC-ENAM * -FADESP 3 UNIPAR-FDSP 02 INTERESSE 1 JORB 1 B -DLC 3 GCONB.DGCST.INSAE.IGE 4 BCP-
