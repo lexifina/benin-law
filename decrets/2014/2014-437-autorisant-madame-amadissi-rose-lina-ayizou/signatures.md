@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 04 aou r 2074 Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, Le Ministre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de l'Extérieur, Nass iro u K RIFARI.- Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, a entin DJEN TIN-AGOSSOU.- AMPLIATIONS: PR 6 AN 4 CC 2 CS 2 HAAC 2 CES 2HAC2HC) 2 GS/MJLOH 2 MAEhFAE 2 AUTRES MINISTERES 24 ÂlasASSAoE BEN|N/ALLEMAGNE 2 DGBM-DCF- DGTcp- DGiD- Dcool 5 BNTDAN-DLC 3 GcoNB-DGcsr-lNsAE-lGE 4 BCP- csN -IGAA 3 UAC-ÉNAM-FADESP 3 UNIPAR-FDSP 02 INTERESSEE 1 JORB 1// & Dr BoniYAY|.-
