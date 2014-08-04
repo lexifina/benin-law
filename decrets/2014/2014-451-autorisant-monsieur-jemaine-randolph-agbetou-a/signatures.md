@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à cotonou, le 04 aout 2or4 Par le Président de la RéPublique, Chef de l'Etat, Chef du Gouvernement, Le Ministre des Affaires Etrangères, de I' lntégration Africaine, de la FrancoPhonie et des Béninois de l'Extérieur' Nassirou BAK IFARI.- Dr BoniYAYI.- Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, ntin DJ ENONTIN-AGOS ou.- afu Ài,PLlATloNs:PR6AN4cc2cS2HAAC2cEs2HAc2HcJ2GS/MJLDH2MAEIAFBE2AUTRESMINISTERES24 ffiËffioe aer.iri.uîLi;JAêNË i bèàü:ôèr-- ôèrcp- ocro- DGDD| 5 B''LDAN-DLC 3 ccoNB-oGcsr-TNSAE'rGE 4 BcP- ôêrn'-icÀ-s uAt-ENAu-rnoEsp e uNiplilposp æ rrlrenneset naat'ÿ i
