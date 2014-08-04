@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le oa aour 2ot4 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI.- Nassirou BAKO ARI.- ntin DJENO -AGOSSOU.- AMPLIATIONS PR 6AN 4 CC 2 CS 2 HAAC 2 CES 2 HAC 2 HCJ 2 GS/MJLDH 2 MAEIAFBE 2 AUTRES MINISTERES 25 N.DLC 3 GCONB.DGCST.INSAE-IGE 4 BCP- Le Ministre des Affaires Etrangères, de I'lntégration Africaine, de la Francophonie et des Béninois de I'Extérieur, Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, AMBASSADE BENIN/ALLEMAGNE 2 DGBM-DCF. DGTCP. DGIO- OGDDI 5 BN'A CSN .IGAA 3 UAC-ENAM,FADESP 3 UNIPAR.FDSP 02 INÎERESSE 1 JORB 1, /r &
