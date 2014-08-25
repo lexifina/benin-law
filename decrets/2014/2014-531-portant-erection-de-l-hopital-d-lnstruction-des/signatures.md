@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou le 25 aour 201 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Ministre d'Etat Chargé de l'Enseignement Supérieur et de la Recherche Scientifique, i\ _/ Dr BoniYAY| dr Francois Adebavo ABIOLA Le Ministre de la Défense Nationale, YERIM Le Ministre de l'Economie et des Finances, o nas GBIAN ? Le Ministre de la Santé, Dorothée Akoko KINDE D AMPLIATIONS: PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 HCJ 2 MECESRS 2 MDN 2 MEF 2 MS 2 AUITES MiNiStèrES 23 SGG 4 DGBM-DCF'DGTCP'DGID-DGDDI 5 BN-DAN-DLC 3 GCONB- DGCST.INSAE 3 BCP-CSM-IGAA.IGE 4 UAC.ENAM.FADESP 3 UP-FDSP2 JORB 1 /-// ./ & ,,
