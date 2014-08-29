@@ -1,0 +1,6 @@
+# Visas
+
+REPUBLIQUE DU I]ENIN PRESIDENCE DE LA RIIPUBLIQUE DECRETNo20I+541 du 29 aout 2014 Chargeont Monsieur Babalola Jean Michel H. ABIMBOLA, Ministre de la Culture de I'Alphabétisotion, de I'Atisan et tlu Tourisme, de I'inlérim de Modame Naomie AZARIA HOUNHOUI, Ministre de I'lndustrie du Commerce, des Petites et Moyennes Enlreprises pour compter du dimanche 03 ou vendredi 08 aoûl 2014 LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT Vu la Loi N"90-032 du I I décembre 1990, portant Constitution de ta République du Bénin ; la proclamation le 29 mars 201 I par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du l3 mars 201 I ;
+Vu Vu le décret 2013-457 du 08 octobre 201 3 portant composition du Gouvernement.
+Vu le décret 2014-414 du 03 août 2014 chargeant Monsieur François Adébayo ABIOLA, Ministre d'Etat Chargé de l'Enseignement Supérieur et de la Recherche Scientifique de I'intérim du Chefde l'Etat.
+DECRETE Article l"' : pour compter du dimanche 03 au vendredi 08 août 2014 Monsieur Babalola.lean Michel H. ,q.StN,ISOLl, Minisire de la Culture, de l'Atphabétisation, de l'Artisanat et du Tourisme, est chargé de I'intérim de Madame Naomie AZARIA HOUNHOUI, Ministre de I'lndustrie du Commerce des Petites et Moyennes Entreprises.
