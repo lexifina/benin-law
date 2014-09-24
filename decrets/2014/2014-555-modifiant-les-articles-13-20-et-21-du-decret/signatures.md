@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le24 septembre 2014 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Ministre de la Décentralisation, de la Gouvernance Locale, de l'Administration et de l'Aménagement du Territoire, ls NONLONF N.- Le Ministre du Travail, de la Fonction Publique et de la Réforme Administrative et lnstitutionnelle, I boubakar YAYA Le Ministre de l'Economie, des Finances et des Programmes de Dénationalisation \ Komi K UTCHE.- AiIPLIATIOTIS : PR 06 AN 04, CS 02, CCO2 CES 02, HAAC 02 MDGLAAT 02, MTFPRAI 02 MEFPD 02, AUTRES i/INIISTERES 24 Scc 04 DGBM-DCF-DGTCP-DGID-DcDDI 05, BN-DAN-DLC 0i3, GCONB-DCCT-INSAE 03, BCT- CSM.IGAA 03, UAC-ENAM-FADESP 03, UNIPAR.FDSP 02, DOPA 01 , JORB 01. II . t-l efr BoniYAY| I Ot 3r
