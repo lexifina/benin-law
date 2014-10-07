@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 67 ocrobre 2014 Par le Président de la RéPublique, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI Le Ministre d'Etat chargé de I'Enseignement Supérieur et de la Recherche Scientifique, Le Ministre de l'Economie, des Finances et des Programmes de Dénationalisation, Le Miniske du Travail, de la Fonction Publique, de la Réforme Administrative et lnstitutionnelle, -é2 AMPLIATIONS : PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 MCESRS 2 MTFPRAI 2MEF2 AUTRES MINISTERES 2I SGCN OCAI\/I'OCT- '/ DGTCP.DGIO.DGDDI 5 BN,DAN-DLC 3 GCOMB-DGCST-INSEC A ACP'CSi/LIèÀ 3 UAC' ENAM ' FADESP 3' UNIPAR _TOSCZ f JoRB 1 - -/// CF- Francois Adebavo ABIOLA Komi KOUTCHE Aboubacar YAYA
