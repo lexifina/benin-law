@@ -1,0 +1,4 @@
+# Visas
+
+REPUBLIOUE DU BENIN PRESIDENCE DE LA REPUBLIQUE DECRET N" 2014-633 DU 9 OCTOBRE 2OI4 Chargeant Monsieur Alassane SOUMANOU, Ministre de l'Enseignement Secondaire, de la Formation Technique et Profession nelle, de la Reconversion et de l'lnsertion des Jeunes (MESFTPRIJ), de l'intérim de Monsieur François Adébayo ABIOLA, Miniske d'Etat Chargé de l'Enseignement Supérieur et de la Recherche Scientifique pour compter du Iundi 11 aoûl 20'14 au dimanche 17 août2014.
+LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT, la loi n" 90-032 du 101 décembre 1990 portant Constitution de la République du Bénin' la proclamation le 29 mars 2011 par la Cour Constitutionnelle des résultats définitifs de l'êlection présidentielle du 13 mars 2011, le Décret N" 2013-457 du 0B octobre 2013 portant composition du Gouvernement VU VU VU
