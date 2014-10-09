@@ -1,0 +1,5 @@
+# Visas
+
+REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE DECRET No20l4 -625 DU e ocroBRE 2074 Chargeant Monsieur Babalola Jean Michel H. ABIMBOL A,, Ministre de la Culture de I'Alphahétisalion, de l'Atisanal et du Tourisme, de l'inlérim de Madame Françoise A. ASSOGBA, Ministre de l'Industrie du Commerce, des Petites et Moyennes Enlreprises pour compter du samedi 06 aujeudi ll septembre 2014 LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT Vu la Loi N'90-032 du I I décembre 1990, portant Constitution de la République du Bénin ; Vu Vu le décret 2013-457 du 08 octobre 2013 portant composition du Gouvemement.
+Vu le décret no 545 du 08 Septembre 2014 chargeant Monsieur François Adébayo ABIOLA, Ministre d'Etat Chargé de l'Enseignement Supérieur et de la Recherche Scientifique de I'intérim du Chefde I'Etat.
+DECRETE Article I "' : pour compter dt samedi 06 au jeudi I1 septembre 2014 Monsieur Babalola Jean-Michel H. ABIMBOLA, Ministre de la Culture, de I'Alphabétisation, de l'Artisanat et du Tourisme, est chargé de I'intérim de Madame, Françoise Abraoua ASSOGBA Ministre de I'lndustrie du Commerce des Petites et Moyennes Entreprises.
