@@ -1,0 +1,9 @@
+# Visas
+
+F.ol.rnné-J!sn.. TroÉ'l Vu Vu PRESIDENCE DE TA REPUBTIQUE LE PRESIDENT DE LA REPUBLIQUE, GHEF DE L'ETAT, GHEF DU GOUVERNEMENT, la loi n'90-32 du I I décembre 1990 portant Constitution de la République du Bénin: la loi n"94-009 du 28 juillet 1994 portant création, organisation et fonctionnement des O1Ïces à caractères social, cultuel et scientifique ;
+la proclamation, le 29 mars 2011 par la Cour Constitutionnelle, des résultats définitifs de l'élection présidentielle dul3 mars 201 l;
+le décret n" 2013-457 du 08 octobre 2013 portant composition du Gouvemement; le décret n" 2012-545 du 17 décembre 2012 porlanr attributions, organisation et tbnctionnement du Ministère de l'lndustrie, du Commerce et des Petites et Moyennes Entreprises le décret n" 2012-544 du l7 décembre 2012 portant attributions, organisation et fonctionnement du Ministère Chargé du Développement, de I'Analyse Economique et de la Prospective I le décret no 201.2-428 du 06 novembre 2012 portant attribüions, organisation et fonctionnement du Ministère de I'Economie et des Finances ;
+le décret n" 2009-688 du 31 décembre 2009 portant approbation des statuts du Bureau de Restructuration et de Mise à Niveau des entreprises (BRMN) ;
+le décret n" 2001-039 du l5 février 2001 portant règlement général sur la comptabilité publique ; proposition conjointe du Ministre de I'Industrie, du Commerce et des Petites et Moyennes Entreprises, du Ministre du Développement, de l'Analyse Economique et de la Prospective et du Ministre de l'Economie et des Finances ;
+Conseil des Ministres entendu en sa séance du 05 juin 2013, DECRETE:
+Vu Vu Vu Vu Vu Vu Vu Sur Le TI'I'RE I : DE l,A CIII],A'IION, DU SIEGI'I', DE LA DUREE lt't DE, L'OBJ ET CHAPITRE I : DE LA CREATION, DU SIEGE ET DE LA DUREE Article l"' : ll est créé en République du Bénin, un Etablissement Public à caractère scientilique dénommé « Bureau de Restructuration et de Mise à Niveau ». ci-après dénommé BRMN.
