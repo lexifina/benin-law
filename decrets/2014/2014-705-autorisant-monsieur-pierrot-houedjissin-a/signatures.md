@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 25 novenbre 2ot4 Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, Le lVlinistre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de l'Extérieur, Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, alentin DJENONTIN-AGOSSOU.- Nassirou BAKO FARt.- A.UEt!ÂIlgX§ipR 6 AN 4 CC2CS2 HAAC 2 CES 2 HAC 2 HCJ 2 GS/MJLOH 2 MAEIAFBE 2 AUTRES MINISTERES 25 Â EÂ-ssloe aENIN/ALLEMAGNE 2 DGBM-DCF- Dcrcp- DG|D- DGDDT 5 B\pAN-DLC 3 GcoNB-DGcsr-lNsAE-lGE 4 BCP- csN -|GAA 3 UAC-ENAM-FAOESP 3 UNIPAR-FDSP 02 INTERESSE 1 JORB 1 / d Dr Boni YAYI.-
