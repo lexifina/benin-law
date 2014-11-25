@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 25 novembre zot4 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI.- Le ltlinistre des Affaires Etrangères, de I'lntégration Africaine, de la Francophonie et des Béninois de l'Extérieur, Nassiro u IFARI.- Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de I'Homme, Valentin DJENONTIN-AGOSSOU.- AMPLIATIONS : PR 6 AN 4 CC 2 CS 2 HAAC2CES2 HAC2 HCJ2GS/MJLDH2 MAEIAFBE 2 AUTRES MINISTERES 25 AMBASSADE BENIN/ALLEMAGNE 2 DGBM-OCF- DGTCP- OGID- DGDDI 5 BN-DAN-DLç 3 GCONB-OGCST-INSAE-lGE Bcp-csN -IGAA 3 uAC-ENAM-FADESP 3 uNIPAR-FDSP 02 TNTERESSEE 1 Joaa t. /L- 0b
