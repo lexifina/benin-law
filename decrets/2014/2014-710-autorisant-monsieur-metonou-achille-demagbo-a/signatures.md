@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le zs novembre 2Ol4 Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, Dr Boni YAYI.- Le tvlinistre des Affaires Etrangères, de I'lntégration Africaine, de la Francophonie et des Béninois de l'Extérieur, Le Garde des Sceaux, lVlinistre de la Justice, de la Législation et des Droits de l'Homme, -A OSS U Nassirou BAKO FARI..
+AUEt!ÀILgl§: PR 6 AN 4 CC2CS2 HAAC 2 CES 2 HAC 2 HCJ 2 GS/MJLDH 2 MAEIAFBE 2 AUTRES MINISTERES 25 AMBASSAOE BENTN/ALLEMAGNE 2 DGBM-DCF- OGTCP- DG|D- DGDDT 5 BiÿDAN-OLC 3 GCONE-DGCST-TNSAE-IGE 4 BCP- CSN -IGAA 3 UAC-ENAM.FADESP 3 UNIPAR.FOSP 02 INTERESSE 1 JORB 1, h tn DJENON sk Article 2 : Le présent décret prend effet pour compter de la date de sa signature sans qu'il soit toutefois porté atteinte à la validité des actes passés par lVlonsieur Mêtonou Achille DEMAGBO ni aux droits acquis par les tiers antérieurement à sa publication, sur le fondement de la nationalité béninoise de I'intéressé.
