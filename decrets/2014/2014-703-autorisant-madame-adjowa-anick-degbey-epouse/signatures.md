@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 25 novembre 2074 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI.- Le Ministre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de I'Extérieur, Nassirou BAKO A ARI.- Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, alentin DJENONTIN-AGOSSOU.- AMPLIATIONS : PR 6 AN 4 CC 2 CS 2 HAAC 2 CES 2 HAC 2 HCJ 2 GS/MJLDH 2 MAEIAFBE 2 AUTRES MINISTERES 25 AMBASSADE BENIN/ALLEMAGNE 2 DGBM-DCF- DGTCP- OGtD- OGDDI 5 BN-DIN-DLC 3 GCONB-DGCST-INSAE-IGE 4 BCP- csN -IGAA 3 UAC-ENAM-FADESP 3 UNIPAR-FDSP 02 INTERESSEE 1 JORB 1. ll,r

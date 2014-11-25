@@ -1,0 +1,9 @@
+# Visas
+
+APJB/ REPUBLIQUE DU BENIN îr at erni t é -Jus t i c e -fr av ai I PRESIDENCE DE LA REPUBLIQUE DECRET N" 2014 .703 DU 25 NOVEMBRE 2014 autorisant Madame Adjowo Anick DEGBEY, épouse LANGE à renoncer à la nationalité béninoise.
+LE PRESIDENT DE LA REPUBLIQUE, GHEF DE L'ETAT, GI|EF DU GOUVERNEMENT, Vu la loi n'90-32 du 11 décembre 1990 portant Constitution de la République du Bénin , la loi n" 65-17 du 23 juin 1965 portant Code de la Nationalité dahoméenne ; la proclamation, du 29 mars 201 1 par la Cour Constitutionnelle, des résultats définitifs de l'élection présidentielle du 13 mars 2011 ;
+le décret n' 2Q14-512 du 20 août 2014 portant composition du Gouvernement ; le décret n'27ZlPClMJL du 11 août '1 965 fixant les modalités d'application du code de la nationalité dahoméenne , le décret n' 2012-196 du 03 juillet 2012 portant attributions, organisation et fonctionnement du Ministère des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de l'Extérieur ;
+le décret n"2Q14-245 du 04 avril 2014 portant attributions, organisation et fonctionnement du Ministère de la Justice, de la Législation et des Droits de l'Homme;
+la correspondance n' 254IMAEIAFBE/SGM/DAC/DA-AC/SCAGS du 21 aoÛt 20'13 du Ministère des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de l'Extérieur et l'ensemble des pièces produites par Madame Adjowa Anick DEGBEY, épouse LANGE , proposition du Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme ;
+Conseil des Ministres entendu en sa séance du 09 juillet 20'14, Vu Vu Vu Vu Vu Le DEGRETE:
+Article l"' : Madame Adjowa Anick DEGBEY, épouse LANGE, de nationalité béninoise, née le 11 novembre 1974 à Dogbo, de Pierre DEGBEY GBEWADE et de Félicité HOUNGBO, est autorisée à renoncer à la nationalité béninoise. /, ,-' t)tu Vu Vu Sur
