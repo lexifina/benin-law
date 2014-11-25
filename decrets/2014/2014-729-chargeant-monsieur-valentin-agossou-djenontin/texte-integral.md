@@ -1,0 +1,9 @@
+# Décret n° 2014-729 du 25 novembre 2014 Chargeant Monsieur Valentin Agossou DJENONTIN, Garde des Sceaux, Ministre de la Justice de la Législation et des Droits de l'Homme de l'intérim de Monsieur Komi KOUTCHE, Ministre de l'Economie, des Finances et des Programmes de Dénationalisation pour compter du 22 au 26 septembre 2O14 et du 29 septembre au 13 octobre 2014
+
+Vu Vu Vu PRESIDENCE DE LA REPUBLIQUE Chargeant Monsieur Va.lentin Agossou DJENONTIN, Garde des Sceaux, Ministre de 1a Justice de la Législation et des Droits de lllomme de lTntérim de Monsieur Komi KOUTCHE, Ministre de iEconomie, des Finances et des Programmes de Dénationalisation pour compter du 22 au 26 septembre 2O74 et du 29 septembre au 13 octobre 2014.
+LE PRESIDENT DE LA R"EPUBLIQI'E, CHTF DE L'ETAT, CI{EF DU GOIIVERNEMENT, la Loi n'90-O32 du ll décembre 1990 portant Constitution de la République du Bénin ;
+la proclamation le 29 mars 2O I 1 par la Cour Constitutionnelle, des Résultats définitifs de l'élection présidentielle du 13 mars 201 I ;
+le Décret rf2Ol4-512 du 20 août 2014 portant composition du Gouvernement; DECRETE:
+Artlcle 1* : Pendant Ia durée de lhbsence de Monsieur Komi KOUTCHE, Ministre de lEconomie, des Finaaces et des Programmes de Dénationalisation, son intérim sera assuré par Monsieur Va-lentin Agossou DJENONTIN, Garde des Sceaux, Ministre de la Justice de la Législation et des Droits de lllomme pour compter du 22 au 26 septembre 2074 et û) 29 septembre au 13 octobre 2O14.
+Fait à Cotonou, le 25 nov bre 20 Le Président de la République, Chef de l'Etat, Chef du Gouvernement, AEpllatlo!s JORB:1.
+) :PR:6 AN:4 CS:2 CC:2 CES:2 HAAC:2 HCJ 2 MINISTERES:30 SGG4- REPUBLIQUE DU BENIN DECRET N'20.14:.72.9du25..N0y.EMBRE 20L 4 Artlcle 2 : Le présent Décret sera publié au Journa-l OIïiciel de la République du Bénin. Dr Boni YAYI.-
