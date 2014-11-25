@@ -1,0 +1,6 @@
+# Visas
+
+REPUBLIQUE DU BENTN PRESIDENCE DE LA REPUBLIQUE DECRET N20i4-72s DU 25 N0VEMBRE 2014 Chatgeant Monsieut Raphaêl EDOU, Ministre de I'Envirornement Chargé de la Gestion des Chaageoears Climatiques, du Reboisement et de la Protection deô Ressoutces Naturelles et Forestièrcs (MCGCCRPRNF), de l'iatérim de Monsieut Chdstien E. G.
+SOSSOUHOUNTO, Minisre de l'Urbanisme, de l'Hebitat et de l'Âssainiasement, du samedi 18 au jeudi 30 octobte 2014.
+LE PRESIDENT DE I-A REPUBLIQUE CHEF DE L'ETAT CHEF DU GOI-IVERNEMENT, \rU b loi 90-032 du 11 décembte 1990 portant Constitutioo de la Rêpubüque du Bénin ; VIJ la ptoclam"tion le 29 mars 2011 pâr la Cour Constitutionnelle des tésultats défioitifs de l'élection ptésidentielle du 13 mars 2011 ;
+VIJ le décret no2013-457 du 08 octobte 2013 portant composition du Gouvemement; DECRETE Article f' : Pour compter du sameü 18 au jeuü 30 octobre 2014, Monsieur Raphaël EDOU, Ministe de l'Environnement Chai# de la Gestion des Changements Climatiques, du Reboisement et de lâ Ptotection des Ressources Naturelles et Forestières (MCGCCRPRNF), est chargé de l'intérim de Monsieur Christian E. G. SOSSOUHOLINTO, N{inisae de I'Urbaorsme, de l'Habitat et de l'Âssainissement pendânt son absence.
