@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le l4 décembre 2014 Dr Boni YAYI.- HAAC 6 JO l.
+2HCJ2 +YPLIATIONS: pR 6 AN 4 CS 2 CC 2 CES 2 MIMSTERES 26 SGG 4DCIMIL2 DEPARTEMENTS
