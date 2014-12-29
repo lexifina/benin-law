@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 29 decernbre 2ot4 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Ministre de I'Economie, des Finances et des Programmes de Dénationalisation, Le Ministre du Travail, de la Fonction Publique, de la Réforme Administrative et lnstitutionnelle, (rnl, thi' A akar YAYA u Le Ministre de l'Agriculture, de I'Elevage et de la Pêche, Azizou EL-HADJ ISSA L tk AMPLIATIONS : PR : 06 - AN 04 - CC02- CS02- HCJ02- CES 02 - HAAC 02 - MEFPD 02 - MTFPRAI 02-MAEP02AUTRES MtNTSTERES 24 - ScG 04 - DGB-OGICP-OCF- DGD- DGDD| 05 7BN-OAN-DLC 03 - GCONB-DGCST-TNSAETGE 04 - BCP-CSM- rGAÂ 03 - UAC-ENAM-FADESP 03 - UP-FOSP 02 - JORB 01 ///ta Dr BoniYAY| /'1-,^ 'ô KomiKOUTCHE

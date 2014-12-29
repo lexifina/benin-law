@@ -1,0 +1,6 @@
+# Décret n° 2014-769 du 29 décembre 2014 portant rectificatif du décret n°2013-137 du 20 mars 2013 portant transformation des Centres Régionaux pour la Promotion Agricole (CeRPA) en Centres Agricoles Régionaux pour le Développement Rural (CARDER)
+
+- Source : Secrétariat général du Gouvernement du Bénin (sgg.gouv.bj), documenthèque, <https://sgg.gouv.bj/doc/decret-2014-769/download>
+- Date : 2014-12-29 (date du texte dans son intitulé (promulgation/signature) ; la date de publication au Journal officiel n’est pas donnée par la source)
+- Couche texte : fournie par l’éditeur sur un document numérisé (non relue)
+- Unités : 2 articles
