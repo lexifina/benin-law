@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 31 decembre 2or4 ô Par le Président de la République, t Chef de I'Etat, Chef du Gouvernementd Dr Boni YAYI Le Ministre de I'Economie, des Finances et des Programmes de Dénationalisation, Le Ministre de la Défense Nationale, ,,\) Robert Théo hile YAROU Le Ministre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de l'Extérieur, BAKO- R A AMPLIATIONS: PR:06 -AN 04 - CC02- CS02- HCJ 02 - CES 02 - HAAC 02 - MEFPD 02 - MJLDH 02 - MCRI 02 AUTRES MINISTERES 24 - SGG 04 . DG8-DGTCP.DCF- DGD- DGDDI 05 - BN-DAN-DLC 03 . GcoNB-DGcsr-tNSAE-tGE 04 - BcP-csM-tcAA 03 - UAC-ENAM-FADESP 03 - uP-FDSP oz - Jone or Ih ./ c & KomiKOUTCHE
