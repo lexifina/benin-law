@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 31 decembre 20t 4 Par le Président de la RéPublique, Chef de l'Etat, Chef du Gouvernement, / ù Ik Dr Boni YAYI Le Ministre d'Etat chargé de l'Enseignement Supérieur et de la Recherche Scientifique, Le Ministre de I'Economie, des Finances et des Programmes de Dénationalisation, Le Ministre de l'Energie, des Recherches Pétrolières et Minières, de l'Eau et du Développement des Energ ies Renouvelables 2.....- Komi K UTCHE rthél AMPLIATIONS PR 6AN 4 CS 2 CC 2 CES 2 HAAC 2 iICESRS 2 MËFPO 2I\IERPMEDER 2 AUTRES I\,IINIST 24 SGG DGBM-DCF-DGTCP.OGID-DGDDI 5 BN.DAN.DLC 3 GCOMB-DGCST.INSAE 3 BCP-CSiil-lGlÂ 3 UAC- ENAM FADESP UNIPAR_FDSP2 JORB 1 , (h Francois Adebavo ABIOLA ---;2 ,/
