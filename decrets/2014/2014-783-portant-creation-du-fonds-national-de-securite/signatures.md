@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 3t decenbr Le Président de la République, Chef de l'Etat, Chef du Gouvernement, Boni YAYI Le Ministre d'Etat Chargé de l'Enseignement Supérieur et de la Recherche Scientifique, ra nÇo is Adebavo ABIOLA Le Ministre de la Défense Nationale, Le Ministre de I'Economie, des Finances et des Programmes de Dénatio na lisation, Aaz) -*) héo hit ROU Le Ministre de l'Economie Maritime et des lnfrastructures Portuaires, AMPLIATIONS:PR6AN4CS2CC2CES2HAAC2HCJ2MECESRS2MDN2MEFPD2MEMIP2AUTRESMINISTERES SGG 4 OGBM-DCF-DGTCP.DGID.DGDDI 5 BN.DAN-DLC 3 GCONB-DGCST.INSAE 3 BCP.CSM-IGAA'IGE 4 UAC'ENAII'FADE 3 UP.FDSP2 JORB 1 r+ 3( û {\ Komi KOUTCHE Rufin Orou Nan NANSOUNON
