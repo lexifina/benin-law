@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 31 decemb 20t 4 e Par le Président de la RéPublique, Chef de I'Etat, Chef du Gouvernement' 4I ab Dr Boni YAYI Le Ministre de l'Economie, des Finances et des Programmes de Dénationalisation, Le Ministre de l'Urbanisme, de I'Habitat et de I'Assainissement, Le Ministre de la Décentralisation, de la Gouvernance Locale, de l'Administration et de l'Aménagement du Territoire, Christian SOUHOUNTO Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droi de I'Homme, n lsidore GNONLON OUN ale DJENONTIN-AGOSSOU 0h =) ---/« c KomiKOUTCHE a@!!g!!g:
+pR 5-AN 2-CS 2 cES 2-HAAC 2- HCJ 2-MEFPD 2 MUHA 2-MJLDH 2- MDGLMT 2-AUTRES MlNlsrEREs 24-DGB 1- ôF 1-DGTCP 1-DG|O 1-OGDD! 1-CAA 1- DpE 1- BN 1- DLC 1- |NSAE 4- DCCT 1- BCP 1- ONIP 1-GCONB 1- UAC t- eNnU r- rnoese t' '( UN|PAR 1- FASEG 1- CCIB 1- MCOÏ 2- JORE ',l -/ ./,/
