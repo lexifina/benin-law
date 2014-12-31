@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 31 decernb Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI.- Le Ministre du Développement, de l'Analyse Economique et de la Prospective, zA.- n M Le Ministre de l'lndustrie, du Commerce et des Petites et Moyennes Entreprises, Francoise Abraoua ASSOGBA.- le tr4inistre de l'Agriculture, de l'Elevage et de la Pêche, Azizou EL HADJ ISSA.- AMPLIATIONS:PR6-SGG4 - AN4 - CS 1- CC 1- HCJ 1-CES 1 - HAAC '1 -MDAEP2-MDGLAAT2- MICPME2- MAEP 2-AUTRES MINISTERES 23 - DGCI 2-CARDER 6- PREFETS 6_ DPQC'I _ DAGRI 1 _ CCIB 1-INSAE,I _DDICPME6 _BCEAO 1-GDE CHANC 1-LANATION 1 _ BCP-CSIVI-IGAA 3 - UAC-ENAM-FADESP- ururean + - lona r. / ).1/u s ÿ Ç
