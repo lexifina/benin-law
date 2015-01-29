@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le janvier Par le Président de la République Chef de l'Etat, Chef du Gouvernement, Le Ministre de l'Economie, des Finances et des Programmes de Dénationalisation, Dr Boni YAYI Le Ministre de l'Urbanisme, de l'Habitat et de l'Assainissement, KomiKOUTCHE Le Ministre de la Décentralisation, de la Gouvernance Locale, de l'Administration et de l'Aménagement du Territoire, Isidore GNONLONFOUN AMPLIATIONS: PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 HCJ 2 MJLDH 2 MUHA 2 MEFPD 2 MDGLAAT 2 AUTRES MINISTERES 22 SGG 4 DGBM-DCF-DGTCP·DGID-DGDDI1BN-DAN-DLC 3 GCONB-DGCST·INSAE 3 BCP-CSM- IGM-IGE4 UAC-ENAM- FADESP 3 UP-FDSP 02 JORB t. J • • •
