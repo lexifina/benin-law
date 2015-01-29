@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 2e j Par le Président de la RéPublique, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI..
+Le Ministre d'Etat Chargé de I'Enseignement Supérieur et de la Recherche Scientifique, Fran ois eba o ABIO Le Ministre de I'Economie, des Finances et Le Garde des Sceaux, Ministre de des Programmes de Dénationalisation, la Justice, de la Législation et des Droits de l'Homme, KomiKOUTCHE.- Valentin DJENONTI N.AGOSSou.- Le Ministre du Travail, de la Fonction Publique, de la Réforme Administrative et lnstitutionnelle, fl,L l+r/ bakar YAY nv1 . ,.\) "o AUPLIÀII9IS: PR 6. AN 4, cS 2, cc 2, cEs HAAC 2. HCJ 2, MECSRS 2, MFEPD 2, IVIJLDH 2, METFPRAI 2. AUTRES ODI 5, BN-DAN.OLC 3. GCOMB-DGCST.INSAE 3, BCP.CSM-IGAA 3, MINISTERES 24, SGG 4, IGE 3, DGBM.OCF-DGTCP.DGID-D/G UAC.ENAM-FAOESP 3, UNIPAR.FOSP 2, IGE 2, JORE 1, d'l
