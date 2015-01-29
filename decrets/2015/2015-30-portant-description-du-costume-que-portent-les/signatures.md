@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 2e j anvier 201.5 Par le Président de la RéPublique, Chef de I'Etat, Chef du Gouvernement, Dr BoniYAY|.- Le Ministre d'Etat Chargé de l'Enseignement Supérieur et de la Recherche Scientifique, t Francois Adebay o ABIOLA,- Le Ministre de l'Economie, des Finances et des Programmes de Dénationalisation, Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, Le Ministre du Travail, de la Fonction Publique, de la Réforme Administrative et lnstitutionnelle' /*tA J 2, MECSRS 2, MFEPD 2, MJLDH 2, I'TFPRAI 2. AUTRES
+5. BN-DAN-DLC 3, GCOMB.OGCST.INSAE 3, BCP-CSM-IGAA 3, nvll ubak r YAY AMPLIATIONS PR 6, AN 4, cs 2, cc 2, cEs 2' HAAC 2,HC MINISTERES 23, SGG 4, IGE 3, DGBM.DCF.DGTCP-DGID' UAC.ENAM.FAOESP 3, UNTPAR.FDSP 2, IGE 2, JORB 1 ffi a-- \ KoMiKOUTCHE.- Valentin DJENONTIN-AGOSSOU.-
