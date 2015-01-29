@@ -1,0 +1,5 @@
+# Signatures
+
+Fait à Cotonou, le Par le Président de la République Chef de l'Etat, Chef du Gouvernement, } Dr Boni YAYI ...
+"1.
+f , .., Le Ministre de l'Economie, des Finances et des Programmes de Dénationalisation, Le Ministre de l'Urbanisme, de l'Habitat et de l'Assainissement, Christian·SOSSOUHO Le Garde des Sceaux, Ministre e la Justice, de la Législation et des Doits de l'Homme, KomiKOUTCHE Le Ministre de la Décentralisation, de la Gouvernance Locale, de l'Administration et de l'Aménagement du Territoire, Raphaël EDOU Le Ministre de l'Environnement Chargé de la Gestion des Changements Climatiques, du Reboisement et de la Protection des Ressources Naturelles et Forestières, Azizou El HADJ ISSA Isidore GNONLONFOUN Le Ministre de l'Agriculture, de l'Elevage et de la Pêche, AMPLIATIONS: ?R 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 HCJ 2 MJLDH 2 MUHA 2 MEFPD 2 MAEP 2 MDGlAAT 2 MECGCCRPRNF 2 AUTRES MINISTERES 21 SGG 4 DGBM-DCF-DGTC?-DGID-DGDDI1...8N-DAN-DLC 3 GCONB- DGCST-INSAE 3 BCP-CSM-IGAA-IGE 4 UAC-ENAM- FADES? 3 UP-FDSP 02 JORB 1. ::r-
