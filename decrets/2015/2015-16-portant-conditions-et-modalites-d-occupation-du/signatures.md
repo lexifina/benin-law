@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 29 j a{vier Dr Boni YAYI Le Ministre de l'Economie, des Finances et des Programmes de Dénationalisation, Le inistre de l'Urbanisme, de l'Habitat et de l'Assainissement, 6v, Komi KOUïCHE Le Ministre de la Décentralisation, de la Gouvernance Locale, de l'Administration et de l'Aménagement du Territoire, lsidore GNONLO FOUN a Christian SOSSOUH UNT Le Garde des Sceaux, Minis de la Justice, de la Législation et de l'Homme, s Droits AMPLIATIONS:PR6AN4CS2CC2CES2HAAC2HCJ2I\,IJLDH2MUHA2MEFPD2ITDGLAAT2AUTRES MtNtsTERES 23 SGG 4 DGBM-DCF-DGTCP-DGID-DGDDI 5/ BN-DAN-DLC 3 GCONB-DGCST-INSAE 3 BCP-CSM- IGAA-IGE 4 UAC-ENAI\'- FADESP 3 UP-FDSP 02 IONA I. /L- a-1 § r.) Valentin DJENONTIN-AGOSSOU
