@@ -1,0 +1,11 @@
+# Visas
+
+REPUBLIQUE DU BENIN Fr.t mlta-Ju.ttcê-Inv.it PRESIDENCE DE LA REPUBLIQUE Vu Vu DECRET N'2015.038 DU 02 FEVRIER 2015 portant création, organisation et fonctionnement du Comité National de Lutte contre le péril Animalier en Zone Aéroportuaire.
+LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, GHEF DU GOUVERNEMENT, vu la loi n'90-32 du 11 décembre 1990 portant constitution de ra Répubrique du Bénin ;
+vu la loi n'2013-og du..29 août 2013 portant code de |aviation civire et commerciale en République du Bénin ;
+vu la convention de chicago du 07 décembre.1944 relative à l,Aviation civire lnternationale et ses annexes ;
+Vu Vu Vu Vu Vu Vu Vu Sur Le le règlement n'08/2013/cM/yFygA d-u. 26 septembre 2013 portant adoption du code communautaire de |Aviation civile oei Ètats membres o" i;uÊübe ; la proclamation, re 2g mars 2011 par ra cour constitutionneile, des résurtats définitifs de l'étection présidentieile Ou t a maÀ Zôt t ;
+le décret n" 2014-s12 du 20 août 2014 portant composition du Gouvernement ; le décret n"2012-i91 du 03 juiilet 2012frxanra structure type des Ministères ; le décret n" 2012-376 du 06 novembre 2012 portant attributions, organisation et fonctionnement du Ministère des Travaux püutics et des Transpo,t;l -' le décret n"201242g du 06.no.vembrezo12 portant attributions, organisation et fonctionnement du Ministère de |rntérieur, de ra'sécurité pubrique et des curtes ; le décret n" 2014-782 du 31.dé.cembre 2014 portant attributions, organisation et fonctionnement du Ministère de |urbanisme, oe't,Èaoitat et de |Assainissement ; le décret n" 2012-541 du 'r7 décembre 2012 portant attributions, organisation et fonctionnement du Ministère de lAgricurturei oe IErevage àtàà'r" Èà"ÀË ; le décret n" 2004-598 du 29 octobre 2004 portant approbation des statuts de l'Agence Nationale de l,Aviation Civile (ANAô) ;
+proposition du Ministre des Travaux publics et des Transports ;
+Conseil des Ministres entendu en sa séance du 21 janvier 2015, sh Article ler: En application des dispositions de l'article 156 de la Loi portant code de l'Aviation civire et comlelgia-le-'en nepuorique du Bénin, ir est créé un comité Nationat de Lutte contre te péritAnimatiàiiôll-iÈnl.
+d, cNtLËÂ:é"ent décret précise res attributions, r'organisation et re fonctionnement
