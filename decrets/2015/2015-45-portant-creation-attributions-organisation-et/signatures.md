@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le oe fe Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr Bo iYAYI Le lVinistre de la Défense Nationale. Le Minis e I'Economie, des Finances et des P rammes de Dénationalisation, # R héo hile Y U Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, e ENON N-A SOU Komi K UTCHE Le Ministre de l'lntérieur, de la Sécurité Publique et des Cultes, Simplice Dossou CODJO Le Ministre des Travaux Publics et des Transports, Natondé AKE Amoliations: PR6 ANo cs2 cc2 cES2 Halc 2 scc 4 MTpr z MEFpD 2 AUTRES MtNrsrEREs 2s DGBM-ocF- DGTCP-DGID-DGDDI 5 BN-OAN-DLC 3 GCONB-DGCSTTTNSAE-|GE 4 BCP-CSN-|cAA 3 UAC-ENAM-FAOESP 4 UNtPAR-FDSp 2 coMpAGNrEs AERTENNES 20 1 ASECNA I JoRB I. Llr eAs fâG
