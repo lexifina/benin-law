@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à CotonOU, le 09 f evrler 2015 Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, Dr Boni YAYI.- Le Ministre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de l'Extérieur, N ssirou B IFARI.- Le Garde des Sceaux, tvlinistre de la Justice, de la Législation et des Droits de l'Homme, n DJENON OSSOU.- auEt!ÀILg!§ : pR 6 AN 4 CC 2CS2 HAAC 2 CES 2 HAC 2 HCJ 2 GS/MJLDH 2 MAETAFBE 2 AUTRES MINISTERES 24 DGBM- 6ôF- oc,rcp- ocro- Dcoot s BN-DAN-DLC 3 GcoNB-DGcsr-TNSAE-lcE 4 BcP-csN -IGAA 3 UAC-ENAM-FADESP 3 UNIPAR- FDSP 02 TNTERESSE zJoast. //i é>/' oh
