@@ -1,0 +1,14 @@
+# Visas
+
+APJB REPUBLIOUE DU BENIN Fr.le.nité-Justice Tr.voi PRESIDENCE DE LA REPUBLIQUE DECRET N' 2OI5.O5O DU 09 FEVRIER 2OI5 portant agrément de l'établissement "Centrale Graphique et Papetière" au régime "A" du Code des lnvestissements, pour le projet d'installation d'une unité de fabrication d'emballages en carton à Akpakpa (Cotonou).
+LE PRESIDENT DE LA REPUBLIOUE, GHEF DE L'ETAT, CHEF DU GOUVERNEMENT, vu Ia loi n. 90-32 du 11 décembre 1990 portant Constitution de la République du Bénin ; Vu la loi n'90-002 du 09 mai 1990 portant Code des lnvestissements ;
+Vu la Loi n" 90-033 du 24 décembre 1990 modifiant les articles 34, 41 , 43, 47 ' 49' 51 , 59' 62 el74 de la Loi n' 90-002 du 09 mai 1990 portant Code des lnvestissements ; Vu l'Ordonnance n" 2008-04 du 28 juillet 2008 portant modification des articles 11 et 33 de la loi n" 90-002 du 09 mai 1990 portant Code des lnvestissements et instituant, par adjonction des articles 47-1 à 47-3,|e régime "D" relatif aux investissements lourds ; Vu l'Ordonnance n" 2008-06 du 05 novembre 2008 portant modification des articles 11 nouveau, 33 nouveau, 47-1 et 47-2 de la loi n' 90-002 du 09 mai 1990 portant Code des lnvestissements, telle que modifiée par l'ordonnance n" 2008-04 du 28 juillet 2008 et instituant, par adjonction des articles 47-4 à 47-8 le régime "E" relatif aux investissements structurants ;
+Vu la proclamation, le 29 mars 2011 par la Cour Constitutionnelle, des résultats définitifs de l'élection présidentielle du '13 mars 201 1 ;
+vu le décret n 2014-512 du 20 août 2014 portant composition du Gouvernement ; Vu le décret n' 2012-191 du 03 juillet 2012 fixant la structure-type des Ministères ; Vu le décret n' 2012-544 du 17 décembre 2012 portant attributions, organisation et fonctionnement du Ministère du Développement, de l'Analyse Economique et de la Prospective ;
+Vu le décret n'98-298 du 20 juillet 1998 portant création du Centre de Promotion des lnvestissements (CPl) et approbation de ses statuts ;
+Vu le décret n'98-453 du 08 octobre 1998 fixant les modalités d'application de la loi n' 90-002 du 09 mai 1990 portant code des lnvestissements, modifiée par la loi n' 90- 033 du 24 décembre 1990;
+Sur proposition du Ministre du Développement, de I'Analyse Economique et de la Prospective, après avis de la Commission Technique des lnvestissements en ses sessions du 02 novembre 2012 el26 mars 2013 ;
+Le Conseil des Ministres entendu en sa séance du 23 octobre 2014, î & D E G R E T E:
+Art!-u:': Le projet d'installation d'une unité de fabrication d'emballages en carton à Akpakpa (Cotonou), de l'établissement "Centrale Graphique et Papetière", est agréé au régime "A" du Code des lnvestissements, pour compter de la date de signature du présent décret pour:
+- une période de trente (30) mois, au cours de laquelle, l'établissement "centrale Graphique et Papetière" doit réaliser son programme d'investissement agréé ;
+- une période de cinq (5) ans pour I'exploitation.
