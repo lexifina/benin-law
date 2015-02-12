@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 12 f evrier 2015 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Ministre de l'Agriculture, de l'Elevage et de la Pêche, + Azi HADJ ISS Le Ministre de l'Economie, des Finances et des Programmes de Dénationalisation, Dr Boni YAYI Le Ministre du Développement, de l'Analyse Economique et de la Prospective, lA. de S U Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, lentin NTIN-A o -AGOSS Ministre intérimaire Ampliations: PR6 ANo cs2 cc2 cEs2 HAAC2sGG4 MAEP 2 MDAEP 2 MEFPD 2 GS/MJLDH 2 AUTRES MtItSTERES 23 DGBM-DCF-DGTCp-DGt-DGDDt 5 BN-DAN-DLC 3 cCONB-DGCST_|NSAE-tGE 4 JORB1. I ç Qh n DJEN
