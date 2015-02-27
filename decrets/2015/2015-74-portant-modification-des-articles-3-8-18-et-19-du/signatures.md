@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 27 lev r Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Ministre de l'Energie, des Recherches Pétrolières et Minières, de I'Eau et du Développ Energies Renou Bart ulinisÿe intérina.ire Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de I'Homme, Valentin DJENONTIN-AGOSSOU auEuÀILgl§:pR6 AN4 CS2 CC2 CES2 HAAC 2 HJC 2 T ECESRS 2 MCTTC2MEF2 AUTRES MINISTERES 24 SGG4 / DGBM-DCF-DGTCP-DGrD-OGDDI 5 BN-DAN-DLC 3 GCONB-DGCST-TNSAE 3 BCP-CSM-|GAA 3 UAC-ENAM-FADESP 3 UNIPAR// -FDSP 02 INTERSSES 9 JORB,- er Le Ministre de l'Economie, des Finances et des Programmes de Dénationalisation, E ables, lém D 0t§ Dr Boni YAYI Valentin DJENONTIN-AGOSSOU
