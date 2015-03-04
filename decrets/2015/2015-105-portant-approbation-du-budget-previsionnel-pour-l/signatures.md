@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 04 mar ( Le Président de la République, Chef de I'Etat, Chef du Gouvernement, Dr BoniYAYI Le Ministre de la Famille, des Affaires Sociales, de la Solidarité Nationale, des Handicapés et des Personnes de Troisième Age, Le Ministre de l' nomie, des Finances et des Programmes de Dénationalisation, à Naomi AZARIA HOUNHOUI Le Ministre du Développement, de I'Analyse Economique et de la Prospective, Marcel ain de SOUZA KomiKOUTCHE I I \ Ampliations : PR 6 - AN 4 - SGG 4 - CC 2 - HAAC 2 - CES 2 - MFASSNHPTA 4- MEFPD 4 - MDAEP 4- Autres Ministères 24 - FARIPH 4 - DGBM-DCF-DGTCP-DGIo-DGDDI 5-BN-DAN-DLC3-GCONB- DCCT-INSAE 03 - BCP-CSM.IGAA 3 - UAC.ENAM-FASEG S - ,JONE OI. / u -l' l€k UL I
