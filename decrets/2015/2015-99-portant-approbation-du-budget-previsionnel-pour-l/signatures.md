@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 04 mars 2Ol5 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Ministre du Dével Economique e e Marcel at d Le Ministre de I'Economie, des Finances et des Programmes de Dénationalisation, ement, de l'Analyse a Prospective, UZA Le Ministre de la Décentralisation, de la Gouvernance Locale, de l'Administration et de l'Aménagement du Territoire, lsidore GNONLONFOUN 04) AMPLIATIONS : PR: 06;AN :04; CC: 04; CS:04; HAAC:01 ;CES:01;SGG: 04: MEFpD: 04; MDGLAAT: 04 ;MDAEP 04;AUTRES MINISTERES : 24; DGAE-DGCPE: 04; DGBM-DCF-DGTCP-DGID.DGDD| : 05 BN- DAN-DLC : 03 ; GCONB-DCCTIISAE : 03 ; BCP-CNS-|GAA : 03 ; UAC-ENAM-FADESP : 03 ; UN|pAR-FDSp : 02 i SOGEMA : 04; JORB : 01. // -<-l( /l' (r4C /'l Dr. BoniYAYI t I KomiKOUTCHE
