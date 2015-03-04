@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 04 mars 2075 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI I I Le Ministre de I'Economie, des Finances et des Programmes de Dénationalisation, Le Ministre de la Communication et des Technologies de l'lnformation et de la Communication, z'1) D KomiKOUTCHE Le Ministre du S U Développement, de I'Analyse Marcel Alai de SOUZA AuPI!AI!.9!§: PR4-AN 4-HcJ2 -cC2-cS2-cEs2-SGG2 HAAC 2 - MEoPoEPP-CAG 2 - McTtc 4- MEFPD4-MDAEP4-AutresMinistères24-DGB-CF-DGTCP-DGID.DGDDI-DGE6-IGF,I-BN-OAN.DLC3- GcoNG-occr-TNSAE 3 - Bcp-csM-tGAA 3 - UAo-ENEAM-FAoESP-FASEG 4-uNtpAR 1_ABp s- JîRB 1. I I dv§ Economique et de la Prospective,
