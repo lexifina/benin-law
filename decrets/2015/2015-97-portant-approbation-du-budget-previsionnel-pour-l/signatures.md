@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le oa Par le Président de la RéPublique, Chef de I'Etat, Chef du Gouvernement, ma rTs I de la Décentralisation, vernance Locale, de LeM de Gou l'Administration et de l'Aménagement du Territoire, lsidore GNONLON OU N Le Ministre du Développement, de l'Analyse Economique et de la ProsPective, Marce Alain de SOUZA Ampliations : PR :6-AN :4-CS :02-CC :02-CES :o2-HAAC :o2-MEFPD :o4-MDGLAAT :o4-MDAEP :04- ffiËr^"iâeé,àà-scê,oe-DGB-DCF-DGrcP-DGID-DGDDI-05-JoRB-01-ARCatves:ot f I p.^ Dr Boni YAYI Le Ministre de I'Economie, des Finances et des Programmes de Dénationalisation, KomiKOUTCHE
