@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 04 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, mars 2015 ,/ il // / Dr BoniYAY| Le Ministre du Dévelo ement, de l'Analyse Economique et de la Prospective, rcel A in de OU Le Ministre de l'Economie, des Finances et des Programmes de Dénationalisation, ,/\) KomiKOUTCHE TION: PR 6 AN 4 CS 2 CC Le Ministre de l'Environnement Chargé de la Gestion des Changements Climatiques, du Reboisement et de la Protection des Ressources Naturelles et Forestières, AMPL 2 CES 2 HAAC 2 MECGCCR PRNF 4 MEFPD 4 MDAEP 4 5 CENAGREF 2 BN-OAN-DLC 3 UNIPAR-FDSP Z JONA T./ ),2 AUTRES MINISTERES 24 SGG 4 DGB-DCF-DGTCP.DGIO-DGDDI , GCONB- DCCT- INSAE 3 BCP-CSM-IGAA 3 UAC.ENAM.FADESP 3 eb RaphaëIEDOU è
