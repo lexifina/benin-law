@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le ars 2Ol 5 Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, Le Ministre de I'Economie, des Finances et des Programmes de Dénationalisation, Ministre de l'Environnement Chargé de la Gestion des Changements Climatiques, du Reboisement et de la Protection des R rces Naturelles et Forestières, Le Ministre du Développement, de I'Analyse Economique et de la Prospective, lai d ZA C-.qr È &Et!ÀI!.QIi§:PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 HCJ 2 MEFPD 2 MÉCGCCRPRNF 2 MDAEP 2 AUTRES MTNTSTERES 24 SGG 4 DGBM-DCF-DGTCP-DGIDJDGDDI 5 BN-DAN-DLC3 INSAE-lGE 4 BCP-CSM- |GAA 3 UAC-ENAM-FADESP 3 UNTPAR-FDSP 02 )ORB 1.- I /T/ d§ / Dr BoniYAY| KomiKOUTCHE Raphaël EDOU
