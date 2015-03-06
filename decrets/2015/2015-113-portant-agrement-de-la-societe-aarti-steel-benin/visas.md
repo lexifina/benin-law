@@ -1,0 +1,16 @@
+# Visas
+
+APJB REPUBLIQUE DU BENIN Fr.t.rnlté-Justico'Trâvil PRESIDENCE DE LA REPUBLIQUE Vu DECRET N'2015-113 DU 06 MARS 2015 Dortant aerément de ta société "AARTI STEEL ieenin)" ilRL u, régime "8" du Code des investissements, pour [e projet d'instatlation d'une unité industrietle de fabrication de fer à béton, de tôtes ondutées gatvanisées et de tôtes noires à Houtènou, PK '13 route de Porto-Novo dans ta commune de Sèmè'Podji.
+Vu Vu LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, GHEF DU GOUVERNEMENT' ta toi n'90-032 du 1'l décembre 1990 portant constitution de [a République du Bénin;
+ta toi n' 90-002 du 09 mai 1990 portant Code des lnvestissements ;
+ta toi n. 90-033 du 24 décembre 1990 modifiant tes artictes 34,41 ,43' 47' 49' 51 ' 59, 62 et 74 de ta toi n' 90-002 du 09 mai 1990 portant code des lnvestissements ; t,ordonnance n' 2008-04 du 28 juittet 2008 portant modification des articles'l'l et 33 de ta toi n" 90-002 du 09 mai 1990 portant code des lnvestissements et instituant, par adjonction des articles 47-1 à 47-3, te régime "D" retatif aux investissements tourds ;
+l'ordonnance n' 2008-06 du 05 novembre 2008 portant modification des artictes 11 nàrruur, 33 nouveau, 47-1 et 47-2 de ta toi n' 90-002 du 09 mai 1990 portant Code àes lnrestissements, tette que modifiée par l'Ordonnance n " 2008-04 du 28 juittet iôôa "t instituant, par adjonction des artictes 47-4 à 47'8 [e régime "E" retatif aux investissements structurants ;
+[a oroctamation, te 29 mars 201 1 par ta cour constitutionnelte, des résultats définitifs de t'étection présidentiette du 13 mars 201 1 ;
+te décret n"2014-512 du 20 aoÛt 2014 portant composition du Gouvernement ; te décret n" 2012-191du 03 juittet 2012 fixant [a structure-type des Ministères ; te décret n' 2012-544 du 17 décembre 2017 portant attributions, organisation et fonctionnement du Ministère du Dévetoppement, de t'Anatyse Economique et de [a Prospective;
+te décret n' 98-298 du 20 juittet 1998 portant création du centre de Promotion des lnvestissements (CPl) et approbation de ses statuts;
+te décret n' 98-453 du 08 octobre 1998 fixant tes modatités d'apptication de [a loi n. so-ooz du 09 mai 1990 portant code des lnvestissements, modifiée par [a toi n' 90-033 du 24 décembre 1990 ;
+Vu Vu Vu Vu Vu Vu Vu Vu sur è DroDosition du Ministre du Dévetoppement, de t'Anatyse Economique et de [a 'prospective, après avis de ta Commission Tephnique des lnvestissements en ses sessions des 25 octobre 2013 et 17 juin 2014 ; I /ç Le Consei[ des Ministres entendu en sa séance du 13 décembre 2015, D E G R E T E:
+&Egg-l:' : Le projet d'instattation d'une unité industrietle de fabrication de fer à béion, de tôtes ondutées gatvanisées et de tôles noires à Houtènou, PK 13 route de Porto-Novo dans [a commune de sèmè-Podji, de ta société "AARTI STEEL (Bénin)" SARL, est agréé au régime "8" du Code des lnvestissements, pour compter de [a date de signature du présent décret pour :
+- une période de trente (30) mois, au cours de laquette, ta société "AARTI STEEL (Bénin)" SARL doit réatiser son programme d'i nvestissement agréé;
+- une période de cinq (5) ans pour ['exptoitation.
+Articte 2: L'activité, pour laquette [e régime "B" est octroyé, se rapporte exctusivement à ta fabrication de fer à béton, de tôtes ondutées gatvanisées et de tôtes noires'
