@@ -1,0 +1,8 @@
+# Visas
+
+AECK/ REPUBLIOUE DU BENIN Fnt mltaJurdclYEv.ll PRESIDENCE DE LA REPUBLIQUE DECRET N" 2015-107 DU 06 MARS 2015 portant attributions, organisation et fonctionnement de l'Agence de Réhabilitation de la ville de Porto-Novo (ARPN).
+Vu Vu LE PRESIDENT DE LA REPUBLIQUE, GHEF DE L'ETAT, GHEF DU GOUVERNEMENT, la loi n' 90-32 du 11 décembre 1990 portant Constitution de la République du Bénin ; la loi n'94-009 du 28 juillet '1994, portant création, organisation et fonctionnement des offices à caractères social, culturel et scientifique ;
+la proclamation, le 29 mars 20'1 '1 par la cour constitutionnelle des résultats définitifs de l'élection présidentielle du 13 mars 201 1 ;
+le décret n"2014-512 du 20 août 20'14 portant composition du Gouvernement ; le décret n" 2012-191 du 03 juillet 2012fixant la structure{ype des Ministères ; le décret n" 2014-782 du 31 décembre 2014 portant attributions, organisation et fonctionnement du Ministère de l'Urbanisme, de l'Habitat et de l'Assainissement ; Le décret n'96-459 du 18 octobre 1996, portant création, organisation, attributions et fonctionnement de la structure chargée de l'élaboration et de la mise en æuvre du projet « Programme spécial de Réhabilitation de la ville de porto-Novo » et le décret n'2004-427 du 04 août 2004|e modifiant;
+proposition du Ministre de l'Urbanisme, de I'Habitat et de l'Assainissement ; Conseil des Ministres entendu en ses séances des 03, 04 et 10 février 201S, Vu Vu Vu Vu Vu Sur Le Novo » (ARPN), ci-après d I'urbanisme et de l'habitat.r,l DECRETE:
+CHAPITRE I : DES DISPOSITI ONS GENERALES SECTtoN 1 : DE LA DENOMINATION ET DE L,OBJET

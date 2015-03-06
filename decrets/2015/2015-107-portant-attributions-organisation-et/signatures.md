@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 06 ma S Par le Président de la République' / Chef de I'Etat, Chef du Gouvernement, /.
+/ ctÿ Dr BoniYAY| Le Ministre d'Etat Chargé de l'Enseignement Supérieur et de la Recherche Scientifique, Francois Adebavo ABIOLA Le Garde des Sceaux, Ministre de la Le Ministre de l'Economie, des Finances et des Programmes de Dén al ation, Le Ministre des Travaux Publics et des Transports, Justice, de la Législation et es Droits de l'Hom Valentin DJENONTIN -A SSOU -â e N n AKE c n SOSSO TO a Le Ministre de la Décentralisation, de a ouvernance ca l'Administration et de I'Aménagement du Territoire, lsidore GNONLO FOUN AMPLIATIONS : PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 HCJ 2 MECESRS 2 MJLDH 2 MEFPD 2 MTPT 2 üunÂ7üoclnnr 2 Autres Ministères 21 SGG 4 DGBM-DCF-DGTCP-DGID-DGDDI 5 BN-DÊN-DLC 3 GCONB-DGCST-INSAE 3 BCP-CSM-IGAA-IGE 4 UAC-ENAM-FADESP 3 UP-FDSP2 JORB 1, h /tJ- I (h t KomiKOUTCHE Le Ministre de l'Urbanisme, de l'Habitat et de l'Assainissement,
