@@ -1,0 +1,5 @@
+# Visas
+
+REPUBLIQUE DU BENIN tr.ternlté-JurUc..lràvâil PRESIDENCE DE LA REPUBLIQUE LOt N " 20'15-14 DU 20 MARS 2015 portant autorisation de ratification de l'accord de prêt signé à Washington, [e 10 octobre 2014, entre ta Répubtique du Bénin et [a Banque Arabe pour [e Dévetoppement Economique en Afrique (BADEA), dans [e cadre du financement additionnel du projet de protection de [a côte à t'Est de [a vilte de Cotonou.
+L'Assembtée Nationate a détibéré et adopté en sa séance du 12 mars 2015 ; Le Président de ta Répubtique promulgue [a loi dont [a teneur suit :
+Article 1u' : Est autorisée ta ratification, par te Président de ta Répubtique, de l'accord de prêt d'un montant de deux mittions (2 OO0 000) de dottars des Etats-Unis, soit un mittiard (1 OO0 000 000) de francs CFA environ, signé à Washington [e 10 octobre 2014, entre [a Répubtique du Bénin et [a Banque Àrabe pour [e Dévetoppement Economique en Afrique (BADEA), dans te cadre du financement additionnet du projet de protection de ta côte à ['Est de [a vitte de Cotonou.
