@@ -1,0 +1,5 @@
+# Signatures
+
+Fait à Cotonou, [e 20 mars 201 5.
+Par te Président de [a RéPubtique, Chef de t'Etat, Chef du Gouvernement, PRESIDENCE DE LA REPUBLIQUE Le Ministre de t'Economie, des Finances et des Programmes de Dénationatisation, LOI N" 2015-12 DU 20 MARS 2015 oortant autorisation de ratification de t'accord de prêt signé te 05 décembre 2014 par échange de lorrespôndances entre ta Répubtique du Bénin et [a Banquà d'lnvestissement et de Dévetoppement de [a CEDEAO (BIDC), dans [e cadre du financement partiet du Projet de réatisation des marchés de iavatou et de Gtazoué (PRMSG).
+t1' ê Christian SOSSOU UTO REPUBLIQUE DU BENIN FrôtGrnité_Juttic._Tr.v.il il I a Dr Boni YAYI Le Ministre de ['Urbanisme, de t'Habitat et de l'Assai nissement, EF Komi KOUTCHE Le Ministre de ta Décentralisation, de [a Gouvernance L*ate, de t'Administration et de ['Aménagement du Territoitê, G AMPLIATIONS: PR6-AN 4.CC2- CS 2 _ HAAC 2.CES2. HCJ 2 MEFPD 2 MUHA 2. MDGLAAT 2-AUTRES MINISTERES 24. SGG 4 - DGBM-DC BN-DAN.DLC. 3 - GCONB-DCCT-INSAE 3- BCP.CSN- IGAA 3- UAC.ENAM-FASJEP 3- UNIPAR-FDSP 2- JORB ].- &
