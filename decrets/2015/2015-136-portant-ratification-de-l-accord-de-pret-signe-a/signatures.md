@@ -1,0 +1,109 @@
+# Signatures
+
+Fait à Cotonou, [e 13 avril Par [e Président de [a Répubtique, Chef de t'Etat, Chef du Gouvernement, Le Ministre de ['Economie, des Finances et des Programmes de Dénationatisation, Le Ministre de ['Urbanisme, de t'Habitat et de ['Assainissement, As Christian SOSSOUH o AMPLIATIONS: PR 6. AN 4-CC2. CS 2- HAAC 2 - CES 2. HCJ 2 MEFPD 2 MUHA 2- AUTRES INISTERES 25 - SGG 4 - DGBM-DCF.DGIC P-DGID.DGDDI ENAM-FASJEP 3- UNIPAR.FDSP 2- JORB I..
+N.DAN-DLC- 3 - GCON B-DCCT-INSAE 3. BCP-CS GAA 3- UAC- Dr Boni YAYI Komi KOUTCHE /TCCONI) DE PIID'I' ÀI)DT'I'IONNtrI, Irll I) lrll (.T'TON I}IJ COTI' §T DI' I,.1 VILLtr Dll ofr IrN'I'IlL LÀ tt[PuÛr.IQfrr] Df' IlIiNrN I'T Lrt RÀNQUD rlll.lÜE pOfill LE DIivl'LOpI'IiDIBNI ECONOIIIQUD RN ÀrnlQUE nr[ DATD nU 4.9..o(-l'ollnli 20I I {) t \ BA = mè ;
+I Accord en <iate du .y''!)'.octobre 2014, entre la République du Bénin (ci-après dénommé i'Emprunteur) et Ia Banque Arabe pour le Développement Economique en Afrique (ci-après dénommée h BADEA).
+ATTENDU QUE A) La BADEA a, envertu de l'Accord de Prêt en date du 10 |uillet 2007, accordé à l'Emprunteur un Prêt de dix millions de dollars ($ 10.000. 000) ci-après désigné le "Prêt initial", pour contribuer au financement du Projet décrit dans l'Annexe " II" audit Accord de Prêt (le Projet Initial).
+ATTENDU QUE B) L'Emprunteur a demandé à la BADEA de lui accorder un Prêt additionnel pour contribuer au financement du Projet décrit dans I'Armexe "II" au prés..-..rt Accord qui vicnt en cornplément du Prêt Initial; ATTENDU QUE C) L'Emprunteur a demandé au Fonds Saoudien de Développement (claprès dénommé le FSD) de contribuer au financement des travaux complérnentaires à réaliser dans le cadre du Projet et que le FSD envisage d'accorder à cette fin un prêt d'un m ontant équivalant à six millions de dollars environ ($ 6.000.000);
+AT'IENDU QUE D) L'Emprunteur a demandé au Fonds Koweitien pour le Développement Economique Arabe (ci-après dénommé le FKDEA) de conkibuer au financement du Projet et que le FKDEA se PIoPose d,accorder à cette fin un prêt d'un montant équivalent à clix millions de dollars environ ($ 10.000'000);
+ATTENDU QUE E) L'Emprunteur a demandé au , Fonds de l'Organisation des Pays Exportateurs du Pétrole pour le dévbloppement international (ci-après dénommé I'OFID) de cot',.tribuer au finartcement des travaux complémentaires à réaliser dans le caclre du Projet et:lue I'OFID envlsa eo LL ffi C BADEA corder à cette fin un prêt cl'ttn montant équivaidnt à trois et8 environ (S 3.000.000);
+C o.ô m7 m ÿ V3 è rt('coltD_ I)D l!'IluI' a ATTENDU QUE F) L'objectif dt' Ia BADEA est de promouvoir le développement économique des pays d'Afrique dans un esprit de solidarité et d'intérêt mutuel et de rerüorcer ainsi les liens qui unissent les Etats Africains et la Nation Arabe;
+ATTENDU QUE G) La BADEA est convaincue de I'importance et de l'utilité dudit Projet pour le développemetrt de l'économie de l'Emprunteur; ATTENDU QUE H) La BADEA a accepté, compte tenu de ce qui précède, d'accorder à l'Emprunteur un prêt aux conditions stipulées dans le présent Accord;
+PAR CES MOUFS,les Parties au présent Accord sont convenues de ce qui suit:
+) BADEA .lnï't('r,t,l Ilrrrlt!.lR C()NDI'fIONS (; ri,\- I,lIt,t l,I,l Section 1.01 Les Parties au présent Accord acceptent toutes les dispositions des Conditions Générales des Accords de Prêt et de Garantie de la BADEA, ci-jointes, en date du 28 octobre 1979, tellres qu'amendées à la date du présent Accord, (ci-après dénommées les Conditions Générales), en leur reconnaissant la même forc,: et les mêmes effets que si elles étaient incorporées au présent Accord.
+Section 1.02 A moins que le contexte ne requière une interprétation différente, les termes et expressions définis dans les Conditions Générales et dans le Préambule au présent Accord ont, chaque fois qu'ils sont employés dans le présent Accord, les significations figurant dans les Conditions Générales et dars ledit Préambule. En ouhe, les tern.res ci-après ont les significations suivantes:
+a) "MUHA" signifie le Ministère de l'Urbanisme, de l'Habitat, et de l'Assainissement de I'Emprunteur;
+b) 'DLEC' signifie la Direction de la Lutte contre I'Erosion Côtière qui relève du " MUHA";
+c) "CISP" Comité krterministériel chargé du Suivi du Proje!
+d) "CEP" désigne la Cellule d'Exécution c-lu Plojet créée initialement au sein de la DLEC pour le suivi de l'er:écution de la première phase du Projet.
+mz t!v I)[.r ,\ .u!'r'rr.r.ri l, r. t,t tDllt.,'t' Section 2.01 La BADEA accepte de prêter à l'Emprunteur/ aux conditions stipulées ott visées dans le présent Accord, un montant de deux millions de dollars (ti 2.000.000).
+Section 2.02 Le montant du Prêt l)eut êh'e retiré tlrr compte du Prêt au titre des dépenses effectuées ou, si la B,\DEA y consent, des dépenses à effectuer, pour régler le cott raisonnable dcs biens et services nécessaires à I'exécution du Projet et qui doivent être financés au moyen du Prêt, tels qu'ils sont décrits dans l'Annexe "A" au présent Accord, y compris les modilications qui pourraient être ;ipportées à ladite Antrexe d'un commun accord entre l'Emprunteur et la BADEA.
+Section 2.03 A moins que la BADEA n'en convienne autrement, les biens et services nécessaires à l'exécuüon du I'rojet et financés au moyen du Prêt sont acquis conformément aux dispositions de l'Annexe "8" au présent Accord. Section 2.04 La date de clôture est fixée au 31 décembre 2015 ou à toute autre date postérieure fixée par la BADEA et notiJiée à l'Enlprunteur dans les meilleurs délais.
+Section 2.05 L'Emprunteur versc des intérêts au taux d'un pour cent (1%) l'an sur le r-..ontant du Prêt retiré et non encore remboursé. Section 2.06 Les intérêts et les commissions éventuelles sont payables semestriellement. Les dates de pa1'ement sont fixées en fonction du premier jour du mois qui suit la date du prt'mier décaissement du compte du Prêt.
+Section 2.07 L'Emprunteur rembourse le principal du Prêt en quarante(40)versements semestriels, conformément au tableau d'amortissement figurant à l'Annexe ''I" au présent Accord après expiration d'une période de grâce de dix (10) ans qui court à partir du prc.mier jorrr du mois suivant la date isord ADEA vx {zmz t!e o du ment du compte du Prêt être financés au moyen des confiance. Ladite assurance 1'acquisition, le transPort et d'utilisation ou d'installation commercial; toute indemnité d Section 3.06 L'Emprunteur s'engage à assurer, ou à prendre toutes dispositions nécessaires pour faire assurer, tous ies biens r qui doivent clignes de conlportent s fonds du Prê couvre tous la livraison et pour tou ue au titre de t auprès d'a les risques 'leur lieu à l'usage ble en une re réparer monna AI) I,, I ! ot!ÿ mz ens o B les ent utilisable par 1'EmPrunte AIITICLE III EXRCI]IION DU I'IIOJET Section 3.01 L'Emprunteur exécute le Projet, par l'intermédiaire du "MUHA" (DLEC), avec la diligence et l'efficacité requises et selon les méthodes administratives, financières et techrriques appropriées; il foumit, au fur et à mesure des besoins, les fonds, installations, services et alltres ressources nécessaires à l'exécution du Projet.
+Section 3.02 Pour l'exécution ct le suivi du Projet, l'Emprunteur s'engage à ce que la CEP continue d'assuter ses fonctions durant toute la période d'exécution du Projet.
+Section 3.03 Pour l'exécution et la surveillance du Projet, I'Emprunteur s'assure les services d'experts et de consultants dont les qualificaüons, I'expérience, Ie mandat et les conditions cl'emploi sont jugés satisfaisants par la BADEA.
+Section 3.04 L'Emprunteur soumet à la BADEA, Pour approbation. le projet de programme d'exéct rtion du Projet ainsi que toutes les modifications importantes qui pourraient y êtle ultéIieulement apportées avec tous les détails que la BADEA peut demander.
+Section 3.05 Outre les fonds du Prêt et les fonds visés dans les Attendus (C), (D) et (E) du présent Accord, l'Emprunteur fournit, au fur et à mesure des besoins, tous les autres fonds nécessaires à I'exécution du Projet (y compris les fonds qui pourraient êtrt: nécessaires pour couvrir tout dépassement de cott par râpport au cott estimatif du Plojet à la date de signature du présent Accord); tous ces fonds doivent être fournis à des conditions jugées satisfaisantes par la BADEA.
+Section 3. 07 L'Emprunteur (i) tient ou fait tenir les écritures nécessaires pour identifier les biens financés au moyen des fonds du Prêt et en justifier I'emploi dans le cadre du Projet, potrr suivre l'avancement du Projet et son cott d'exécution et Pour enregistrer de façon réguiière, conJormément aux principes comptables généralement admis, lt's opérations, les ressources et les dépenses, en ce qui conceme le Projet, ies services et organismes de I'Emprunteur chargés de l'exécution de tout ou partie clu Projeç (ii) donne aux représentants accrédités de la BADEA toute possibilité raisonnable d'effectuer des visites pour des fins se rapportant au Prêt et d'inspecter le Projet, les biens et tous documents et écritures y afférents; et (iii) fournit à la BADEA tous renseignements que la BADEA peut raisotrnablement demander en ce qui conceme le Projet et son coût d'exécution, les dépenses effectuées au moyen des fonds du Prêt et les biens financés au moyen tlesdits fonds.
+Section 3.08 L'Emprunteur prend, ou veille à ce que soit prise, toute mesure nécessaire en vue d'exécuter ltl Projet et ne prend, ni n'autorise que soit prise, aucune mesure de nature à empêcher ou à compromettre l'exécution du Projet ou l'une quelconque dcs dispositions du présent Accord de Prêt.
+Section 3.09 L'Emprurteur s'engage à fournir à la BADEA (i) des rapports trimestriels, dans un délai de 30 jotrrs à compter tle la fin de chaque trimestre de l'année civile, sur l'exécution tlu Projet, dont Ie contenu et les détails sont jugés satisfaisants P la BADIIA; (ii) dans les six mois suivant l'achèvement du Projet, u1l rapPort détaill(i sur l'exécution et les premières activités d'exploitation du Projet, son cott, les avanlages qui en découlent et en découleront et la réalisation des objectifs du I'rêt.
+(!o orrllc o A DEA ê mz ilItTl('Lli I l' I)I§P()SI ONS llrllt'f I{]T:T,IEIIIiS Section 4.01 L'Emprunteur s't'ngage à entretenir Ie Projet conformément aux méthodes techniques, financières et administratives appropriées et à affecter, à cette fin, des Inontants suffisants à son budget annuel d'entretien.
+L'Emprunteur s'ongage à ce qtre la CISP continue d'assurer le suivi du Projet Section 4.03 L'Emprunteur s'el-rgage à prendre toutes les mesures nécessaires et appropriées pour lutter conke les effets néfastes éventuels du Projet sur l'environnement.
+Section 4.04 L'Emprunteur prend et maintient, auprès d'assureurs dignes de confiance, urre assurance contre tous risques liés au Projet pour tous montants conformes à l'usage comrnercial.
+Section 4.05 L'Emprunteur s'engage à ce que la DLEC assure à son personnel une formation continue privilégiant le thème de la lutbe contre l'érosion et la protection de I'environnement, à même de Perrnettre à Ia DLEC de faire face à l'expansion croissante de ses responsabilités.
+Section 4.06 L'Emprulteur s'assure les services d'un personnel qualifié et expérimenté nécessaire à un foncti,:nnement efficace de la CEP' Section 4.07 L'Emprunteur s'engage à prendre toutes les mesures nécessaires pour acquérir, en tant que de besoin, tous terrains et droits fonciers nécessaires à l'exécution du Projet.
+Section 4.08 L'Emprunteur s'engage,, à mobiliser les ressources budgétaires nécessaires à la gestion et à l'entretien des infrastructures mises en place dans le cadre du Projet.
+Section 4.09 L'Emprunteur s'err6;age à (i) tenir ou faire tenir des comptabilités séparées pour le Proieü (ii) fa ire vér'ifier chaque année, par des auditeurs indépendants de compétence recor1ltue, conformétnent aux principes lement admis, lesdits cornptes séparés; (iii) foumir à la meilleurs délais et, dans tous les cas, sir rnois au plus tard d B e l'aud Section 4.02 2) mz après la fin de l'amrée fiscale, (A) des copies certiJiées conformes desdits comptes audités et (B) un rapport desdits aud iteurs dont le contenu et les détails sont jugés satisfaisants par la BADEA et (iv) foumir à la BADEA tous autres renseignements concernant lesdits comptes scparés et leur audit que la BADEA peut raisonnablement demander.
+Mlc nl? I Section 5.01 Aux fins d'applir:aüon de la Sc'ction (8.02) des Conditions Générales, les faits ci-après sont rl:gaiement spécifiés conformément aux disposiüons du Paragraphe (1-g) de ladite Section:
+(i) Sous réserve des dispositions de l'alinéa (ii) de la présente Section:
+(A) Le droit de I'Emprunteur de retirer les fonds provenant de tout autre prêt ou don accordé à l'Empn:lteur pour le financement du Projet a été suspendu ou annulé, en tout ou en partie, ou il y a été mis fin, en tout ou en partie, conformément aux dispositions de l'accord octroyant ledit prêt ou don; ou (B) Ce prêt est dû et exigible avant l'échéance stipulée dans l'accord afférent audit prêt.
+(ii) L'alinéa (i) de la présente Section n'est pas applicable si l'Emprunteur établit, à la satisfaction de la BADEA, a) que ladite suspension, annulatiory terrninaison ou exigibilité anticiPée n'est pas due à un manquentent aux obligations lui incombant en verhr dudit accord, et (b) qu'il peut obterrir auprès d'aukes sources des fonds suffisants pour la réalisation du Projet à des conditions permettant d'honorer les obligations qui lui incombent en vertu du préserrt Accord.
+Section 5.02 Aux fins d'application de la Section (9.01) des Conditions Générales, les faits ci-aPrès sont cgalement spécifiés conformément aux dispositions du paragraphe (g) de laditc Se'ction, à savoir: le fait spécifié à l'alinéa (i) (B) de la section (5.01) du présent Accord est survenu/ sous réserve des dis de i'alinéa (ii) de ladite Secti,rn.
+iIIITICLE "l SI]SPtrNSIOT trT EXIGIIII T.I!]E-!.UIICTI'!'E MIC ,IIITI('I,I] \ I I)il'I'Ii II IiNTntiIi VIGIIfI Section 6.01 Au sens de 1a Se'ction (12.01) O) des Conditions Générales, l'entrée en vigueur de l'Accord dt: Prêt est également subordonnée à la condition suivante :
+. La confirmation du FSD, dtr FKDEA et de I'OFID de leur participation au financement tlu projet Section 6.02 L'Accord de Prêt entre en vigueur à la date à laquelle la BADEA envoie, par fax ou par E-mail, à l'Emprunteur noüfication de son acceptation des preuves foumies conformément à Ia Section (12.01) des Conditions Générales.
+Section 6.03 La date du 30 avril 20L5 est spécifiée aux fins d'application de la Section (12.04) des Conditions Générales.
+m IIITT I E VIT IIEIDIItr§trNT ON I)I] I,' E}IP IlI fI,T'I'JTIII.ÀT) ITE§sBs Section 7. 01 Le Ministre de l'Economie, des Finances et les Programmes de Dénalionalisation est 1e Repr'ésentant de 1'Emprunteur aux fins d'application de 1a Section (11.03) des Conditions Générales- Section 7.02 L,es adresses ci-tlessous sont spécüiées aux fins d'application de ia Section (11.01) des Conditiorrs Générales:
+Pour la BADEA:
+La Banque Arabe pour le Développement Economique en Afrique B. P. 2640-Khartoum (11111) République du Soudan TéI.:
+Fax:
+E-mai1:
+(249 -183) 7 7 3 6 46 ol 7 7 37 09 (249 -183) 77 0600 ol 770498 badea@badea.or Pour I'Emprunteur Ministère de l'Economie, des Fin;rnces et des Programmes de Dénationalisation B.P 302 Cotonou Réoublioue du Bénirt Té1.: (»9) 21301337 /21314261 Fax: (229) 2130185L/213153s6 m2 En FOI DE eUOI, les parties au présent Accord, agissant par l'intermédiaire de leur Représentaat dtmenl autori le présent Accord "" ,"";;;;;:ÏÏÏ.ï^1Ï:*isé à cet effet, ont fait sisner dessus Le présenr o..*J:T :ffi.i j"i;:n:ïijrî,ffiïï:r,,l:
+texte français étant conforme au texte arabe qui seul fait foi.
+IléprrblitJur. rlrr Ili.rrin &v IDr. r.
+onri KOI'T'CIIE rll i rrislrc dc l'Jjr.orronrie. tles f,'irrt"rces e-l rlts lfro!;mmrnes elc llértai iorrtr I iso Lion Ilnnqrre .,lrtlrr. Jrorrr le I)ér'clopJrcnrt rrI li"orronrirFrr r.rr ;lfriqrre {t t.
+\ . I'orrsif lbr.thinr ,ll Bnssrrnr l'r.ésirk.rr l rlu ('orrscit rl'.Jklnrin isl r.rrI iorr t2 rtNNtrXt! "1" TAI|LEAU p'^_rr()IrT{§§EIIEIII PITOJET DD PIIO:]ECTION Dn Lr\ COTL IIST' DD LÀ VII,I,B DE COT() II (PIlET rTII TIITIO\-NIj I,I -Iléprrbli ltuc du I !q1r1i4;
+Versements R,,mboursement du principal en dollars "t.
+2.
+3.
+4.
+5.
+6.
+7.
+8.
+9.
+10.
+11.
+72.
+t.1- 74.
+15.
+'t6.
+17.
+18.
+19.
+20.
+27.
+22.
+23.
+24.
+25.
+27.
+29.
+30.
+31.
+33.
+34.
+35.
+36.
+37.
+38.
+45.000 46.000 46.000 46.000 46.000 46.000 47 .000 47.000 47.000 47 .000 48.000 .18.000 48.000 48.000 49.000 49.000 49.000 49.000 50.000 50.000 50,000 50.000 51.000 51.000 51.000 51.000 52.000 52.000 52.000 52.000 53.000 53.000 53.000 53.000 54.000 54.000 54.000 55.000 54.000 § o:
+C, tllc D§ 1!r BAI) rnz ANNtrXE -II" I)ESCITIPTION I)I' PnoJr{r' A. Les Obi ectifs du Proiet :
+Le projet a pour objectif la protection des infrastructures socioéconomiques à savoir les habitations, les écoles des missions diplomatiques, les centres commerci,rux, les hÔte1s, les aires de divertissement et les industries légères qui sont sitr-rées dans la zone menacée par l'érosion côtière à l'Est de Cotonou.
+B. Description et composantes du Proiet :
+Le projet se situe à l'Est de la vi1le de Cotonou. La zone du projet s'étend sur une longueur de 17 km entre le Port r\utonome de Cotonou et 1e PK 14 à l'Est de l'épi de Siafato, et couvre en partie les communes de Cotonou et de Sèmè-Kpodji.
+Le projet consiste en la réhabilitation de 7.5 km de la cÔte Est de Cotonou, et ce à travers, la construction de 7 épis en rochers de longueur variant entre 160 et 260 m,le remblaiement par environ 700 mil1e rnètres cubes de sable de la partie Ia plus sensible de la côte pour la protéger.
+Les composantes du projet comPrennent . Travaux de énie civil qui consistent en l'installation de chantier, la construction des épis ainsi qu'un revêternent de consolidation et le remblaiement en sable des cellules de plage.
+Services du consultant: Ces services comprennent la revue des études techniques, 1'élaboration ,-1es dossiers d'appels d'offres, la supervision et le contrôle des travaux.
+A ui à la CEP qui consiste en 1'acquisition des équipements, du mobilier de bureau et en [,'r prise en charge des frais de fonctionnement de la CEP Audit du proiet : qui consiste à recourir aux services d'un CONS our l'audit des comptes du Proiet ' DEA l5 scindé en deux Lots :
+Lot 1, comprend les travaux de génie civil des épis 5,6 et 7, les services de consultants pour ce lot et l'audit des comptes de l'ensemble du projet. Ce lot est financé en totalité par la BID.
+Lot 2, comprend les travaux de gérüe civil de réhabilitation de l'épi de Siafato, la construction des épis 1,, 2, 3 et 4, le remblaiement en sable des cellules de plage, le revêtement de la plage, les services du consultant de ce lot et l'appui à l'Unité d'Exécution du Projet. Ce lot est financé par la BADEA, le FSD, le FKDEA, I'OFID et le gouvernement.
+**************** L'achèvement du Projet est prévu potrr ie 31 décembre 20-15.
+Compte tenu du mode de financement de la BID "Istisn'a", le projet a été mz (A) (c) (D) (B) A moins que la BADEA n'en convienne autrement, le pourcentage de la contribuüàn de ia BADEA au financement des catégories ci-dessus mentiormées ne doit pas dépasser celui indiqué en face de chaque catégorie.
+La BADEA Peut, par voie de notification à l'Emprunteur, réaffecter tout montant relevalt de i'une quelconque des catégories L à 2, à une autre des catégories 1 à 2 dans la mesu re où ledit montant n'est plus nécessairè au règlement de dépenses effectuées au tihe de la première catégorie mais est nécessaire au règlr.ment de clépenses effectuées au titre de l'autre catégorie.
+Le retrait des fonds du prêt additionnt'l se fera, d'une part, au profit du gouvernement pour restituer les montants déjà réglés à i'entreprise et au Ionsultant; et à'autre Part, au profit de l'entreprise qui sera choisie pour le remblaiement en sable des celltrles cle plage et au consultant qui l6 ,,1r-\l,lXII << .l - BIE\I§ m § E M,{!,S I! EYrr.r..'I liln IilI NÀ'\ e E s E .I' .TTFE TION DIl IITII]'I'nLL!l!ÀDr.l Le tableau ci-dessous indique les c,rtégories de biens et services financés par le prêt, le montant du prL-1t affecté à chaque catégorie et le pourcentage de dépenses financées.
+Catégorie "/n de dépenses financées du coût total de la corl1 osante L. Travaux de Génie civil lot 2 705 000 4.1,% 1 295 000 .)J. J /o Total 2 000 000 montants affectés exprimés en dollars sera char du suivi de l'exécution de ( es travaux
+2. Services de consultants (lot 2) B;\ L) t7 ANNEXN'}I' A UI IIiN ET ErtvI('tr (A) A moins que la BADEA n en convit'nne autrement, (i) l'entreprise BOSKALIS-bv International continuera 1'achèvement de la construction des épis conformément au conhat et à ses avenants, (ii) pour le remblaiement en sable des ceilules de plage, la Société BOSKALIS-bv lnternational sera approchée par l'emprunteur pour une proposition de prix à étudier. A défaut d'accord avec BOSKALIS- bv lnternational, il sera procédé à un appel d'offres international ouvert; (iii) L'Ingénieur conseil ROCI IE-BAIRD-ECCO continuera la supervision de tous les travaux du projet y compris ies travaux de remblaiement en sable.
+(B) L'Emprunteur soumet à l'approbation préalable de la BADEA tous les contrats et ordres proposés pour l'acquisition des biens et services devant être financés au moyen du prêt.
+(C) L'Emprunteur enverra à ia BADEA les copies des documents des appels d'offres et il apportera auxdits documents les modi{ications que la BADEA pourra raisonnablemetrt clemander'.
+A la suite de la réception et de l'analyse des offres, l'Emprunteur présentera à la BADEA, (i) un rapport détaillé sur l'évaluation et la comparaison des offres reçues accolnpagné des recommandations concernant l'attribution des marchés pour l'approbalion desdites recom P 3m2 ÂDEA V1 +- oIfllC D (
