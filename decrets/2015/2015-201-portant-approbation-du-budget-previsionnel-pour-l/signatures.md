@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 13 avril 2ot5 Le Ministre de la Jeunesse, des Sports et des Loisirs, Le Ministre de l'Economie, des Finances et des Programmes de Dénationalisation, * Safiou lDRl SSOU AFFO KomiKOUTCHE Le Ministre du Développement, de l'Analyse Economique et de la ProsPective, Alai Marcel n de SOUZA AUeuA[!.o!§: PR 4-AN 4- HCJ 2-CC2-CS2-CES 2 - SGG 2 HAAC2-MECPDEPP-CAG2-MEFPD4- M.rS[86ÂÉpz-AutresMinistères24-DGB-CF-DGTCP-DGID-DGDDI-DGE6-lGFl-BN-DAN-DLC3-G'ONG- DccT.lNSAE3-BoP.CSM.|GAA3-UAo-ENEAM-FADESP-FASEG4-UNIPARl_FNDAJSLS_JoRB1'/ -/-' & Par le Président de la RéPublique, Chef de I'Etat, Chef du Gouvernement, Dr BoniYAY|
