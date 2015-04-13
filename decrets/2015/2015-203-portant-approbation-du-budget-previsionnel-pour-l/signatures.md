@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 13 avr Par le Président de la RéPublique, Chef de I'Etat, Chef du Gouvernement, Le lvlinistre de l'Economie, des Finances et des Programmes de Dénationalisation, Ma rce Alain de SOUZA Le Ministre de I'Economie Maritime et des lnfrastructures Portuaires, 14/ + KomiKOUTCHE Rufin Orou Nan NANSOUNON Dr Boni YAYI Le Ministre du Développement, de l'Analyse Economique et de la ProsPective, aMpLlaTtoNS : PR 4 - AN 4 - HCJ 2 - CC 2 - CS 2 - CES 2 - SGG 2 HAAC 2 - MEFPO 2 - MqtEI 2 MEMIP 2 ffi""rrrinisteÀ'iiloôâ-èr-ôèiclr'-oêro--oobbiooe6-lGFr -BN-DAN-DLc3,,GCoNG-Dccr-lNSAE3- Bcp-csM-rcAA 3 - uec-eueervr-ÉÀ6l§p'Ên§ec n - uNTPAR 1 - cNcB s - 'naa t /r /
