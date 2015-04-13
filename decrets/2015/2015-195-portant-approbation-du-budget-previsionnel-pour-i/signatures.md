@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à cotonou, le Chef de l'Etat, Chef du Gouvernement, 13 avr Le Ministre de l,Economie, des Finances et des programmes de Dénationalisation, DrBoniyAyt Le Ministre ou oevEjôii66iJe l'Analyse Economique et de la Prospective, H e BI B LA KomiKOUTCHE b lol J -Mic AMPLIATIONS:pR 6 AN 4 C::^C_C-_2 CES 2 HAAC 2HCJ.2MDAE' 2MCAAT 2MEF'D 2 Aukes Minisrères 24 sGG 4 0cau-ocr-o_c^rczocro-ôè'ôôis a*riân -o." 3 GCONB_DG...-TNSAE 3 BCp_ csM-lcAA-rGE 4 unc_eruau_reoesp à u-pliîsp"iri à;i V '//' / dK I ù\L MarcelA. de SOUZA Le Ministre de la Culture, de l,Alphabétisation, de l'Artisanat et du Tourisme,
