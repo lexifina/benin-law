@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 13 avril 2015 Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, Le Ministre de l'Economie, des Finances et des Programmes de Dénationalisation, Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, è Valentin DJENONTIN.AGO SSOU.- Le Ministre du Travail, de la Fonction Publique, de la Réforme Administrative et lnstitutionnelle, a TYAYA.- AUEIIAI!.9ÀI§-: PR 6, AN 4, cS 2, CC 2, cES 2, HAAC 2,HCJ 2, lvlFEPD 2, |\4JLDH 2 I\'4TFPRAI 2,, AUTRES I\,4INISTERES 25, SGG 4, IGE 3, DGBIVI-DCF-DGTCP-DGID-DGDDI 5, BN.D BCP.CSIVI-IGAA 3. UAC-ENAIV-FADESP 3, UNIPAR-FDSP 2, IGE 2, JORB 1, DLC 3, GCOMB-DGCST.INSAE 3, Dr BoniYAYI.- KomiKOUTCHE.- &
