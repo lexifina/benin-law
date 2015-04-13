@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à COtonou, le 13 avril Dr Bo iYAYI Le Ministre de l'Economie, des Finances et des Programmes de alisation, KomiKOUTCHE Le Ministre du Développement, de l'Analyse Economique et de la Prospective, ti ( Marcel ain de SOUZA Le Ministre de la Jeunesse, des Sports et des Lois Safiou ldri u AFF AMPLIATION: PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 HCJ 2 SGc 4 MJSL 2 MEFPD 2 MDAEP 2 AUTRES MTN|STERES 24 DGB-DCF-DGTCP-DGID-DGDD| 5 FNE 2 BN-DAN-DLp 3 GCONB- DCCT- TNSAE 3 BCP-CSM-IGAA 3 UAC-ENAM-FADESP 3 UNIPAR-FDSP 2JORB 1, I/ /- & Par le Président de la République, Chef de l'Etat, Chef du Gouvernement,
