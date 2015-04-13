@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 13 av i1 Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, Le ttlinistre de I'Economie lVlaritime et des lnfrastructures Portuaires, Le Ministre de l'Economie, des Finances et des Programmes de Dénationalisation, * Rufin Orou Nan NANSOUNON KomiKOUCTHE Le Ministre du Développement, de l'Analyse Economique et de la Prospective, Mar lA. de AMPLIATIONS: PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 |\4DAEP 4 MEMIP 4 |\4EFPD 4 AUTRES MINISTERES 24 SGG 4 DGAE-DGCPE 4 DGBM-DCF.DGTCP.DGID.D GDDI 5 BN-DAN.DLC 3 GCONB- DCCT-TNSAE-rGE 4 9pP-CSM-IGAA 3 UAC-ENEAM-ENAM-FASEG-FADESP 5 UNIPAR-FDSP 2 COBENAM 1 JORB 1. //L I @ Dr Boni YAYI
