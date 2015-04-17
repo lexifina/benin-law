@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 17 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr BoniYAY|.- Le Ministre d'Etat Chargé de l'Enseignement Supérieur et de la Recherche Scientifique, vril Francois Adebavo ABIOLA.- Le Ministre du Travail, de la Fonction Publique, de la Réforme Administrative et lnstitutionnelle, n4 bakar YAYA.- AMPLIATIONS: PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 HCJ Ministères 24 SGG 4 DGBM-DCF-DGTCP-DGID-DGDDI 5 BN CSM-IGAA.IGE 4 UAC-ENAM-FADESP 3 UP-FDSP 2 JORB 1 Le Ministre de l'Economie, des Finances et des Programmes de Dénationalisation, ,AT .-7) KomiKOUTCHE.- 2 MTFPRAI 2 IVIEFPD 2 MECESRS 2 Autres DLC 3 GCONB-DGCST-INSAE 3 BCP- #
