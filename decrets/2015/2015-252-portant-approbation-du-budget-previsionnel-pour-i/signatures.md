@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le oo mai 2Ol5 Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, Dr Bo Le Ministre de l'Economle, des Finances et des Programmes de Dénationalisation, iYAYI Le Ministre du Développement, de I'Analyse Economique et de la Prospective, L^...- r-ô KomiKOUTCHE Marcel A. de SOUZA Le Ministre de I'Economie Maritime et des lnfrastructures Portuaires Rufin Orou Na NANSOUNON AMPLIATIONS:PR 6 AN 4 CS 2 CC 2CË.52 HAAC 2 HCJ 2 MDAEP 2 MEFPD 2 MEMtp 2 Autres Ministères 24 SGG 4 DGBM-DCF-DGTCP-DclD-DGDDt 5 BN-DAN-DLC 3 GCONB-DGCST-|NSAE 3 BCp- CSM-IGAA-IGE 4 UAC.ENAIVI-FADESP 3 UP.FDSP2 JORB 1 tru & I ÿ
