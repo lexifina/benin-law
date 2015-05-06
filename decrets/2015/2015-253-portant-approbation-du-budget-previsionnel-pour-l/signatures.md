@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le oo I Par le Président de la RéPublique' Chef de l'Etat, Chef du Gouvernement, Le Ministre de I'Economie, des Finances et des Programmes de Dénationalisation' Dr onl YAY Le Ministre du DéveloPPement, de l'Analyse Economique et de la ProsPective, ^- Koml OUTCH E Marcel Alain de SOUZA Le Ministre de la Jeunesse, des Sports et des Loisirs' fio ld AF AMPLIATIONS : PR 4 -AN 4 - HCJ 2 - CC 2 - Cs 2 - S2-SGG2 HAAC2-MDAEP2- Autres Ministères 24 - DGB.CF-DGTCP-DGID-DGDDI'DG E6_IGF1-BN-DAN.DLC3 BCP.CSM-IGAA 3 - UAC.ENEAM-FADESP.FASEG 4 - UN IPAR 1_HALS 5 - JORB 1 MEFPD 2 -MJSL 2 G-DCCT-INSAE 3 _ & -v
