@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou,le 22 mai 2075 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Ministre d'Etat Chargé de l'Enseignement Supérieur et de la Recherche Scientifi que, Franeois Adebayo l\BIQLJ\ Le Ministre de l'Economie, des Finances et des Programmes de Dénationalisation, Dr Boni YAYI Le Ministre du Développement, de l'Analyse Economique et de la Prospective, Marcel e SOUZA Le Ministre Chargé des Relations avec les lnstitutions, É- Gusta Dé o N N AMPLIATIONS : PR 6. AN 4, CS 2, CC 2, CES 2, HAAC 2, MEFPD 2. MCRI 2, MDAEP 2 MECESRS 2 AUTRES MINISTERES 23, SGG 4, IGE 3, DGBM-DCF-DGTCP.DGID.DGDDI 5, BN-DAN-DLC 3, cot/lB- DGCST-INSAE 3, BCP.CSM-IGAA 3, UAC-ENAM-FADESP 3, UNIPAR.FDSP 2, IGE 2, JORB 1 ) ffi \^ \ KomiKOUTCHE
