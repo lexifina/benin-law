@@ -1,0 +1,5 @@
+# Signatures
+
+Fait à Cotonou, le 22 mai 2ors Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI Le Ministre d'Etat, Chargé de I'Enseignement Supérieur et de la Recherche Scientifique, & Page 2 Francois Adebavo ABIOLA Le Ministre Chargé des Relations avec les lnstitutions, Gustave Dépo SONON Le Ministre de l'lntérieur, de la Sécurité Publique et des Cul Dossou Simplice CODJO Le Garde des Sceaux, tt/inistre de la Justice, de la Législation et des Droits de l'Homme.
+Le tvlinistre de la Décentralisation, de la Gouvernance Locale, de l'Administration et de l'Aménagement du Territoire, S Le Ministre de la Défense Nationa le, Robert héophile YAROU --\) n DJENONTIN-AGOSSOU AMPLIATIONS : PR 6 AN 4 CS 2 CC 2 CES 2 HAAC 2 HCJ 2 MESRS 2 I/DGLAAT 2 l\,4DN 2 |\,4JLDH 2 MEFPD 2 I\,4CRI 2I\4ISPC 2 AUTRES MINISTERES 19 SGG 4 DGBI\,I-DCF-DGTCP-DGID-DGDD 5 BN.DAN-DLC 3 GCONB.
+ffi lsidore GNONLONFOUN Le Ministre de l'Economie, des Finances et des Programmes de Dénationalisation, KomiKOUTCHE DGCST-INSAE 3 BCP-CSM.IGAA.IGE 4 UAC.ENAM. FADESP 3 UP-FDSP 02 JORB 1, Page 3
