@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, leo j uln 2Ol5 Par le Président de la République, Chef de I'Etat, Chef du Gouveînemen7 A3-4 Rédacteur Secrétaire assistant du Secrétaire Particulier B1-3 D1-3 Trois 03 chauffeurs du Ministre D1-4 Chauffeur du Directeur de Cabinet Planton du Ministre D3-4 Cuisinier du Ministre Gardien du Ministre D3-1 ent d'entretien du t\Iinistre D3-1 8* Dr Boni YAYI.- Agent de liaison du Ministre Agent de liaison du Directeur de Cabinet D1-3 D1-3 D3-1 Le Ministre du Travail, de la Fonction Publique, de la Réforme Administrative et lnstitutionnelle, Le Ministre de l'Economie, des Finances et des Programmes de Dénationalisation, -4) .'a DrA ba rY Kom iKOUTCHE.- u AMPLIATIONS:
+PR 06 _ AN 04 - CS 02 _ CC 02 - HCJ 02 - CES 02 - HAAC 02 _ MEFPD 02 - MTFPRAI 02 - AUTRES MINISTERES 25 _ SGG 04 - IGF 04 _ DGB.CF-DGTCP.DGID.DGDDI 05 _ BN-DAN.DLC 03 DGCST-INSAE O3 - BCP-CSM.ICAA 03 - UAC-UNIPAR.ENAM-FAOESP.FDSP 05 - FASEG 02 - JORB O1 B- &
