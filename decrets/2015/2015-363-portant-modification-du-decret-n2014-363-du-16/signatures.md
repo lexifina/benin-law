@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le t s u Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Ministre de I'E et des P Dénat conomie, des Finances rogrammes de io nalWn, r Boni YAYI Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, AMPLIATIONS : PR 6 - AN 4 - CS 2 - CC 2 - CES 2 - HAAC Z - HCJ Z - MJLDH 2 - ivlEFpD 2 - autres Ministères 25-SGG4- DGBI\4 1- DCF 1- DGTCP 1- DG|D 1 - DGDDI 1- BN 1 - DAN 1- DLC 1 - GCONB 1 - DGCST 1- TNSAE 1- Bqp 1 - CSM 1 - Cpt 1_ |GAA 1- UAC 1- UNtpAR 1- ENAtVl 1- FADESP 1 INTERESSEE 1. JoRB 1 d ah .l r:,rv Valentin DJENONTIN-AGOSSOU KomiKOUTCHE
