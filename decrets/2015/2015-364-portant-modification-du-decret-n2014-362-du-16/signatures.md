@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 15 utn Â Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Ministre de l'Economie, des Finances et des Programmes de Dénationalisation, Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, ntin DJE TIN.AGOSSOU AMPLIATIONS: PR 6- AN 4- CS 2 - CC 2- CES 2- HAAC 2-HCJ 2 - |VIJLDH 2 - MEFPD 2 - autres Ministères 25- SGG4- DGBM 1- DCF 1 - DGTCP 1- DG|D '1 - DGDDT 1- BN 1- DAN 1- DLC 1- GCONB 1 . DGCST 1 - INSAE 1 - BC ,I .CSM 1.CPI 1- IGAA 1- UAC 1- UNIPAR 1- ENAM 1- FADESP 1 INTERESSEE 1. JORB 1 )) Dr Boni YAYI KomiKOUTCHE
