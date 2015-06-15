@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le n Par le Président de la RéPublique, Chef de I'Etat, Chef du Gouvernement, Le fi/linistre du DéveloPPement, de l'Analyse Economique et de la ProsPective, Dr Boni YAYI Le Ministre de I'Economie, des Finances et des Programmes de Dénationalisation, Qb ) I Marcel A. de SOUZA KomiKOUTCHE Le Ministre des Travaux Publics et des Transports, Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de I'Homme, Aké T NDE SOU AMPLIATIONS: PR 6, AN 4, CS 2, CC 2, CES 2, MEFPD 2, MTPT 2, I\4DAEP 2, GS/MJLDH 2, AUTRES I\4INISTERES 23, SGG 4, IGE 3, DGBM-DCF-DGTCP-DGID-DGDDI 5, BN.DAN-DLC 3 GCOI\,18- l ( ENON & DGCST-INSAE 3, BCP-CSI\4-IGAA 3, UAC-ENAI\iI-FADESP 3, UNIPAR-FDSP 2, IGE 2. JORB 1.
