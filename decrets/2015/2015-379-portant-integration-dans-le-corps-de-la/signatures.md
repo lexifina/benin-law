@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le ol iui 1e Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI Le Premier Ministre Chargé du Développement Economique, de l'Evaluation des Politiques Publiques et de la Promotion de la Bonne Gouvernance, aÂ v.
+Lionel ZINSOU Le Vice-Premier Ministre Chargé de l'Enseignement Supérieur et de la Recherche Scientifique, Francois Adebavo ABIOLA Le Ministre d'Etat Chargé de l'Economie, des Finances et des Programmes de Dénationalisation, Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, <a Gusta Dé N l'rlinishe intÉrimaire AMPLIATIONS : PR 6 - AN 4 - CS 2 - CC 2 - CES 2 - HAAC 2 - HCJ 2 PM/DEEPPPBG 2 - VPM/ESRS 2- |EEFPD 2 - MJLDH 2 autres Ministères 24 - SGG 4 - DGBM 1-DCF 1- DGTCP 1 - DGID 1 - DcDDt 1- BN 1-DAN 1-DLC 1-G BCP 1 - CSÙI 1.CPI 1,IGAA1-UAC1-UNIPARl-ENAI\'1.FADESP1..INTERESSES,3S.JORB1, NB,1 - DGCST 1 .INSAE 1 - eb Martine Evelvne A. da SILVA-AHOUANTO
