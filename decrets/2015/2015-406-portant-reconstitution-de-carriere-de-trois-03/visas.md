@@ -1,0 +1,24 @@
+# Visas
+
+AEÇI! REPUBLIQUE DU BENIN Fràl.mil6-Justice-Trâvail DECRET N'2015-406 DU 20 JUILLET 2015 portant reconstitution de carrière de trois (03) fonctionnaires de police précédemment régis par l'ordonnance n"69-300 et ayant bénéficié des arrêts de la Chambre Administrative de la Cour Suprême.
+LE PRESIDENT DE LA REPUBLIQUE, GHEF DE L'ETAT, GHEF DU GOUVERNEMENT, Vu la loi n"90-32 du 1'1 décembre'1990 portant Constitution de la République du Bénin ;
+Vu la loi n"81-014 du'10 octobre 1981 portant statut général des personnels militaires des Forces Armées Populaires du Bénin et la loi n'88-006 du 06 avril '1988 qui l'a modifiée ;
+Vu la loi n'93-010 du 20 août 1997 portant Statut Spécial des Personnels de la Police Nationale , Vu la proclamation, le 29 mars 2011 par la Cour Constitutionnelle, des résultats définitifs de l'élection présidentielle du 13 mars 2011 ;
+Vu le décret n'2015-370 du 18 juin 2015 portant composition du Gouvernement;
+Vu le décret n'2012-191 du 03 juillet 2012 fixant la structure type des Ministères;
+Vu le décret n"2012-429 du 06 novembre 2012 portant attributions, organisation et fonctionnement du Ministère de l'lntérieur, de la Sécurité Publique et des Cultes ;
+Vu le décret n"59-222 du 15 décembre 1959 portant règlement sur la rémunération, les indemnités et avantages matériels divers alloués aux Fonctionnaires des Administrations et Etablissements Publics de l'Etat et les actes qui I'ont modifié ;
+Vu le décret n'97-622 du 30 décembre 1997 portant Statuts Particuliers des Corps des Personnels de la Police Nationale ; /'t I (h PRESIDENCE DE LA REPUBLIQUE Vu le décret n'2002-395 du 06 septembre 2002 portant identification des Autorités investies du pouvoir de nomination et de promotion des fonctionnaires de la Police Nationale dans leurs différents grades;
+Vu le décret n'2008-817 du 31 décembre 2008 portant attributions, organisation et fonctionnement de la Direction Générale de la Police Nationale;
+Vu le décret n"2009-713 du 31 décembre 2009 portant modalités de règlement des problèmes de reconstitution de carrière de certains fonctionnaires de Police, suite à leurs réclamations et aux arrêts de la Cour Suprême ;
+Vu l'arrêté interministériel n'149/MISPC/MEF/DC/SGM/SA du 07 septembre 2011 chargé de l'exécution et de la mise en æuvre du décret n'2009-713 du 31 décembre 2009 portant modalités de règlement des problèmes de reconstitution de carrière de certains fonctionnaires de Police, suite à leurs réclamations et aux arrêts de la Cour Suprême ;
+Vu le rapport n'060/MISPC/DC/SP-C du 05 avril 2013 de la commission interministérielle chargée de l'exécution et de la mise en æuvre du décret n"2009-713 du 31 décembre 2009 portant modalités de règlement des problèmes de reconstitution de carrière de certains fonctionnaires de Police, suite à leurs réclamations et aux arrêts de la Cour Suprême ;
+Sur proposition du Ministre de l'lntérieur, de la Sécurité Publique et des Cultes ;
+Le Conseil des Ministres entendu en sa séance du 02 juin 2015, DEGRETE :
+ArticIe 1"t:En application des dispositions des articles 111,112 et 113 de la loi n"93-010 du 20 août '1997 portant Statut Spécial des Personnels de la Police Nationale et celle des dispositions des articles 1,2,3,6 et 7 du décret n'2009-713 du 31 décembre 2009 portant modalités de règlement des problèmes de reconstitution de carrière de certains fonctionnaires de Police, suite à leurs réclamations et aux arrêts de la Cour Suprême, la carrière suivent est reconstituée comme suit :
+) eh es fonctionnaires dont les noms FONCTIONNAIRES DE POLICE AYANT BENEFICIE DES ARRETS NOM ET PRENOMS DATE D,INCOR.
+PORATION ALA POLICE ADMISSION A LA RETRAITE DIPLÔME OE QUALIFICATION PROFESSIONNETLE OBTENU OBSERVATIONS SITUATION ADMINISTRATIVE MtE DATES Fondements Juridiques N' DATES GRADES CP 5t8 cP2 t7l9l8s 77lsl88 cP1 CPP CDP 7tl9l9s I BOYA COMLAN Assotba Eugène t732 Lllt2l78 Tltlos GRADES CGP 1l4l02 CGP tll03l98 A obtenu le diplôme du Brevet Supérieur de la Police Judiciaire le Olll0ll9AS, don bénéficie de six (06) mois de bonification.
+Nouveau trade: CGP pour compter du t,.l03ll99A 7 /atlse cP2 cP1 T lttl02 Nouveau grade: CPP pour compter du oT losl2006 BOKO Julien to73 tth2lTa cPl tllol06 CPP lolsleT cP2 cP1 tolsloo CPP tolsl0A r05s Lÿ12178 7ltlog cP1 rl7106 CDP 10l72l06 A obtenu le diplôme d'Officier de Police ludiciaire le 1U06l1991, donc bénéficie de sir (06) mois de bonificâtion.
+A obtenu le diplôme d'Officier de Police Judiciaire le 2U01l1985, donc bénéficie de six {06} mois de bonificâtion.
+Nouveau Srade: CDP pour compter du rolt2l2û6 Article 76 de la loi 81- 014 du 10/10/1981 et les articles 43 et 51 du déCiet 97-622 du xo/12i1997 IXA AGEON M.
+Sévérin / ffi RECONSTIÏUTION DE CARRIERE 7719lU 7tl9l92 Articles 53, 54,55, 56, 57 et 76 de la loi 81- 014 du 10/10/1981 et I'article 61 du décret 97-622 du 3olt2l L997 tl7l09 TlOsl06 Article 76 de la loi 8l- 014 du 10/10/1981 et les a.ticles 43 et 61du décret 97-622 du 3Olt2i1997
