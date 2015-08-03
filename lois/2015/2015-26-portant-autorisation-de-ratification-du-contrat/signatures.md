@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 03 aoû rBoni YAYI Le Ministre de t'Energie, des Recherches Pétrotières et Minières et du Dévetoppement des Energies Renouvetables, Komi KOUTCHE AMPLIATIONS : PR 6- AN 4- CC 2 - CS 2 - HAAC 2 -CES 2 - Hd 2 MEEFPD 2 MERPMDER 2'AUTRES MINISTERES 25 ' I 5- BN-DAN.DLC. 3 - GCONB-DCCT-INSAE 3- BCP-CSN'IGAA 3- UAC- SGG 4 . DGBM-DCF.OGTCP-DGID-DG ENAM-FASJEP 3- UNIPAR-FDSP 2- JORB I Le Ministre d'Etat Chargé de ['Economie, des Finances et des Programmes de Dénationatisation, REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE Par te Président de [a RéPublique, Chef de ['Etat, Chef du Gouvernement, Soéro MENSAH
