@@ -1,0 +1,6 @@
+# Visas
+
+REPUBLIQUE DU BENIN Fraternité-Jurtlce.Tr.vâil PRESIDENCE DE LA REPUBLIQUE DECRET N' 2015- 421 DU 06 Aour 2015 portant ratification de ['accord de prêt signé à Cotonou, te 30 mars 2015, entre ta Répubtique du Bénin et ta Banque Arabe pour [e Dévetoppement Economique en Afrique (BADEA), dans [e cadre du financement partiet de [a deuxième phase du projet d'extension de t'lnstitut de Mathématiques et de Sciences Physiques (IMSP) de Dangbo en Répubtique du Bénin.
+LE PRESTDENT DE LA REPUBLIQUE' GHEF DE L'ETAT, CHEF DU GOUVERNEMENT, vu ta toi n' 90-32 du 11 décembre 1990 portant constitution de ta Répubtique du Bénin ;
+Vu ta toi n' 2015-22 du 03 août 2015 portant autorisation de ratification de l'accord de prêt signé à Cotonou, te 30 mars 2015 entre ta Répubtique du Bénin et [a Banque Àrabe iour [e Dér,etoppement Econcmique en Afrique (BADEA), dans [e cadre du financement partiet de ta deuxième phase du projet d'extension de l'lnstitut de Mathématiques et de sciences Physiques (IMSP) de Dangbo en Répubtique du Bénin ; Vu [a proctamation, te 29 mars 2011 par ta Cour Constitutionnetle, des résultats définitifs de t'étection présidentietle du 13 mars 201 1 ;
+vu te décret n'2015-370 du 18 juin 2015 portant composition du Gouvernement, DECRETE:
