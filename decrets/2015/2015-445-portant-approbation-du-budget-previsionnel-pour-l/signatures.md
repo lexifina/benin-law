@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le z Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Vice-Premier Ministre Chargé de l'Enseignement Supérieur et de la Recherche Scientifique, ut 2Ol5 Le Premier Ministre Chargé du Développement Economique, de I'Evaluation des Politiques Publiq ues et de la Promotion de la Bonne Gouvernance w) LionelZlNSOU Le Ministre d'Etat Chargé de I'Economie, des Finances et des Programmes de Dénationalisation, ? Francois Adebavo ABIOLA AMPLIATIONS :PR 6, AN 4, CS 2, CC 2, CES 2, HAÂC 2, PiI/DEEPPPBG 2, VPM/ESRS 2 MEEFPD 2, AUTRES MINISTÉRES 25, SGG 4 DGBIVI-DCF.DGTCP.DGI DDI 5, 8N-DAN-DLC 3. GCOMB.DGCST.INSAE 3, BCP.CSi,l.IGAA 3, UAC.ENAM.FADESP 3, oh Dr BoniYAY| KomiKOUTCHE UNIPAR.FDSP 2, BAG 2, JORB 1
