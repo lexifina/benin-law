@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou,le za aout 2015 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr BoniYAY| Le Premier Ministre Chargé du Développement Economique, de l'Evaluation des Politiques Publiques et de la Promotion de la Bonne Gouvernance, ç4 Le Vice-Premier Ministre Chargé de I'Enseignement Supérieur et de la Recherche Scientifi que, Le Ministre d'Etat Chargé de l'Economie, des Finances et des Prog rammes de Dénationalisation /'\t Francois Adebavo ABIOLA KomiKOUTCHE AMPLIATIONS: PR 6, AN 4, CS 2, CC 2, CES 2, HAAC 2, Pii|/DEEPPPBG 2, VPii!/ESRS 2 MEEFPD 2. AUTRES MINISTERES 25, SGG 4, DGBi'.DCF-OGTCP.DGID-OGDDI 5, BN.DAN.DLC 3, GCOMB-DGCST.INSAE 3, BCP.CSM-IGAA 3, UAC.ENAM.FADESP 3, UNIPAR.FOSP 2, BAG 2 JORB 1 <- & LionelZlNSOU
