@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou,le 24 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr BoniYAY| Le Premier Ministre Chargé du Développement Economique, de l'Evaluation des Politiques Publiques et de la Promotion de la Bonne Gouvernance, LionelZlNSOU Le Vice-Premier Ministre Chargé de Le Ministre d'Etat Chargé de l'Enseignement Supérieur et de la l'Economie, des Finances et des Recherche Scientifi que, <-- Prog sde 9{onalisation, Le Ministre du Travail, de la Fonction Publique et de la Réforme Administrative et lnstitutionnelle, t/' <-=:
+cl YAYA AMPLIATIONS: PR 6, AN 4 CS 2, CC 2 CES 2, H 2, PM/DEEPPPBG 2, VPM/ESRS 2 IVEEFPD 2. IVITFPRAI 2, AUTRES I5, BN.DAN-DLC 3, GCOMB-DGCST.INSAE 3 BCP.CSIV.IGAA 3 UAC, lillNlSTERES 24, SGG 4, DGBI\4-DCF-DGTCp-DctD-O ENAM.FAOESP 3. UNIPAR-FDSP 2. BAG 2. JORB 1 ah ut 2015 Francois Adebavo ABIOLA KomiKOUTCHE

@@ -1,0 +1,9 @@
+# Visas
+
+AECI« REPUBLIQUE DU BENIN FralêmIé-Justicè-Travait PRESIDENCE DE LA REPUBLIOUE Vu Vu DECRET N" 2015-451 DU 24 AOUT 2015 portant approbation du budget prévisionnel, pour l'exercice 20'1 5, de la Caisse Nationale de Sécurité Sociale (CNSS).
+LE PRESTDENT DE LA REPUBLTQUE, CI{EF DE L'ETAT, CHEF DU GOUVERNEMENT, la loi n" 90-32 du 11 décembre 1990 portant constitution de la République du Bénin ;
+la loi n" 94-009 du 28 juiilet 1994 portant création, organisation et fonctionnement des offices à caractères social, culturel et scientifique ; la loi n" 98-019 du 21 mars 2003 portant code de sécurité sociare en République du Bénin et les lois n'2007-02 du 26 mars 2007 et n"20.1 0-10 du 22mars 201 0 qui l'ont modifiée;
+la proclamation, le 29 mars 20'1 1 par la cour constitutionnelle, des résultats définitifs de l'élection présidentielle du 13 mars 2011 , le décret n' 20'1 5-370 du 1 8 juin 201 5 portant composition d u Gouvernement ; le décret n' 2012-101 du 03 juillet 2012 fixanl la structure{ype des Ministères ;
+le décret n" 2014-037 du 2g janvier 2014 portant attributions, organisation et fonctionnement du Ministère du Travair, de ra Fonction euoïque, oe ra Réforme Administrative et lnstitutionnelle chargé du Dialogue social ; le décret n"2014-757 du 26 décembre zo14 portant attributions, organisation et fonctionnement du Ministère de l'Economie, des Financei et des Programmes de Dénationalisation ;
+le relevé des décisions et recommandations de la session budgétaire du conseil d'Administration de la caisse Nationale de sécurité sociaie (CNSS) en sa séance du vendredi 23 janvier ZO|S :
+rapport du t\4inistre du Travail, de la Fonction publique et de la Réforme Administrative et lnstitutionnelle, conseil des Ministres entendu en ses séances des 21 et 22 juillet 2015, Vu Vu Vu Vu Vu Vu Vu Sur Le DEGRETE:
