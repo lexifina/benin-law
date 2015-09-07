@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le Oz septembre 2015 Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, Dr Bo iYAYI Le Premier Ministre chargé du Développement Economique, de l'Evaluation des Politiques Publiques et de la Promotion de la Bonne Gouvernance, l/1 Le Ministre d'Etat Chargé de I'Economie, des Finances es de Dénalionalisation, KomiKOUTCHE 4MPLIATIONS: PR 6, AN 4. CS 2, CC 2, CES 2, HAAC 2. PM/DEEPPPEG 2. MEEFPD 2, AUTRES MINISTERES 26, SGG 4, DGBM. DCF-DGTCP-DclD-oGDDl 5, BN-DAN-DLC 3, GcoMB-DGcsr-tNSAE 3, Bcp-csM-tcAA:, uac-eruau-rÀoÈsC s, uNrpnn-rosp z, BAG 2. INTERESSE 1, JORB 1, et des Pr ramm D @ l/ LionelZlNSOU ,1
