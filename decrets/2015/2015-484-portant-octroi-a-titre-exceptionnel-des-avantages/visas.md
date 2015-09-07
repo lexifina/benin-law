@@ -1,0 +1,12 @@
+# Visas
+
+AECX/ REPUBLIQUE DU BENIN J rat ernû e -Ju ! I rc e -Tr aÿ aiI PRESIDENCE DE LA REPUBLIQUE Vu Vu Vu Vu Vu Vu DECRET N" 2015 -484 DU 07 SEPTEMBRE 2015 portant octroi à titre exceptionnel des avantages douaniers et fiscaux à la société BENAFRIeUE S.A. dans le cadre du transport urbain collectif dans la ville de Cotonou et ses environs.
+LE PRESTDENT DE LA REPUBLtgUE, GHEF DE L'ETAT, GHEF DU GOUVERNEMENT, la loi n'90-32 du 11 décembre 1990 portant constitution de ra Répubrique du Bénin ;
+la loi n'90-002 du 09 mai ,1g90 portant Code des lnvestissements;
+la loi n"90-033 du 24 décembre 1990 modifiant res articres 34, 41 , 43, 47 , 49, 51, 59, 62 et 74 de ra roi n'90-002 du 09 mai 1990 portani cooe',oes lnvestissements ;
+l'ordonnance n'2008-04 du 2g juiflet 2o0g portant modification des articles 1.r et 33 de la toin"90-002 du 09 mai 1990 portant code des tnvestissêÀËnis et instituant, par adjonction des articres ci1 a 47-3, re régime ,,o;' retaiit-aux investissements lourds ;
+l'ordonnance n'2008-06 du 0s novembre 200g portant modification des artrc]es 11 nouveau, 33 nouveau, 47-1 er 47-2 de ra roi n.90-002 du 09 mai 'l 990 portant code des rnvestissements, tefle que modifiée par |ordonnance 1]z!oa-o+ du 28 juiilet 2008 et instituant, par àdjonction des articres 47-4 à 47-8 le régime "E" relatif aux investissemenis structurants ;
+la proclamation, le 29 mars 201 1 par ra cour constitutionneile, des résurtats définitifs de l'élection présidentielle du .1 3 mars 20.1 .l ;
+le décret n'2015-370 du '1 I juin 2015 portant composition du Gouvernement ; le décret n"2012-191 du 03 juiilet 2012 rixanila structure{ype des Ministères ; le décret n"2012-544 du 17.décemb re 2012 portant attributions, organisation et fonctionnement du Ministère du Déveroppement, de |Anaryse eJonàÀiqre et de la Prospective ;
+le décret n'98-298 du 20 juiflet 1g9g portant création du centre de promoüon des lnvestissements (Cpl) et approbation de ses statuts ;
+le décret n'98-453 du 08 octobre 1999 fixant res modarités d,apprication de ra loi n"90-002 du 09 mai 1990 portant code des rnvestissemeni., ,àà,ti"" p", la loin"90-033 du 24 décembre ,1g90 , il Vu Vu Vu Vu Vu sur proposition du Premier Ministre chargé du Développement Economique, de l'Evaluation des Politiques Publiques et de la promotion de la Bonne Gouvernance, après avis de la commission Technique des lnvestissements en sa session du27 iévrier 2015 Le Conseil des Ministres entendu en sa séance du 12 août 2015, D E G R E T E:
