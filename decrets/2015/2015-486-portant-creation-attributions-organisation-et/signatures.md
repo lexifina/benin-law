@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le o7 mrr : 201-5 '\:.,7 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr BoniYAY| Le Premier Ministre Chargé du Développement Economique, de l'Evaluation des Politiques Publiques et de la Promo n de la Bonne Gouvernance, Li o? Le l/linistre d'Etat Chargé de l'Economie, des Finances et des Programme de Dénationalisation, f =- Le Ministre de la Culture, de l'Alphabétisation, de l'Artisanat et du Tourisme, PauIHOUNKPE AMPLIATIONS PR 6 AN 4. CS 2, CC 2. CES 2, HÊÂC 2, PM/DEEPPPBG 2, MJLDH 2 MEEFPD 2, MCMT 2, AIJTRES i.,lINISTERES 24. SGG 4 DGBM,DCF.DGTCP.OGIO-DGDDI 5, BN.DAN.DLC 3, GCOME.DGCST.INSAE 3 BCP,CSM-IGAA 3. UAC. ENAIVI.FADESP 3 UNIPAR.FDSP 2. BAG 2. JORE 1.
+d l1 Martine Evelvne A. da SILVA-AHOUANTO KomiKOUTCHE Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme,
