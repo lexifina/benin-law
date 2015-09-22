@@ -1,0 +1,7 @@
+# Visas
+
+ooo oRS ooo REPUBLIQITE DU BENIN oDoDoooeoo PRESIDENCE DE LA REPUBLIQUE oDooooooooooo DECRET No 2015-5tl du 22 septembre 2015 Chargeant Monsieur François Adebayo ABIOLA, Vice-Premier Ministre Chargé de l'Enseignement Supérieur et de la Recherche Scientifique, de l'intérim du Président de la République pour compter du 22 septembre 2015.
+LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT, Vu la loi n" 90-032 du 11 décembre 1990 portant Constitution de la République du Bénin ;
+Vu la proclamation Ie 29 mars 201I par la Cour Constitutionnelle des résultats définitifs de l'élection présidentielle du l3 mars 201I ;
+Vu le décret n'2015-370 du l8 juin 2015 portant composition du Gouvernement;
+Article l"' : Pendant l'absence de Monsieur le Président de la République, Chef de l'Etat, Chef du Gouvernement, Monsieur François Adebayo ABIOLA, Vice-Premier Ministre Chargé de l'Enseignement Supérieur et de la Recherche Scientifique, est chargé d'assurer l'intérim dès le départ de la délégation présidentielle pour Abuja le 22 septembre 2015 AF DECRETE
