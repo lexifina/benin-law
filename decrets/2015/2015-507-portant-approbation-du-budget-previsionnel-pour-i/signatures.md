@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le mbre 2015 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI Le Premier Ministre Chargé du Développement Economique, de I'Evaluation des Politiques Publiq ues et de la Promotion de la Bonne Gouvernance, V Le Vice-Premier Ministre Chargé de l'Enseignement Supérieur et de la Recherche Scientifique, Le Ministre d'Etat l'Economie, des Fin Programmes de Dén Chargé de ances et des {!o@isation, J <-- auEt!ÀMNg: PR 6, AN 4, CS 2, CC 2, CES 2, HAAC 2, PM/OEEPPPBG 2. VPI\,ÿESRS 2 MEEFPO 2, MAEP 2, AUTRES MINISTERES 24. SGG 4, OGBM.DCF-DGTCP-DGIO-OGOOI
+5. BN.DAN.OLC 3, GCOMB-OGCST]NSAE 3, BCP-CSM-IGAA 3. UAC- ENAM-FADESP 3, UNIPAR-FDSP 2, BAG 2, JORB 1, ^tYt FranÇois Adebayo ABIOLA Le Ministre de l'Agriculture, de l'Elevage et de la Pêche, Rufin Orou Nan NANSOUNON LionelZlNSOU KomiKOUTCHE ) A,h
