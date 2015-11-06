@@ -1,0 +1,4 @@
+# Visas
+
+REPUBLIQUE DU BENIN FRA I !:R\ ITIi,IL-,SIICE,TR,\\'A IL PRESIDENCE DE LA REPUBLIQUE DECRET N' 2O15.556 DU 06 NOVEMBRE 20{5 portant approbation du Document actualisé de la Politique de Développement de la Microfinance.
+LE PRESTDENT DE LA REPUBLIQUE, GHEF DE L'ETAT, CHEF DU GOUVERNEMENT, DEGRETE:
