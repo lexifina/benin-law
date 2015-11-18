@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 18 nove bre Dr BoniYAY|.- Le Premier Ministre Chargé du Développement Economique, de l'Evaluation des Politiques Publiques et de la Promotion de la Bonne Gouvernance, LionelZlNSOU Le Ministre d'Etat Chargé de l'Economie, des Finances et des Programmes de Dénationalisation, Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, KomiKOUTCHE Martine Evelvne A. da SILVA-AHOUANTO Ampliations PR:6 SGG:4 AN:4 CS:2 CC;2 CES: 2 HAAC: 2àCJ:2 PM/DEEPPPBG :2MEEFPO:2 OAN-DLC ; 3 GCONB-DGCST- GS/MJLDH: 2 AUTRES MINISTERES: 25 DGBM-DCF-DGICP-DGID-DGODI : 5 Btl| INSAE-BAG:2 BCP-CSM-IGAA:3 UAC-ENAM-FADESP : 3 UP-FDSP :2JORB:1f, /u 0rb Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, '3
