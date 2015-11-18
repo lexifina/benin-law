@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 18 Le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI Le Premier Ministre Chargé du Développement Economique, de l'Evaluation des Politiques Publiques et de la Promotion de la Bonne Gouvernance, novembre 20 Lionel ZINSOU Le Ministre d'Etat Chargé de l'Economie, des Finances et des Programmes de Dénationalisation, 6" Le Ministre des Travaux Publics et des Transports, / Gustave Dépo SONON UAC-ENAM-FADESP : 3 UP-FDSP : 2 JORB : 1 KomiKOUTCHE &pl!.ê!!.@-: PR :6 SGG :4 AN :4 CS :2 CC;2 CES:2 HAAC:2 HCJ :2 PM/DEEPPPBG : 2 MEEFPD:2MTPT: 2 AUTRES IVIINISTERES: 25 DGBM-DCF-DGTCP-DGID-DGDDI : 5 BN-DAN-DLC: 3 GCONB-DGCST-INSAE-BAG : 2 ECP-CS|\4-|GAA. 3 d*
