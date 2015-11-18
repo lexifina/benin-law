@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 18 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr BoniYAY|.- SECTION lV : Dispositions Diverses.
+rticle 12 et les Edu des centre Le Ministre d'Etat Chargé de l'Economie, des Finances et des Programmes de Dénationalisation, é?-> KomiKOUTCHE Le Premier Ministre Chargé du Développement Economique, de l'Evaluation des Politiques publiques et de la Promotion de la Bonne Gouvernance, nov bre LionelZlNSOU Le Garde des Sceaux, Ministre de la Justice, de la Léglslation et des Droits de l'Homme, Martine Evel yne A. da SILVA-A HOUANTO v-t .> Ampliations i PR: 6 scc:4 AN:4 cs:2 cc:2 cES;2 HAAC: 2HCJ:2 pM/DEEpppBG :2 MEEFpo.2 GS/MJLDHT2 AUTRES M|N|STERES:25 DGBN4-DCF-DGTCP-DGID-DGDD| :5 BN-DAN-DLC:3 GcoNB-Dccsr_ INSAE-BAG : 2 BCP-CSM-IGAA : 3 UAC-ENAM-FADESP : 3 Up-FDSp : 2 JORB : i.' L ,''l I "kvw4
