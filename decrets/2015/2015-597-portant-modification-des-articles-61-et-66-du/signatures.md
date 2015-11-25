@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 25 novembre 2015 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement,l ffi- Dr Boni YAYI Le premier Ministre chargé du Déveroppement Economique, de IEvaruation des -- ' '- Ëoritiques PubliquËs et de la Promotion de la Bonne Gouvernance' Lc LionelZlNSOU Le Vice-Premier Ministre Chargé de l'Enseignement SuPérieur et de la Recherche Scientifique, Le Ministre d'Etat Chargé de I'Economie' des Finances et des Programmes de Dénationalisation,"-tu o Le Ministre de la Défense onale, R Y h *Hâl#o,',Xli,1'1i,ii,?:;"is3,;'"',1Ïùït-'5È§"":3#â]:i;3'15â"1^?=^P''ilTooTn-of'o1 oéiôÉ æ-encurvEs 01 -cHRoNo 01 - roRB01 1,,/ ( 0h KomiKOUTCHE
