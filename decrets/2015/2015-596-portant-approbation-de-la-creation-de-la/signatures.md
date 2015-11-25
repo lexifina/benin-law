@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 25 no em Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, I 0t Dr Boni YAYI.- Le Premier Ministre chargé du Développement Economique, de l'Evaluation des Politiques Publiques et de la Promotion de la Bonne Gouvernance, ( Le Ministre du Travail, de la Fonction Publique et de la Réforme Administrative et lnstitutionnelle, Le Ministre d'Etat Chargé de I'Economie, des Finances et des Programmes de énationalisation A"{ k KomiKOUTCHE o r YAYA Le Ministre de la Décentralisation, de la Gouvernance Locale, de l'Administration et de I'Aménagement du Territoire, ni eF.
+HACHE d Lionel ZINSOU AMOIiAIiONS:PR:6SGG;4AN:4CS:2CC:2CES:2HPêC:2HCJ:2PI\I/DEEPPPBG:2ITiIDGLAAT:2 I'iIEEFPD I MTFPRAI : 2AUTRES MINISTERES: 24 DGBM.DCF.DGTCP-OGID-DGDDI : 5 BN-DAN'DLC: 3 GCONB-DGCST-INSAE-BAG : 2 BCP-CSM-IGpê : 3 UAC-ENAM-FADESP : 3 UP-FDSP : 2 JORB : 1 ' \ I IJ
