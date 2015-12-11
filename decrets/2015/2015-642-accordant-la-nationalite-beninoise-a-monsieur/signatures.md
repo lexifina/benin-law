@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, decernbre 2015 Dr Boni YAYI.- Le Premier Ministre Chargé du Développement Economique, de I'Evaluation des Politiques Publiques et de la Promotion de la Bonne Gouvernance, Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, AMPLIATIONS:PR 6;AN 4:CÇ2; CS 2iCES 2: HAAC 2; HCJ 2;SGG 2;PIVI/DEEPPPBG 2 I'IAEIAFBE 2; NIJLDH S ; Autres lvlinistères 25 i Ambassade du Bénin/Liban 2 ; DACP/À,4JLDH 6I S.G.E.G CONB2iDCCT2:UAC- ENA i FADESP 3; lntéressé 1 ; DAN 5;JORB 1 ffi LionelZlNSOU Le Ministre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de l'Extérieur, Saliou AKADIRI Martine Evelvne A. da SILVA AHOUANTO À
