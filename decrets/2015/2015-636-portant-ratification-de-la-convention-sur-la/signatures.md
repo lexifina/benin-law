@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le r ce re 2O!5 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, 0h Dr Boni YAYI.- Le Vice-Premier Ministre Chargé de l'Enseignement Supérieur et de la Recherche Scientifique, Le Ministre des Affaires Etrangères, de I'lntégration Africaine, de la Francophonie et des Béninois de I'Extérieur, Le Ministre de l'Agriculture, de l'Elevage et de la Pêche, Saliou AKADIRI Le Ministre de l'lndustrie et du Co Po Damè KOMBIENOU &.p[e!!.g! : - PR 6 - AN s6 - CC 2 - CS 2 - HAAC 2 - HCJ 2 - CES 2 - MAEIAFBE 4 - AUTRES MINISTERES 2T - SGG4-JORB1 # Francois Adebayo ABIOLA Rufin Orou Nan NANSOUNON
