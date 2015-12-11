@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 11 dec Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, ournal Officiel de re r Boni YAYI.- Le Premier Ministre Chargé du Développement Economique' de l'Evaluation des Politiques Publiques et de la Promotion de la Bonne Gouvernance' l,?1 Le Ministre d'Etat Chargé de l'Economie, des Finances et des Programmes de Le Garde des Sceaux' Ministre de la Justice, de la Législation et des Droits de I'Homme, natio alisation, Komi KOUTCHE Le Ministre du Travail, de la Fonction Publique et de la Réforme Administrative et lnstitutionnelle' M ine vel oub kar Y YA A SI AA UA TO Amoliations i PR : 6 SGG:4AN:4 Cs:2 Cc:2 cESi2 HAAC:2 HcJ^l 2 PM/DEEPPPBG:2 MEEFPD : 2.. GS/MJLDH : 2 lvlTFPRAl :2 AUTRES MrÀISTEREs:24DGBM-DcF,DGrcpdi,ô"6éoô,:irNoÀu-or-c,rccoiràlôëôëi-risÀe-eAo'2BcP-csi/l-IGAA:3uAc'ENAM-FADESP:3uP- FDSP:2 JORB: 1.
+@ LionelZlNSOU (
