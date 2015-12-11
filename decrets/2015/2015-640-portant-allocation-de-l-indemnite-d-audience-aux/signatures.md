@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 11 clecembre 2015 Par le Président de la RéPublique' Chef de l'Etat, Chef du Gouvernement, DrBoniYAY|.- Le Premier Ministre Chargé du Développement Economique, de I'Evaluation des Politiques Publiques et de la Promotion de la Bonne Gouvernance, î,1 Dénational isation.
+.v et de la Réforme Administrati ve et lnstitutionnelle, A u kar AYA Ampliations I PR : 6 SGG 4AN 4CS:2CC 2 CES 2 HAAC frlii§îEFE5, 24 DGBlvl-DcF-DGrcP-DGID-DGDDI : 5 BN-oAN-DL CJ: 2 PIiI/DEEPPPBG:2 MEEFPO:2 GS/MJLDH : 2 IVITFPRAI :2 AUTRES éèoxe-ôèôsr'rNsnE-BAc : 2 BcP-csM-lcAA:3 uAc-ENAII-FADESP 3 uP- FDSP 2 JORB 1 0h C:3 KomiKOUTCHE LionelZlNSOU Le Ministre d'Etat Chargé de l'Economie, Le Garde des Sceaux, Ministre de la Justice' de des Finances et des Programmes de la Législation et des Droits de l'Homme' Martine Evelvne A. da SILVA AHOUANTO Le Ministre du Travail, de la Fonction Publique /
