@@ -1,0 +1,9 @@
+# Décret n° 2015-638 du 11 décembre 2015 portant ratification de la Charte de la Renaissance Africaine, adoptée à Khartoum (République du Soudan), le 24 janvier 2006
+
+f tl,{TER\_IIht!-STICL,TR^V^n PRESIDENCE DE LA REPUBLIQUE DECRETN.2015-638 DU 11 DECEMBRE 2015 portant ratification de la Charte de la Renaissance Africaine, adoptée à Khartoum (République du Soudan), te 24 janvier 2006.
+LE PRESIDENT DE LA REPUBLIQUE, GHEF DE L'ETAT, GHEF DU GOUVERNEMENT, Vu Vu Vu Vu ii'B'.1;# " du 1'l décembre 1eeo portant constitution de ra Répubrique Ia loi n"2011-16 du 05 septembre 201'1 portant autorisation de ratification de la charte de ra Renaissance Africaine,'adoptée à Khartoum (Répubrique du Soudan). le 24 janvier 2006 , -- -r svvrrvr la proclamation, le 29 mars 201'1 par la cour constitutionnelle, des résultats définitifs de t'étection présidentiefl! àrl à *àÀTôr r ;
+le décret no Gouvernement;
+2015-370 du .18 juin ZOlS portant composition du DEGRETE:
+Fait à Cotonou, le d cembre 2015 Articre 1"': Est ratifiée, par re président de ra Répubrique, ra charte de ra Renaissance Africaine, adoptée à Khartoum 1nàpuotique du soudan), re 24 janvier 2006 dont le texte se trouve ci-joint.
+âH#:
+Le présent décret sera pubrié au Journar officier de ra Répubrique du Par le President de la République, Chef de l'Etat, Chef du Gouvernement, e,*- AECK/ REPUBTIQUE DU BENIN + Dr Boni YAyl.- Le Vice-Premier Ministre Chargé de l'Enseignement Supérieur et de la Recherche Scientiflque, Francois Adebavo ABIOLA Saliou AKADIRI Paul HOUNKPE Atrp,l!3llgq : - PR 6 - AN 86 - CC 2 - CS 2 - HAAC 2 - HCJ 2 - CES 2 - MAEIAFBE 4 - AUTRES MINISTERES 27 - SGG 4 - JORB 1, Le Ministre des Affaires Etrangères, de I'lntégration Africaine, de la Francophonie et des Béninois de I'Extérieur, Le Ministre de la Culture, de l'Alphabétisation, de I'Artisanat et du Tourisme, tu )
