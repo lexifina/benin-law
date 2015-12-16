@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 16 décembre 2015 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement.
+LionelZlNSOU Le Ministre d'Etat Chargé de l'Economie, des Finances et des Programmes de Dénationalisation, Le Ministre de l'lndustrie et du Commerce, KomiKOUTC HE Le Ministre du Travail, de Ia Fonction Publique et de la Réforme Administrative et lnstitution nelle, P coun Dam BIEN Le Ministre de l'Environnement Chargé de la Gestion des Changements Climatiques, du Reboisement et de la Protection des Ressources Naturelles et Forestières, oubakar Y YA Théophile C. WO ROU AmDliations: PR :6 SGG:4AN:4 CS:2 CC:2 CES:2 HAAC:2 HCJ:2 pM/DEEpppBG:2 |\IEEFpD .2MtC.2 MTFPRAI : 2 MECGCCRPRNF:2 AUTRES l\4tNtSTERES: 23 DGBM-DCF-DGTCP-DGID-DGDDt :5BN-DAN-D LC:3 GCONB-DGCST-INSAE-BAG :2 BCP-CSM-|GAA:3 UAC-ENAN4-FADESP : 3 Up-FDSp:2 JORB : 1 Qrft, D
