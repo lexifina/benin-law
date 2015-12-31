@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le :r Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, U.aar'.À 2 Dr Boni YAYI.- Le Premier Ministre Chargé du Développement Economique, de l'Evaluation des Politiques Publiques et de la Promotion de la Bonne ouvernance, Lionel ZIN OU Le Ministre d'Etat Chargé de l'Economie, des Finances et des Programmes de Dénationalisation, Le Ministre de l'Energie, des Recherches Pétrolières et Minières et du Développement des Energies Renouvelables, Spéro MENSAH Atrp!E!!q!g-: PR:6SGG:4AN:4CS:2CC:2CES:2HAAC:2HCJ:2PM/DEEPPPBG:2lvlEEFPD:2iüERPI/DER:2 AUTRES MINISTERES :25 DGBM-DCF-DGTCP-DGID-DGDOI :5 BN-OAN-DLC :3 GCONB-DGCST-INSAE-BAG : 2 BCP-CSlVl-IGAA: 3 UAC-ENAM-FADESP : 3 UP-FDSP:2 JORB: 1 ofr KomiKOUTCHE {
