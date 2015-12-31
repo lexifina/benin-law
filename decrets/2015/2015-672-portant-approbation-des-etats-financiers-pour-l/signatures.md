@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le:r de emb Par le Président de la République, Chef de l'Etat, Chef du Gouvernement Le Premier Ministre Chargé du Déve de l'Evaluation des politiques Promotion de la Bonn Dr Boni Y YI..
+loppement Economique, Publiques et de la ouvernance, V Lione IZINS OU P ra m mes e Dénationalisation, ) Ampliations PR: 6 SGG: 4 AN: 4 CS: 2 CC: 2 CES 2 Le Vice-Premier Ministre Chargé de l,Enseignement Supérieur et de la Recherche Scientifiqiue, MEEFPD : 2 N.4E: 2 AUTRES |\,4IN|STERES : 24 OGB Christine A. GBE DJI-VYAHO t\,4-DCF-DGTCP-DGID-DGDDT : 5 BN-DAN-DLC HAAC : 2 HCJ : 2 pNI/DEEpppBc : 2 VPM/ESRS :2 :3 GCONB- DGCST.IN SAE-BAG : 2 BCP-CS|V-|GAA : 3 UAC-ENAM- FADESP:3UP-FDSP:2JORB:1 oft a Francois Adebavo ABIOLA Le Ministre d'Etat Chargé de Le Ministre de l,Eau, l'Economie, des Finances et des KomiKOUTCHE
