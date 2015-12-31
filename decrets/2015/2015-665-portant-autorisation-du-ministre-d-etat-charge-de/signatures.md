@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le31 6"..rbre 2015 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI.- Le Premier Ministre Chargé du Développement Economique, de I'Evaluation des Politiques Publiques et de la Promotion de la Bonne Gouvernance, LionelZlNSOU Le Ministre ES avaux Publics et des Transports, Pro s de Dénationalisation, ramm é) KomiKOUTCHE Gusta e Dépa§QNQN A@!!e!!.@-: PR:6 SGG:4AN:4 CS:2 CC:2 CES:2 HAAC:2 HCJ:2 PM/DEEPPPBG:2 MEEFPD;2 MTPT;2 AUTRES MINISTERES:25 DGBM-DCF-DGTCP-DGID-DGDDI :5 BN-DAN-DLC;3 GCONB-DGCST-INSAE-BAG r 2 BCP-CSM-IGAA:3 UAC- ENAM-FADESP : 3 UP-FDSP:2 JORB: 1 l1 Le Ministre d'Etat Chargé de l'Economie, des Finances et des û
