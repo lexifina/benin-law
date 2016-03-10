@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le ro r Lionel ZINSOU Le Ministre de la Décentralisation, de la Gouvernance Locale, de l'Administration et de l'Aménagement du Territoire, AMPLIATIONS : P AUTRES I\,'IINISTE BCP-CSI\,4-IGAA 3, Le Ministre de l'Urbanisme, de l'Habitat et de I'Assainissement, NoëIFONTON Le Ministre d'Etat Chargé de l'Economie, des Finances et des Programmes de Dénationalisation, T R 6, AN 4, CS 2, CC 2, CES 2, HAAC 2, PM/DEEPPPBG 2' MDGLAAT 2 IVIUHA 2' MEËFPD 2' NEê Zà, SOC +, OCSI"I.OCT-OOTCP-DGID-DGDDI 5, BN-DAN-DLC 3, GCOMB-DGCST-INSAE 3' UAC.ENAM-FADESP 3, UNIPAR-FDSP 2, BAG 2' JORB 1 ' l æ Véronique F. BRUN HACHEME KomiKOUTCHE (
