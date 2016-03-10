@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 10 na s 2016 Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, I Dr Boni YAYI.- Le Premier Ministre Chargé du Développement Economique, de l'Evaluation des Politiques Publiques et de la Promotion de la Bonne Gouvernance, '-7 ) Lionel ZINSOU & r Le Ministre d'Etat Chargé de l'Economie, des Finances et des Programmes de Dénationalisation, Le Ministre des Travaux Publics et des Transports, US eDé oSO AEulagg-0l: PR: 6 SGG: 4 AN: 4 CS: 2 CC: 2 MINISTERES : 25 DGBM-DCF-DGTCP-DGIO-DGDD . 2 HAAC . 2 HCJ r 2 PTWDEEPPPBG : 2 MEEFPD : 2 MTPT r 2 AUTRES BN-OAN-DLC i 3 GCONB-DGCST-INSAE-BAG : 2 BCP-CSM-IGAA: 3 UAC- -* ENAM-FADESP:3 UP-FDSP:2 JORB: 1 r @ KomiKOUTCHE
