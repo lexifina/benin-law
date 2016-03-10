@@ -1,0 +1,7 @@
+# Visas
+
+AECI« REPUBLIQUE DU BENIN j ra t e rn i t é -J u st i. e lTraÿ ai t PRESIDENCE DE LA REPUBLIQUE Vu Vu Vu Vu Vu Vu Vu Vu Vu Vu Sur Le DECRET N" 2016 _ 068 DU 1O MARS 2016 portant approbation des statuts du Centre National de production de Manuets Scotaires iôffi;;'" LE PRESIDENT DE LA REPUBLIQUE, GHEF DE L'ETAT, GHEF DU GOUVERNEMENT !X,BH;* a, du .t1 décembre 1990 portant Constitution de ta Répubtique la loi n" 86-021 du 26 septembre 1gg6 relative aux lois de Finances ;
+la loi n" 94-OO9 O, 1t^ luillet 1994 portant créa,on, organisation et fonctionnement des offices à caractères social cutturer et scientifique ; 5::lffittsis n" 2010-01 du 1"' janvier 2010 portant toi de Finances pour ta la proclamation, le 29 map.2ol1 par la cour constitutionnelle, des résultats définitifs de t,érection présidentieit J Ë"1 s";rîo'iô r r, §"j:ï:,#, .201s_370 du 18 juin 2o1s portant composition du ffi.ii:i:: .n. 2012_1e1 du 03 juiilet 2012 fixant ta structure_type des re décret n' 2012-53g du 17 décembre 2012 porrant attributions, Ël?;ffiT"" et fonctionnement du Ministèru ous Èn."ignements Maternàl et le décret n' 2Q04-044 du 0,4 fév.rier.2004 portant approbation des statuts du Centre Nationatde production oe ruanuet.:é;;;;ir.". (cNpMS) ;
+le procès-verbal de la session budgétaire exerclce 2011du .1 7 décembre 2010 du conseir d'Adminrstrati;;-Ë; ôilË iiaronar de production de Manuels Scolaires (CNpMS) ;
+proposition du Ministre des Enseignements Maternel et primaire ;
+Conseil des Ministres entendu en sa séance du 2.1 novemb re 2O,lS, v 0h
