@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le to mars 2or6 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, oniYAY|.- Le Ministre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de l'Extérieur, Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, ---, c6 Article 1"':MonsieurAYELoMl Prince challa, de nationalité béninoise, né le 15 octobre 1986 à ouèdèmè, de AYELOMI Bernard et de ANNE-MARIE Florence, est autorisé à renoncer à la nationalité béninoise Saliou AKADIRI Martine Evelvne A. da SILVA-AHOUANTO AMPLIATIONS: PR 6;AN 4;CC2', CS 2;CES 2; HAAC Z.,HCJZ; SGG 2; MAETAFBE 2; MJLDH 8; Autres Ministères 26 , Ambassade du Bénin/A emagne 2 ; DACP/MJLDH 6; s.c.E.c.coNB 2; DCCT 2 : UAC-ENA, FADESP 3;tntéressé 1;DAN5, JORB 1.
+r
