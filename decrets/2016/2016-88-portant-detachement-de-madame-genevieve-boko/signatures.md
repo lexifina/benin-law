@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le lO * Par le Président de la RéPublique' Chef de l'Etat, Chef du Gouvernement, adame Geneviève BOKO éPouse 79199 est mise en Position de le Autonome (CENA) à comPter du a S Le Ministre d'Etat Chargé de l'Economie' des Finances et des Programmes de Dénationalisation, 0h" LionelZlNSOU Dr BoniYAYI.- Le Premier Ministre Chargé du Développement Economique' de l'Evaluation des Politiques Publiques et de la Promotion de la Bonne Gouvernance, I t^ / KomiKOUTCHE Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, Martine Evelvne A. da SILVA AHOUANTO Ampliations: PR :6 SGG :4 AN :4 CS:2 CC :2 CES :2 HAAC :2 HCJ :2 PI\//DEEPPPBG :2: |V]EEFPD:2MJLDH: 2 AUTRES MINISTERES : 25 DGBIVI-DCF-DGTCP-DGID-DGDDI : 5 BN-DAN-DLC : 3 GCONB-DGCST-INSAE-BAG : 2 BCP-CSl\4-IGAA : 3 UAC-ENAM-FADESP : 3 UP-FDSP ; 2 JORB : 1 .
+/ ab
