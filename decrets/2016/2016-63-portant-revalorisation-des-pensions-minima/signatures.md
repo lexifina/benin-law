@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le to mars 2016 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr BoniYAYI.- Le Premier Ministre Chargé du Développement Economique, de l'Evaluation des Politiques Publiques et de la Promotion de la Bonne Gouvernance, LionelZlNSOU Le Ministre d'Etat Chargé de l'Economie, des Finances et des Programmes de Dénationalisation, & ( v KomiKOUTCHE Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de I'Homme' Le Ministre du Travail, de la Fonction Publique et de la Réforme Administrative et lnstitutionnelle, Martine Evelvne A. da SILVA AHOUANTO ka Y Amoliations:PR:6SGG:4AN:4CS:2CC:2CES:2HAAC:2HCJ:2PM/DEEPPPBG:2:MEEFPD:2MJLDH: iffiffi;
+à'ÀuînË§ uir.risïeneé z+ ôoei/bcr oGrcp-DGID-DGDot i 5 BN-DAN-oLc : 3 GcoNB-DGcsrrr.rs'ÀË-aÀG iecp-csul-tcAA: 3 uAC-ENAM-FADESP : 3 uP-FDSP : 2 JoRB: 1' / &
