@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, lero mars 2 016 Par le Président de la République, Chef de I'Etat, Chef du Gouvernement, Dr Boni YAYI.- Le Vice - Premier Ministre Chargé de l'Enseignement Supérieur et de la Recherche Scientifique, Francois Adebavo ABIOLA Le Ministre d'Etat Chargé de l'Economie, des Finances et des Programmes de Dénationalisation, KomiKOUTCHE Le Ministre du Travail, de la Fonction Le Garde des Sceaux, Ministre de la Justice, Publique et de la Réforme de la Législation et des Droits de l'Homme, Administrative et lnstitutionnelle, / ubakar Y / d € Martine Evelvne A. da SILVA AHOUANTO MTFFRAT 2 MJLDH : 2 AUTRES IvIINISTERES:24 ocBM-DoF-DGTcP-DGID-DGDDI :5 BN-DAN-DLC: 3 GcoNB- DGCST-INSAE-BAG : 2 BCP-CSIü-IGAA:3 UAC-ENAN4-FADESP : 3 UP-FDSP:2 JORB: '1'
