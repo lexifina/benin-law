@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le to mars 2016 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI.- Le Ministre des Affaires Etrangères, de l'lntégration Africaine, de la Francophonie et des Béninois de l'Extérieur, Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, -z- ) Saliou AKADI RI Martine Evelvne A. da SILVA-AH OUANTO AMPLI TIONS : PR 6 ; AN 4 ., CC 2 , CS 2 ; CES 2 ; HAAC 2 , HCJ 2 ; SGG 2 , MAEIAFBE 2 ; MJLDH 8 . Autres Ministères 26 iAmbassade du Bénin/Allemagne 2 ; DACP/MJLDH 6; S G.E.G CONB 2, DCCT 2 UAC-ENA; FADESP 3 i lntéressé 1 ; DAN 5, JORB'l eft r
