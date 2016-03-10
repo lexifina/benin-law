@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le to mars 2016 t, / Lionel ZINSOU 'Le Ministre chargé de I'Emploi des Jeunes, des Petites et Moyennes Entreprises, Nadine DA o DAHO Le Ministre du Travail, de la Fonction Publique et de la Réforme Administrative et lnstitutionnelle, Le Ministre d'Etat chargé de l'Economie, des Finances et des Programmes de Dénationalisation, .> KomiKOUTCHE Le Ministre d'Etat Chargé de l'Enseignement Secondaire, de la Formation Technique et Professionnelle, de la Reconversion et de l'lnsertion des Jeunes, L.
+UMA OU A4.PT.ê!!.9!§-: PR:6 SGG:4AN:4 CS:2 CC:2 CES:2 HAAC:2 HCJ:2 PM/DEEPPPBG : 2 II/EESFTPRIJ 2 MTFPRAI :2 MEJPME: 2 |\4EEFPD: 2 AUTRES lvllNlSTERES: 23 DGBNi-DCF-DGTCP-DGID-DcDDl : 5 BN-DAN-DLC: 3 GCONB-DGCST- INSAE-BAG : 2 BCP-CSM-IGAA : 3UAC-ENAM-FADESP : 3 UP-FDSP : 2JORB : 1. 0b { /
