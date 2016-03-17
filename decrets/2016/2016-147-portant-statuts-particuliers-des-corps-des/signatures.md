@@ -1,0 +1,5 @@
+# Signatures
+
+Fait à Cotonou, le 17 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr BoniYAY|.- Le Vice - Premier Ministre Chargé de l'Enseignement Supérieur et de la Recherche Scientifique, V ,i Le Ministre d'Etat Chargé de I'Economie, des Finances et des Programmes de Dénationalisation, .=--l) t/ KomiKOUTCHE Le Ministre de l'Environnement Chargé de la Gestion des Changements Climatiques, du Reboisement et de la Protection des Ressources Naturelles et Forestières, Abouba ar YAYA Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Homme, -\ 0h- Théophile C. WOROU Francois Adebavo ABIOLA Le Ministre d'Etat Chargé du Travail, de la Fonction Publique, de la Réforme Administrative et lnstitutionnelle, Martine Evelvne A. da SILVA AHOUANTO v I Le Ministre de l'lntérieur, de la Sécurité Publique et des Cultes, nt NOU AmD|iations:PR:6SGG:4AN:4CS:2CC:2CÊS 2HAAC:2HCJ:2VPM/ESRS:2IMEÉFPD:2 r,,reCCCCnpnNr : 2 MJLOH:2 MTFPRAI :2 MISPC:2 AUTRES MINISTERES:22 DGBM-DCF-DGTCP- DGID-OGDDI :5 BN-OAN-DLC:3 GCONB-DGCST-INSAE-BAG : 2 BCP-CSM-IGAA:3 UAC-ENAM-FADESP :
+3UP-FDSP:2 JORB : 1.
+€h
