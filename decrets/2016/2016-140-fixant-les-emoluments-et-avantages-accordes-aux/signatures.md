@@ -1,0 +1,5 @@
+# Signatures
+
+Fait à Cotonou, lê 17 rnars 2016 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI.- Le Vice - Premier Ministre Chargé de l'Enseignement Supérieur et de la Recherche Scientifique, .li ( Le Ministre d'Etat Chargé du Travail, de la Fonction Publique, de la Réforme Administrative et lnstitutionnelle, --1)2, & .l t"t Francois Adebavo ABIOLA Le Ministre d'Etat Chargé de l'Economie, des Finances et des Programmes de Dénationalisation, Komi KOUTCHE ( Aboubakar YAYA Le Ministre de l'lntérieur, de la Sécurité Publique et des Cultes, J o o LerVlinistre de l,Environnement Chargé de la,Gestion des Changements Climati[ues, du Reboisement et de la protection àes Ressources Naturelles et Forestières, T t Dhile c.wOR U AMPLIATIONS:pR i6 ScG :4 AN:
+2 MECGCCRPRNF : 2 AUTRES GcoNB-DGcsr.rNsae-eac z acÈ 4.9:..^199 2 cES 2 HAAC: 2 HcJ 2 VPM/ESRS: 2 MINISTERES 24 DGBM.DCF.DGTCP.OCIO.OCOOI, -CSM-|GAA 3 UAC-ENAM-FADESP . 3 Up.FDSp:2-iô MEEFPD : 2 MISPC 5 BN-DAN-DLC: 3 RB:'1.
+j oN r
