@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 17 , S de sa signature Par le Président de la RéPublique, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI.- Le Vice - Premier Ministre Chargé de l'Enseignement Supérieur et de la Recherche Scientifique, ( Le Ministre d'Etat Chargé de I'Economie, des Finances et des Programmes de Dénationalisation, Le Ministre d'Etat chargé du Travail, de la Fonction Publique et de la Réforme Ad ministrative et lnstitutionnelle, oubaka YAYA Le Ministre de l'lntérieur, de la Sêcurité Publique et des Cultes, To HO OU UAC-ENAM-FADESP : 3 UP-FDSP:2 JORB : I AMPLIATIONS:PRi6SGG:4AN:4CS:2CC:2CESi2HAAC:2HCJ:2VPM/ESRS:2: MEEFPD:2 MTFPRAI I 2Ml ffi.
+**,srited,)i"ooàü-àcr-ôèiCpocrô-ocoor , 5 BN-DAN-DLc: 3 GCoNB-DGcsr-tNSAE-BAG : 2 BcP-csM- SPC 2 IGAA 3I p \) Francois Adebavo ABIOLA Komi KOUTCHE A,,tb
