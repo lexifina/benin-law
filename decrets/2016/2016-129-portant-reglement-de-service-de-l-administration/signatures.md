@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le t7 mars 2016 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI.- Le Vice - Premier Ministre Chargé de l'Enseignement Supérieur et de la Recherche Scientifique, n t F ra ncois Adebavo ABIOLA Le Ministre d'Etat Chargé de l'Economie, des Finances et des Programmes de Dénationalisation, t2"-- Le Ministre d'Etat Chargé du Travail, de la Fonction Publique et de la Réforme Administrative et lnstitutionnelle, 0Â oubakar YAYA \\ !.-..- ' ( Komi KOUTCHE / I Le Ministre de l'lntérieur, de la Sécurité Publique et des Cultes, N AMPLIATIoNS: PR: 6 sGG: 4 AN: 4 cs: 2 cc:2cES:2 HAAo:2 HcJ:2VPM/ESRS:2: [,,rEEFpD:2 [irrFpRAr 2 IVIISPC : 2 AUTRES IV]INISTERES: 24 oGBM.DCF.DGTCP-DGID.DGDDI : 5 BN-DAN-DLC: 3 GCoNB-DGCST-INSAE. BAG :2 BCP-CSM-IGAA: 3 UAC-ENAM-FADESP ; 3 Up_FDSp:2 JORB : .r.
+r / c,b- (.
