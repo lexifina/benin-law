@@ -1,0 +1,9 @@
+# Signatures
+
+Fait à Cotonou, le r z ars Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, OA r Boni YAYI.- l6
+d) Elève lnspecteur : passant vert Article 26 : Port des insignes.
+L'insigne des douanes et le galon sont portés sur les pattes d'épaules de vestes canadiennes, chemisettes, treillis et pull- over. L,insigne des douanes est aussi porté sur les boutons, képis et bérets. ll s'accroche également par agrafe avec boutonnière au bouton de la poche droite de la tenue d'uniforme.
+L'insigne des douanes et le galon de grade sont groupés sur un support épaulette plate rigide, se fixant sur la patte d,épaule par deux (2) passants. Le bouton est flxé sur la patte d'épaule à un centimètre environ de la pointe de l'épée. La couleur du drap des épaulettes portant les insignes des douanes et grade est le noir pour tous les fonctionnaires.
+L'insigne des spécialistes est brodé sur du drap noir et confectionné forme de pendeloque. ll s'accroche par une patte avec boutonnière au bouton de poche gauche de la tenue d'uniforme.
+Article 27 : Les tableaux de correspondance des galons et grades relatifs à différents corps des personnels de l'Administration des Douanes et Droits lndirects sont annexés au présent décret dont ils font partie intégrante. TITRE V: CONDTTTONS DE pORT pES GALONS T Le Vice - Premier Ministre Chargé de l'Enseignement Supérieur et de la Recherche Scientifique, \"--â---- Francois Adeba vo ABIOLA Le lVlinistre d'Etat Chargé de l'Economie, des Finances et des Programmes de Dénationalisation, Le Ministre d'Etat Chargé du Travail, de la Fonction Publique et de la Réforme Administrative et lnstitutionnelle, s{ ou kar YAYA AMPLIATIONS PR:6 SGG r4 AN r4 CS: 2 CC:2 CES :2 HAAC :2 HCJ :2 VPII/ESRS: 2: NIEEFPO :2 I4TFPRAI :2 AUTRES [4INISTERES: 25 DGBIr-DCF-DGTCP-DGID-DGDDI i 5 BN-DAN-DLC : 3 GCONB-DGCST-INSAE-BAG i2 BCP-CSM-lcAA: 3 UAC- ENAM-FADESP : 3 UP-FDSP:2 JORB: 1.
+@ --=- KomiKOUTCHE /
