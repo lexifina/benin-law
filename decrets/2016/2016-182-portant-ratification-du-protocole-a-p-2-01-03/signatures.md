@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, lê 25 mars 201 Par te Président de ta Répubtique, Chef de t'Etat, Chef du Gouvernement, I 0ht.P.)Bt Fr.t.rnité.Ju3tl.e-Tr.v.ll Dr Boni YAYI Le Ministre d'Etat Chargé de t'Economie, des Finances et des Programmes de Dénationatisation, Le Ministre des Affaires Etrangères, de ['lntégration Africaine, de [a Francophonie et des Béninois de l'Extérieur, e Komi KOUTCHE AMPTIATIONS:PR6-AN4.CC2-CS2_HAAC2-CES2-HCJ2MEFPD2MAEIAFBE2..AUTRESMINISTERES26 . SGG 4 - DGBM-DCF.DGTCP-DGID.DGDDI 5- BN.DAN-DLC- 3 - GCONB-DCCT-INSAE 3. BCP-CSN'IGAA 3- UAC' ENAM-FASJEP 3- UNIPAR-FDSP 2- JORB I.- üb Saliou AKADIRI r

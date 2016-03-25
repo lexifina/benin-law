@@ -1,0 +1,6 @@
+# Visas
+
+REPUBLIQUE DU BENIN PRESIDENCE DE LA REPUBLIQUE DECRET N'2016- 182 DU 25 MARS 201(, portant ratification du Protocote AIP.2/01 103 retatif à ['apptication des procédures de compensation des pertes de recettes subies par tes Etats membres de [a Communauté Economique des Etats de l'Afrique de t'Ouest (CEDEAO) du fait de [a [ibération des échanges et du protocole additionnet A/SP1/12l03 portant amendement de son article 8.
+LE PRESIDENT DE LA REPUBLIOUE, GHEF DE L'ETAT, CI{EF DU GOUVERNEMENT, Vu ta toi n"90-32 du 11 décembre 1990 portant Constitution de ta Répubtique du Bénin;
+Vu ta toi n' 2004-25 du 22 décembre 2004 portant autorisation de ratification du Protocote AlP.?101 103 retatif à l'apptication des procédures de compensation des pertes de recettes subies par tes Etats membres de [a Communauté Economique des Etats de t'Afrique de t'Ouest (CEDEAO) du fait de ta tibération des échanges et du protocole additionnet A/5P1112103 portant amendement de son articte 8; Vu [a proctamation, te 29 mars 201 1 par [a Cour Constitutionnetle, des résuttats définitifs de l'élection présidentiette du 13 mars 201 1 ;
+Vu le décret n'2016-125 du 10 mars 2016 portant composition du Gouvernement, DECRETE:
