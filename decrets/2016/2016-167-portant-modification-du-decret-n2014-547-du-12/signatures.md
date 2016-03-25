@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le z:
+ar Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Dr Boni YAYI.- Le Premier Ministre Chargé du Développement Economique, de l'Evaluation des Politiques Publiques et de la Promotion de la Bonne Gouvernance, Lionel ZIN OU Le Ministre d'Etat Chargé de I'Economie, des Finances et des Programmes de Dénationalisation, Le Ministre de I'lndustrie et du Commerce, Fréderic R:6SG MJLDH : 2 AUTRES INSAE'BAG : 2 BCP-CS KomiKOUTCHE Le Garde des Sceaux, Ministre de la Justice, de la Législation et des Droits de l'Hornme, :4 AN :4 CS :2 CC:2 CES:2 HAAC:2 HCJ:2 PM/DEEPPPBG :2: N.4EEFPD:2 MIC:2 ISTERES: 24 DGBM-DCF-DGTCP-DGID-DGDDI : 5 BN-DAN-DLC: 3 GCONB-DGCST- GAA:3 UAC.ENAM-FADESP : 3 UP.FDSP : 2 JORB: 1, r 0t -t /" -\ ,.--..-..=-....- 4/rcL,--_ Martine Evelvne A. da SILVA AHOUANTO
