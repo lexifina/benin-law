@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le zs mars 2ol6 Par te Président de ta RéPubtique, Chef de t'Etat, Chef du Gouvernement, Dr Boni YAYI v Uh Le M'inistre d'Etat Chargé de t'Economie, des Finances et des Programmes de Dénationalisation, Le Ministre des Affaires Etrangères, de ['lntégration Africaine, de [a Francophonie et des Béninois de ['Extérieur, <-_--<_) ,.2 i Le Ministre de ['lntérieur, de ta Sécurité Pubtique et des Cuttes, Toussaint ADJEH OUNOU A'IÂPIIAIIONS: PR 6. AN 4.CC2- CS 2_HAAC 2. CES2. HCJ 2 MEFPD 2 MAEIAFBE 2. MISPC 2-AUTRES MINISTERES 25 - SGG 4. DGBM-DCF.DGTCP-DGID.DGDDI 5. BN.DAN.DLC.3. GCONB.DCCT.INSAE 3'8CP- CSNIGAA 3- UAC.ENAM.FASJEP 3- UNIPAR-FDSP 2- JORB ],- d" Komi KOUTCHE Satiou AKADIRI r
