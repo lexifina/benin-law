@@ -1,0 +1,11 @@
+# Visas
+
+AEÇR] REPUBLIQUE DU BENIN lr L1 t è rn i t é. J 1t t t i ( e -'fr a ÿ a i I PRESIDENCE DE LA REPUBLIQUE DECRET N'2016-206 DU 04 AVRIL 2016 portant autorisation à titre de régularisation, du Ministre d'Etat Chargé de l'Economie, des Finances et des programmes de Dénationalisation à I'effet d'émettre la garantie autonome de I'Etat pour assurer le remboursement du crédit contracté par I'Office National de Soutien des revenus agricoles (ONS) dans le cadre du financement de la campagne cotonnière 2015-2016.
+LE PRESIDENT DE LA REPUBLIOUE, CHEF DE L'ETAT, GHEF DU GOUVERNEMENT, Vu la loi n'90-32 du 11 décembre 1990 portant Constitution de la République du Bénin ;
+Vu la loi organique n"2013-14 du 27 septembre 2013 relative aux lois de finances ;
+Vu I'ordonnance n'47lPR du 28 août 1968 autorisant le Gouvernement à accorder l'Aval de l'Etat aux Etablissements Bancaires Financiers, en garantie des Prêts et Avances à consentir aux Collectivités Publiques Secondaires, Etablissements, lnstitutions et Organismes Publics et Privés de la République du Bénin ;
+Vu la proclamation, le 29 mars 2011 par la Cour Constitutionnelle, des résultats définitifs de l'élection présidentielle du 13 mars 201 1 ;
+Vu le décret n'2016-125 du 10 mars 2016 portant composition du Gouvernement ;
+Sur proposition du Ministre d'Etat Chargé de l'Economie, des Finances et des Programmes de Dénationalisation ;
+Le Conseil des Ministres entendu en sa séance du DEGRETE:
+Article 1e' : Le Ministre d'Etat Chargé de l'Economie, des Finances et des Programmes de Dénationalisation est autorisé, à titre de régularisation, à accorder la garantie autonome de l'Etat à l'Office National de Soutien des revenus agricoles (ONS), pour assurer le remboursement intégral des sommes dues par elle au titre du crédit d'un montant maximum de cent quinze milliards (115000000000) de francs CFA qu'il a contracté auprès d'un pool bancaire composé de : la BGFI Bank {'l/cÀt" I Bénin, la Banque Atlantique Bénin (BAB), la Bank Of Africa (BOA) Bénin, la Banque Sahelo Saharienne pour l'lnvestissement et le Commerce (BSIC) Bénin, la Diamond Bank Bénin et United Bank Of Africa (UBA) Bénin avec la Banque Ouest Africaine de Développement (BOAD) comme arrangeur et Ecobank Bénin comme banque agent, dans le cadre du financement de la campagne cotonnière 2015- 2016 en République du Bénin.
