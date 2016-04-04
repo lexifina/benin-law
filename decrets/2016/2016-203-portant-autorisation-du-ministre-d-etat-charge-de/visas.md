@@ -1,0 +1,14 @@
+# Visas
+
+AECI( REPUBLIQUE DU BENIN lr.tt erni t é -.1ustic e -Trav all- PRESIDENCE DE LA REPUBLIQUE DECRET N" 2016-203 DU 04 AVRIL 2016 portant autorisation du Ministre d'Etat Chargé de I'Economie, des Finances et des programmes de Dénationalisation à l'effet d'émettre la garantie autonome de l'Etat pour assurer le remboursement des crédits à contracter par l'Entreprise EBOMAF dans le cadre du préfinancement des travaux d'aménagement et de bitumage de divers tronçons routiers au Bénin.
+LE PRESIDENT DE LA REPUBLIQUE, GHEF DE L'ETAT, GHEF DU GOUVERNEMENT, Vu la loi n" 90-32 du 1 1 décembre 1990 portant Constitution de la République du Bénin ;
+Vu la loi organique n"2013-14 du 27 septembre 2013 relative aux lois de finances ;
+Vu l'ordonnance n"47lPR du 28 août 1968 autorisant le Gouvernement à accorder l'Aval de l'Etat aux Etablissements Bancaires Financiers, en garantie des Prêts et Avances à consentir aux Collectivités Publiques Secondaires, Etablissements, lnstitutions et Organismes Publics et Privés de la République du Bénin ;
+Vu la proclamation, le 29 mars 2011 par la Cour Constitutionnelle, des résultats définitifs de l'élection présidentielle du 13 mars 201 1 , Vu le décret n"2015-125 du 10 mars 2015 portant composition du Gouvernement ;
+sur proposition du Ministre d'Etat chargé de I'Economie, des Finances et des Programmes de Dénationalisation ;
+Le Conseil des Ministres entendu en ses séances des 29, 30 mars et 1"'avril 2016, DEGRETE:
+Artic 1"' i Le Ministre d'Etat Chargé de l'Economie, des Finances et des Programmes de Dénationalisation est autorisé à accorder la garantie autonome de l'Etat à l'Entreprise Bonkoungou Mahamadou et Fils (EBOMAF) SA pour couvrir les prêts qu'elle aura à contracter auprès de ses partenaires financiers dans le cadre du préfinancement des travaux d'aménagement et de bitumage des tronçons routiers suivants :
+(ft a)Misséssinto - Zinvié - sèdjèdénou - zè (32 km), RN|E 1 - cococodji - Hèvié - ouèdo (09 km) et ouèdo - caravi-kpota (t'z,z xim)o,rn Àintant totat de soixante quatre miiliards deux cent quatre vingt huit mittions oeux cent dix neuf mire cinq cent cinq (64.288.lrs.sosy fâr"; ôËÂ ;'
+b) Dassa - savarou.- Djougou.(2sr732 km) et res breteiles : Bassira -Manigri (9,300 km), prèkéte - frontière Togo (0,é00 km) et Bassira--ir*li"r" rogo (04,700 km) d'un montant totar de ceni soixante et un mitiiaros àeux cent quatre vingt sept-millions quatre vingt sept mifle six cent vingt et un (161.287 .0At .621 ) francs CFA ;
+c) comè - Lokossa - Dogbo et de ra breteile Zounhoué - Athiémé -Frontière du Togo d'un montant total de quinze milliards huit cent tr"nt" troü millions cent qu1lre vingt neuf milre neuf cent quarante deux (15.g33.1sg.g42) francs CFA ;
+d)Djougou-Pehounco-Kérou-Banikoara (210 km) d,un montant total de cent soixante seize mi[iards trois cent quatre vingt dix sept miltions cinq cent vingt huit miile neuf cent trente quatrelrze.esz.sza.g34) francs CFA.
