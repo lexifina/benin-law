@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Porto-Novo, le 26 mai 2016 Le Président de l’Assemblée Nationale, Adrien HOUNGBEDJI Loi N° 2016-06 portant loi-cadre sur l'aménagement du territoire Par décision DCC 17-021 du 31 janvier 2017, la Cour Constitutionnelle a déclaré conformes les dispositions de cette loi-cadre sur l’aménagement du territoire en République du Bénin. Elle l’a également rendue exécutoire à la faveur de sa publication dans le journal officiel du Bénin (JOB) dans son édition du 15 mars 2017, Réf : 128 Année N° 06.
+Loi N° 2016-06 portant loi-cadre sur l'aménagement du territoire Loi N° 2016-06 portant loi-cadre sur l'aménagement du territoire Edition septembre 2017 Avenue du Canada, Vodjè Rue du Pavillon Bleu 01 BP 6721 Cotonou – Tél. (229) 21-30-98-74 / 21-30-98-75 www.datbenin.org – dat.benin@gmail.com
