@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le zt ars Dr Boni YAYI Le Vice - Premier Ministre Chargé de I'Enseignement Supérieur et de la Recherche Scientifique, \r" ( T hile YAROU Ampliations: PR6-CAB-l\illL6-AN2-CC2-CS2-HCl 2-CES2-HAAC2-VPM/ESRS2|\4EDN2-MEEFPD2- AUTRESMINISTERES25-SGG4-SPD2-DEP-INSAE3-DSI 2 - OGBM - DCF - DGTCP. DSDV. CF 8 _ ONEP - GCONB-DCCT3-UAC_ENAM.FASJEP3-UNIPAR-FDSP2.INTERESSES06-DOPA1-JORB1-AJC4. $- Par te Président de la République, Chef de l'Etat, Chef du Gouvernement, Francois Adebavo ABIOLA Le Ministre d'Etat Chargé de Le Ministre d'Etat Chargé de la l'Economie, des Finances et des Défense Nationale, Programmes de Dénationalisation, -----{9 ( Komi KOUTCHE
