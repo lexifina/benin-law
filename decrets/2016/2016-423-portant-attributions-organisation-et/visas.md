@@ -1,0 +1,8 @@
+# Visas
+
+REPUBL10υE DU BENIN 月9TERA777EVυ S7rC二7RA1/4rL PRESIDENCE DE LA REPUBL10UE DECRET N° .42■...du20..jtti■■et.2016 portant attributions, organisation et fonctionnement du Ministdre des Affaires Etrangdres et de la Coop6ration LE PRESIDENT DE LA REPUBLIQUE, GHEF DE L'ETAT, CHEF DU GOUVERNEMENT, Vu la loi n"90-32 du 11 d6cembre 1990 portant Constitution de la R6publique du Benin ;
+Vu la proclamation, le 30 mars 2016 par la Cour Constitutionnelle, des r6sultats definitifs de l'6lection pr6sidentielle du 20 mars 2016 ;
+Vu la loi organique n"2013-14 du 27 septembre 2013 relative aux lois des finances ; Vu la loi n"97 -028 du '15 janvier 1 999 portant organisation de l'administration territoriale de Ia R6publique du B6nin ;
+Vu la loi n '97 -029 du 15 Janvier 1999 portant organisation des communes en R6publique du Benin ;
+Vu le d6cret n"2016-264 du 06 avril 2016 portant composition du Gouvernement; Vu le d6cret n"20'16-292 du 17 mai 2016 fixant la structure type des ministdres ; Vu le d6cret n'2011-281 du 02 avril 2011 portant creation, attributions, organisation et fonctionnement des cellules environnementales en R6publique du B6nin ; Vu le d6cret n"2012-196 du 03 juillet 2012 porlant attributions, organisation et fonctionnement du Ministere des Affaires Etrangdres, de l'lnt6gration Africaine, de la Francophonie et des B6ninois de l'Ext6rieur;
+Sur proposition du Mlnistre des Affaires Etrangdres et de la Coop6ration , Le Conseil des ministres, entendu en sa s6ance du .2O.. j.u.i.l1e t..2QL6 DECRETE CHAPiTRE i:DE L'OB」ET ET DES PRINCiPES A卜tic:el : Le pr6sent dё cret fixe le cadre de rё fё rence pour la dё finition des attributions, de l'organisation et du fonctionnement du ヽЛinistёre des afFaires 6trangё res et de la coop6ration ヽ
