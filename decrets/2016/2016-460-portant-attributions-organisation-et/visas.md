@@ -1,0 +1,8 @@
+# Visas
+
+' 1 - ――イ .
+REPUBLIQUE DU BENIN FR47ERハ″TE」υS71C「TRAVA′と PRESIDENCE DE LA REPUBLlQUE DECRET N° .2p10.46Q.●ll..Q3..'OЧ「 2016 portant attributions,organisation et fonctionnement du Ministё re des Sports LE PRESIDENT DE LA REPUBLiQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT, Vu la loi n° 90‐ 32 du ll dё cembre 1990 portant Constitution de la R6publique du Bё nin i Vu la loi organique n° 2013-14 du 27 septembre 2013 relative aux lois des finances; Vu la loi n° 97-028 du 15 ianvier 1999 portant organisation de l'administration territoriale de la Rё publique du B6nin i Vu la loi n °97-029 du 15 ianvier 1999 portant organisation des communes en Rё pub‖que du B6nin;
+Vu la proclamation, le 30 mars 2016 par la Cour Constitutionne‖ e, des resultats dёfinitiFs de r61ection prё sidentie‖e du 20 mars 2016:
+Vu le d6cret n° 2016-264 du 06 avri1 2016 pOrtant composition du Couvernement: Vu le d6cret n° 2016‐264 du 06 avri1 201 6 fixantta structure type desヽ linistё res;
+Vu le dёcret n° 2001-095 du 20 f6vrier 2001 pOrtant crё ation, attributions, organisation et fonctionnement des ce‖ ules environnementales en Rё pub‖que du B6nin;
+Vu le dё cret n° 2014421 du 06 novembre 2012 pOrtant attributions, organisation et fonctionnement du Ministё re de la leunesse,des sports et des loiSirs: Sur Proposition du Ministre des Sports i Le Consen des ministres,entendu en sa sё ance du o3_aott… 2016, DECRETE CHAPITRE l:DE L'OB」ET ET DES PRINCIPES Articie l: Le pr6seni dё cret fixe le cadre de r6fё rence pour la dё finition des attributions,de rorganisation et du fonctionnement duヽ linistё re des Sports
