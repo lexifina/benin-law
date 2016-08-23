@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, te 23 août 20'16 Par te Président de [a RéPubtique, Chef de t'Etat, Chef du Gouvernement, REPUBLIQUE DU BENIN Fr.ternlté-Ju3tlc.-Tr.vril PRESIDENCE DE LA REPUBLIqUE Le Ministre de ['Economie et des Finances, LOr N' 2016-19 DU 23 AOÛT 2016 Dortant autorisation de ratification de l'accord de Lrêt siené à Lima (Pérou), te 09 octobre 2015 entre ia Répübtique du Bénin et ta Banque Arabe pour [e Dévetoppement Economique en Afrique (BADEA) dans té cadre de [a mise en ptace de ta deuxième tigne de crédit au profit du Fonds National de [a Microfinance.
+Le Ministre du Travait, de ta Fonction Pubtique et des Affaires Sociates, Marie Odile AfiANASSO Adidiatou MATHYS Mlnlske intérlmohe A'IAPTIAIIONS: PR 6- AN 4-CC 2-CS 2 - HAAC 2-CES 2. HCJ 2. MEF 2 MTFPAS 2.AUTRES MINISTERES r9-sGG4-.JORB l.- Patrice TALON
