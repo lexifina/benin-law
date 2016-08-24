@@ -1,0 +1,5 @@
+# Visas
+
+SGAG2 REPUBLIQUE DU BENIN 乃′ιθ″ 筋ブレSttθ ‐ル′″ ノ PRESIDENCE DE LA REPUBLIQUE DEGRET N'20i6-s09 du 24 uoilt 2ot6 Tribunal de Premidre Instance de Deuxidme Classe de Lokossa.
+LE PRESIDENT DE LA REPUBLIQUEヮ GHEF DE L'ETAT, GHEF DU GOUVERNEMENT' Vu Ia loi no 90-032 d.u 11 d6cembre 1990 portant Constitution de Ia R6publique du B6nin i Vu Ia proclamation, le 30 mars 2016 par la Cour Constitutionnelle, des r6sultats d6finitifs de I'6lection pr6sidentielle du 20 mars 20L6;
+Vu Ie d6cret f 2016-264 du 06 avril 2016, portant composition du Gouvernement i Vu Ie d.6cret s" 2016-292 du 17 mai 2016 fixant la structure type des ministdres i Vu Ie d6cret n"425 du 20 juillet 2016 portant attribubions, organisation et fonctionnement du Ministdre de Ia Justice et de la L6gislation i Sur proposition du Garde des Sceaux, Ministre de la Justice et de la L6gislation, aprds avis conforme du Conseil Sup6rieur de la Magistrature en sa s6ance des 9 et 10 aotrt 20L6; Le Conseil des Ministres entendu en sa s6ance du jeudil 1 aoCrt 20L6, DECRETE:
