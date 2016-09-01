@@ -1,0 +1,4 @@
+# Visas
+
+Ｖ ｕ Ⅷ ｕ ｕ Ｖ Ｖ Vu REPUBLIQUE DUBENIN PRESIDENCE DE LA REPUBLIQUE DECRET N"2Ol6- 551 du 01 sptembre 2016 portant abrogation de Ia nomination de Madame Pauline Sdd6 GBOTOUNOU 6pouse AZANDOSSESSI, en qualit6 d'Agent Comptable Central du Tr6sor.
+LE PRES!DENT DE LA REPUBLIQUE, G}IEF DE L'ETAT, CHEF DU GOUVERNEMENT, ia Ioi n'90-032 du 11 d6cembre 1990 portant Constitution de la R6publique du B6nin i la proclamation, le 30 mars 2016 par Ia Cour Constitutionnelle, des r6sultats d6finitifs de ll6lection pr6sidentielle du 20 mars 2016 i le d6cret N" 2016-264 du 06 avril 2016, portant composition du Gouvernement i Ie d6cret n'2016-292 du 17 mai 2016 fixant Ia struccure rype des ministdres i le d6cret n" 2016'544 du 29 aotrt 2016 portant nomination au Ministdre de l'Economie et des Finances i Sur proposition du Ministre de l'Economie et des Finances i Le Conseil des Ministres entendu en sa s6ance ordinaire du jeudi 1"" septembre 2016, DECRETE.
