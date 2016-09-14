@@ -1,0 +1,8 @@
+# Visas
+
+Sgag2/BB REPUBHQUE DU BENIN Fraterni“ ‐」ustice‐ Travail PRESIDENCE DE LA REPUBHQUE DECRET N° 2016‐ .ユ&2 DU。。14..SEPTEMBRE 2016 portant a1location sp6ciale au profit des hauts responsables lrlilitaires exercant des responsabilit6s particuliё res a la Pr6sidence de la R6publique.
+L■PRESIDENT DE LA REPUBLIQUEヮ CH■F DELワETATヮ CHEF DU 00UV■RNEMENT, Vu la loi n° 90‐32 du ll d6cembre 1990 portant Constitution de la R6publique du B6nln, Vu la d6cision portant proclamation le 30 mars 2016 par la Cour Constitutionnelle des r6sultats d6finitifs de l'61ection pr6sidentielle du 20 NIars 2016; Vu le D6cret N° 2016‐ 264 du 6 avri1 2016 portant composition du Gouvernement; Vu le d6cret n° 2016・482 du ll aoat 2016 portant cr6ation,attributions,organisation et fonctionnement du Cabinet WIilitaire du Pr6sident de la R6publique; Vu le d6cret n° 59‐ 222 du 15 d6cembre 1959 portant rё glement sur la r6mun6ration, les indemnit6s et avantages mat6riels divers a1lou6s aux fonctionnaires des adΠlinistrations et 6tablissements publics de l'Etat;
+Vu le d6cret n° 2016‐ 480 du ll aOtt 2016 flxant le r6gilne indemnitaire applicable aux personnels militaires en service a la Pr6sidence de la R6publique et dans les services rattach6s;
+Vu sur proposition du Pr6sident de la R6publique, Chef de l`Etat, Chef du Gouvernement;
+Le Conseil des Ministres entendu en sa s6ance du lnercredi 14 septembre 2016, DECRETE:
+Article 191: Il est allou6, pour compter du 6 avri1 2016 a certains hauts responsables militaires en service a la Pr6sidence de la]R6publique et exercant des responsabilit6s particuliё res, une a1location sp6ciale de responsabilit6, cOnform6ment a“ 滋開θ′口joint en annexe.
