@@ -1,0 +1,13 @@
+# Visas
+
+tcG.- REPUBLIQUE DU BENIN Fraternit6-Justicc-Travail PRES:DENCE DE LA REPUBLIQuE LE PRESTDENT DE LA REPUBLIQUE, GHEF DE L'ETAT, CHEF DU GOUVERNEMENT, la loi no 90-32 du 11 d6cembre 1gg0 portant constitution de la R6publique du B6nin i Ia loi n" 2015-08 du 0B d6cembre 2015 portant code de 1,enfant en R6publique du B6nin i la d6cision portant proclamation, le B0 mars 2016 par la cour Constitutionnelie, des r6sultats d6finitifs de l'6lection pr6sidentielle du 20 mars 2016;
+le d6cret no 20lG-2G4 du 06 avril 2016 portant composition du Gouvernement i Ie d6cret no 2016-2g2 du 17 mai zot6 fixant la structure-type d.es ministdres i le d6cret no 2076-424 du 20 juillet zoL6 portant attributions, organisation et fonctionnement du Ministdre du Travail, de la F'onction Publique et des Affaires Sociales i le d6cret no 2olT-4zT du 20 juiliet 2016 portant attributions, organisation et fonctionnement du Ministdre des Affaires Etrangdres et de la Coop6ration i le d6cret no 2ol\-42s du 20 juillet 2016 portant attributions, organisation et fonctionnement du Ministdre de la Justice et de la L6gislation ;
+le d6cret n" 2016-713 du 2b novembre 2oL6 portant composition, attributions, organisation et fonctionnement de 1'Autorit6 centrale en matidre d'adoption internationale en R6publique du B6nin i DECRET N" 2O16-715 du 25 novembre 2016 portant nomination des membres de l,Autorit6 centrale en matidre d'adoption internationale en R6publique du B6nin.
+Vu Vu Vu Vu Vu Vu Vu Vu Vu Sur proposition du 1/1inistre du Travail, de la Fonction Publique et des A∬aires Sociales, Le Conseil des〕νlinistres entendu en sa s6ance du 09 novembre 2016, DECRETE:
+Article ler:
+Sont noHlln6es a l'Autorit6 centrale en matiare d'adoption internationale, les personnes dont les norllls suivent:
+― Pr6sident:Monsiel17 BrunO EoS,Y.GBEI[IMO,repr6sentant du lninistre en charge de l'enfance;
+― Vice‐pr6sident:Ⅳlonsieur Bienvenu Alogmnou HOUNGBEDJI, repr6sentant du lrlinistre des affaires 6trangδres;
+― Rapporteur: Nlonsieur Salimane ISSIFOU, repr6sentant des organisations de la soci6t6 civile d6sign6 par ses pairs;
+― Membres.
+. Mad.ame Aur6d.ola H6ldne ACHOUKE, repr6sentant du ministre de la justice i e Madame Ghislaine s. BOCOVO, Commissaire de Police de ldre classe, Chef de l'office central de Protection des Mineurs i . Monsieur Norbert FANOU AKO, repr6sentant des R6seaux des organisations de 1a soci6t6 civile op6rant dans le domaine de 1a protection de l'enfant i o Monsieur Philippe MEDEGAN, repr6sentant des R6seaux des organisations de ia soci6t6 civile opt5rant dans le domaine de la protection de l'enfant.
