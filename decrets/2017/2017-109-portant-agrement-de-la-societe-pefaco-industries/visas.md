@@ -1,0 +1,8 @@
+# Visas
+
+AECK/ REPUBLIQUE DU BENIN Fraternité-Justice-Travail PRESIDENCE DE LA REPUBLIQUE DECRET N" 2017- 109 du,27 fevrier 2otl portant agrément de la Société PEFACO INDUSTRIES LiMITED BENIN pour l'exploitation de salles de jeux en République du Bénin' LE PRESIDENT DE LA REPUBLIQUE, GHEF DE L'ETAT, CHEF DU GOUVERNEMENT, la loi nogO-32 du 11 décembre 1990 portant Constitution de la République du tsenrn;
+la loi noBB-005 du 26 avril 19BB relative à la création, à l'organisation et au fonctionnement des Entreprises Publiques et Semi-Publiques en République du Bénin;
+la loi no2002-28 du 29 mars 2004 portant réglementation des jeux de hasard, d'argent et de paris en République du Bénin ;
+la décision portant proclamation, le 30 mars 2016 par la Cour Constitutionnelle, des résultats définitifs de l'élection présidentielle du 20 mars 2016 ; le décret no2Ol6-264 du 6 avril 2016 portant composition du Gouvernement; le décret no2016-292 du 77 mai 2015 fixant la structure-type des ministères ; le décret no2Ol6-421 du 20 juillet 2016 portant attributions, organisation et fonctionnement du Ministère de l'Economie et des Finances ;
+le décret no2011-268 du 02 avril 2011 portant approbation des statuts de la Loterie Nationale du Bénin ;
+le décret no201 7-324 du OZ avril 2011 portant conditions et modalités d'exploitation des jeux de hasard, d'argent ou de paris par des personnes morales privées et d'émission de billets de tombola en République du Bénin ; proposition du Ministre de l'Economie et des Finances, conseil des Ministres entendu en sa séance du 15 février 2017, Vu Vu Vu Vu Vu Vu Vu Vu Sur Le Vu DECRETE:
