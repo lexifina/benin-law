@@ -1,0 +1,3 @@
+# Signatures
+
+Fait a Cotonou 1e 27 fevr Par le Président de la RéPublique' Chef de !'Eta.t, e hef du Gouvernement' '4 Patrice TALON.' Le Ministre d'Etat, Secrétaire Cénéral de la Présidence de la RêPublique, Le Ministre d'E chargé du Ptan et du ppement It6'./-.{f," "1- ) Pascal lrénée KOUPAKI Abdoulaye Bio TGHANE t7 Le Ministre de ['Economie et des Finances, Romuald WADAG La Ministre de t'Enseignement Supérieur et de ta Recherche Scientifique, Marie Odile ATTANASSO AMPLIATIONS:originat:01iPR:06;CAB'MIL:06;AN:02;-CC-:-02;CS:02;HcJ:02;HAAC:02;tlCJ:02; i,{E6: ôr; MESRS :-04; MEF: 04; uutràr Minittèr"t 1â ; sc6: 04; 5PD-DEP-INSAE: 03; DSIA: 02; DGBM-DCF'DGTCP' ôiov-cr, tig; oNEp-GcôNB-DGcsT3 ; uÀc-ENr.ll-FADESP: 03 ; uP'FDsP: 2 ; DoPA:01 ; JoRB:01' A I
