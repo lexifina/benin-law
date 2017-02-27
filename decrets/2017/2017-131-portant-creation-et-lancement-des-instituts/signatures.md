@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 27 fevrier oll Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Patrice TALON Le Ministre d'Etat, Secrétaire Général de la Présidence de la République, Le Ministre d'Etat cha rgé du Plan et du Dé ment, o Rgg^ Pascal Irénée KOUPAKI Abdoulaye 3IO TCHANEt- Le Ministre de l'Economie et des Finances, Le lvlinistre du Travail, de la Fonction Publique et des Affaires Sociales, ua WADAGN Adidiatou MATHYS La lvlinistre de l'Enseignement Supérieur et de la Recherche Scientifique, Marie Odile ATTANASSO Amoliations: PR6-AN 4-CC 2'CS 2-CES 2- HAAC 2-HCJ 2-MESGPR 2'MPD 2- MEF 2' I4ESRS 2-N1TFPAS 2'AUTRES NIINISTERES 16 -SGG 4- IORB : 1 *À î a
