@@ -1,0 +1,3 @@
+# Signatures
+
+Fait a Cotonou 1e er 2077 Par le Président de la RéPublique, Chef de I'Etat, Chef du Couvernement' ,A) Patrice TALON" fevr Le Ministre d'Etat, Secrétaire Général -àe ta Présidence de Ia République' Le Ministre d' chargé du Ptan et du [oppement Marie Odile ATTANASSO ) Àn^., Pascal lrénée KOUPAKI AbdoulaYe io TGHANE Le Ministre de ['Economie et des La Ministre de ['Enseignement Supér'ieur et de [a Recherche Scientifique' îotw Finances, I Ç/â Romuald AMpLrATtoNs: originat:01 ; pR:06; cAB-MtL:-0-6;.AN:02; cc:02; cs:-02; HCJ:02; HAAC:02;-HCJ:02; ME/CD:04; rarsns : o+ l,\EF: oa; autreJ Ministèies 18 ; S-GG-: 6i; sî'î àÈp-rùiîE' or; osiÀ''of 'oôar"t-ocr-ocrcP-DSDV-cF: 08; oNEP' GCONB_DGCSB ; uac-rHalilF;ffip, ô3 ; ùÉ-rosp, z ; oopa :01 ; JoRB :01' o
