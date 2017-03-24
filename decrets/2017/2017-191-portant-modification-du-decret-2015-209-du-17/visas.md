@@ -1,0 +1,18 @@
+# Visas
+
+REPUELIQUE DU BENIN fr.ternlté -Junlc. - T..vall PRESIDENCE OE TA REPUBTIQUE DECRET No 20 17 - ..1.?.1..9.s..?.t..+.e r.q.. ?.0 t z Portant modification du décret 2015-209 du 17 avril 2015 poftant statut particulier du corps des contrôleurs budgétaires.
+tE PRESIDENT DE TA REPUBIIqUE, CHEF DE TETAT, CHEF DU GOUVERNEMENT, Vu la loi no90-32 du 11 décembre 1990 portant Constitution de la République du Bénin ;
+la loi no86-013 du 26 février 1986 portant Statut Général des Agents Permanents de l'Etat et les lois qui l'ont modifiée et complétée ;
+la décision portant proclamation, le 30 mars 2016 par la Cour Constitutionnelle, des résultats définitifs de l'élection présidentielle du 20 mars 2016 ; le décret no2OL6-264 du 06 avril 2016 portant composition du Gouvernement ; le décret n"20L6-292 du 17 mai 2016 fixant la structure ÿpe des ministères ; le décret n" 2016-424 du 20 juillet 2016 portant attributions, organisation et fonctionnement du Ministère du Travail, de la Fonction Publique, et des Affaires Sociales;
+le décret n" 2017-04L du 25 janvier 2017 portant attributions, organisation et fonctionnement du Ministère de l'Economie et des Finances ;
+le décret no163/PR/MFPTT du 26 mai 1967 portant délégation de certains pouvoirs du Président de la République au Ministre de la Fonction Publique en matière dAdministration des personnels de l'Etat ;
+Vu le décret no20L6-624 du 12 octobre 2016 poftant attributions, organisation et fonctionnement du Contrôle Financier ;
+Vu le décret n"59-222 du 15 décembre 1959 portant règlement sur la rémunération, les indemnités et avantages matériels divers alloués aux fonctionnaires des administrations et établissements publics de l'Etat et les actes qui l'ont modlfié ;
+le décret no85-388 du 11 septembre 1985 portant échelonnement indiciaire des corps des personnels des administrations publiques, des entreprises publiques et Vu Vu Vu Vu Vu Vu Vu Vu semi-publiques ;
+le décret no2015-209 du 17 avril 2015 portant statuts particuliers du corps des contrôleurs budgétaires ;
+le décret no98-210 du 11 mai 1998, portant statuts particuliers des corps des personnels de l'administration centrale des finances ;
+proposition conjointe du Ministre du Travail, de la Fonction Publique et des Affaires Sociales et du Ministre de l'Economie et des Finances, DECRETE :
+AÉicle le' : Sont et demeures abrogées, les dispositions des articles 27 et 28 du décret no2015-209 du L7 avril 2015 portant statut particulier du corps des contrôleurs budgétaires.
+Afticle 2 : Les dispositions nouvelles des articles 27 et 28 sont respectivement libellées ainsi qu'il suit :
+Articte 27 nouveau : Seront reversés et reclassés dans le corps des contrôleurs budgétaires à compter de ta date de signature du décret no2015-209 du 17 avril 2015, à concordance de grade et déchelon, les administrateurs des seruices financiers, de la catégorie A, échelle I ou tout autre administrateur de même catégorie et échelle en seruice au Contrôle Financier à ladite date.
+Le reversement et le reclassement se feront sur la demande des intéressés, Articte 28 nouveau : Pendant une période de cinq (05) ans pour compter de la date de signature du décret no2015-209 du 17 avril 2015, les agents de lEtat relevant de catégories autres que la catégorie 4 échelle 1 de la fonction publique, en seruice au Contrôte Financier à ta date du 17 avrit 2015 bénéfîcieront du reversement reclassement dans le corps des contrôleurs budgétaires dès qu'ils seront reclassés dans les corps hiérarchiques correspondants aux formations donnant droit à la catégorie A, échelle 1. Le reversement et le reclassement se feront sur la demande des intéressés. AÊicle 3 : Les autres dispositions du décret no2015-209 du t7 avril 2015 susvisé, demeurent sans changement.
