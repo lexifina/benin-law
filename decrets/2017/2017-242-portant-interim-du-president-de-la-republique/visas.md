@@ -1,0 +1,6 @@
+# Visas
+
+REPUBLIQUE DU BENIN F r qte r n i t é- J u s t i ce-T r a v a i I PRESIDENCE DE LA REPUBLIQUE DECRET N'20{6 - 242 dr 19 avrit 2O!7 portant intérim du Président de la République, pour la période du 2O au 25 avril 2Ol7 inclus.
+LE PRESIDENT DE REPUBLIQUE, CHEF DE LA L'ETAT, CHEF DU GOUVERNEMENT, Vu la loi n'90-32 du I I décembre 1990 portant Constitution de la République du Bénin ;
+Vu la décision portant proclamation, le 30 mars 2016 par la Cour Constitutionnelle, des résultats définitifs de l'élection présidentielle du 20 mars 2016; Vu le décret n"2016-264 du 6 avril 2016 portant composition du Couvernement, Article I "' : Pendant l'absence de Monsieur le Président de la République, Chef de l'Etat, chef du Gouvernement, Monsieur Abdoulaye BIO TCHANE, Ministre d'Etat chargé du Plan et du Développement assure son intérim, du 20 au 27 avril 20,l 7 inclus, dans les limites fixées par la Constitution.
+En cas d'absence de ce dernier, dans la même période, I'intérim du Président de la République, Chef de l'Etat, chef du Gouvernement passe à Monsieur Pascal lrénée KOUPAKI, Ministre d'Etat, Secrétaire Général de la Présidence de la République, dans les limites fixées par la Constitution.
