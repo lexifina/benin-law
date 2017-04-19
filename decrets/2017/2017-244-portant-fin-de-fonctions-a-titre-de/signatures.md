@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le t9 avril Le Président de la République, Chef de l'Etat, Chef du Couvernement, Patrice TALON Le Ministre d'Etat, Secrétaire Cénéral de la Présidence de la République, fr" Pascal lrénée KOUPAKI Le Ministre des Affaires Etrangères et de la Coopération, Le Ministre de I'Econom ie et des Finance s, Marie Odile ATTANASSO l\4inistre lntérimaire Aurélien A. AGBENON I Le Ministre du Travail, de la Fonction Publique et des Affaires Sociales, Adidjatou A. MATHYS AMPLIÂTIONS:PR:6AN:2CC:2 CS:2 CES:2 HAAC 2 IüESGPR: 2 [,4EF :2 IüAEC I2 MTFPAS:2 AUTRES Iÿ]NISTERES: 18 SGG : 4 INTERESSES : 30 JORB: 1.
