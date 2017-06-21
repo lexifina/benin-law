@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, ;u 21.juin 2017 Par le Président de Ia République Chef de l'Etat, Chef du Couvernement, Le Ministre d'Etat, Secrétaire Cénéral de la Présidence de la République, Patrice TALON Le Ministre d'Etat chargé du Plan et du Développement, aye CHANE Le Ministre des Affaires Etrangères et de la Coopération, Aurélien AGBENONC Le Ministre de l'lntérieur et de la Sécurité Publique, Sacca HA Le Ministre de Ia Fonction Publique, du Travail et des Affaires Sociales, Adidjatou MATHYS Plrca^uc . tI' KOUPAKI Pascal lrénée Le Carde des Sceaux, Ministre de la Justice et de Ia Législation, seph DlocB OU Le etd Ministre de l'Economie R uald WADACN Le Ministre de la Décentralisation et de la Cou e Locale, Barnabé ASS LI si t
