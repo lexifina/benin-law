@@ -1,0 +1,7 @@
+# Visas
+
+WG REPUBLIQUE DU BENIN Fralernité - Justice - travâil PRASG2CG PRESIDENCE DE LA REPUBLIQUE DECRETN'2017- 331 du 06 juillet 2017 portant définition de la catégorisation des Aires Protégées de la République du Bénin suivant la nomenclature de l'Union [Vlondiale pour la Conservation de la Nature (UICN) LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT, Vu la loi n" 90-32 du 11 décembre 1990 portant Constitution de la République du Bénin ; Vu la loi n"93-009 du 2 juillet 1993 portant régime des forêts en République du Bénin ; Vu la loi n"98-030 du 12 février'1999 portant loi cadre sur l'environnement en République du Bénin ;
+Vu la loi n"2002-016 du 18 octobre 2004 portant régime de la faune en République du Bénin;
+Vu la décision portant proclamation, le 30 mars 2016 par la Cour Constitution nelle, des résultats définitifs de l'élection présidentielle du 20 mars 2016 ;
+Vu le décret n"2016-264 du 6 avril 2016 portant composition du Gouvernement; Vu le décret n'2O16-292 du 17 mai 2016 fixant la structure{ype des ministères , Vu le décret n'2O11-394 du 28 mai 2011 fixant les modalités de conservation, de développement et de gestion durable de la faune et de ses habitats en République du Bénin;
+Vu le décret n'98-487 du 15 octobre 1998 portant création, attributions et fonctionnement du Centre National de Gestion des Réserves de Faune (CENAGREF) , Sur proposition du Ministre du Cadre de Vie et du Développement Durable, Le Conseil des Ministres entendu en sa séance du 05 juillet DECRETE :
