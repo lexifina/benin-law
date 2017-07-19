@@ -1,0 +1,10 @@
+# Signatures
+
+Fait à Cotonou, le 19 juiller Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Patrice TALON.- de la Prospective, Secrétaire général de la combinaison pour l'UNESCO, Directeur de l'lnstitut National Pour la Formation et la Recherche en Education et Directeur Départemental des Enseignements Primaires et Maternels de I'Atlantique;
+- n'2016-025 du I I février 20.l6 portant nomination au Ministère des Enseignements Maternel et Primaire, de Monsieur AKPONNE Tiamiou en qualité de Directeur du Centre National de Production de Manuels scolaires;
+- n'2006-497 du 07 septembre 2006 portant nomination des Directeurs des Services Techniques au Ministère des Enseignements Maternel et Primaire, de Monsieur CHABI GADO Bio Soumanou en qualité de Directeur des Examens et Concours ;
+- n'2015-276 du22 mai 20,I5 portant nomination de l'inspecteur général et de I'inspecteur général adjoint du Ministère des Enseignements Maternel et Primaire, de Madame AWOUNOU Léocadie Sourou épouse HOUESSOU en qualité d'inspecteur Ceneral du Ministère;
+- n'2015-234 du 06 novembre 20'l5 portant nomination au Ministère de I'Agriculture de l'Elevage et de la Pêche, de Madame ASSOUMA KARIM Zakiyath en qualité de Directrice Générale Adjointe de la SONAPRA ;
+- n"201 5-254 du 8 mai 201 5 portant nomination au Ministère de la Décentralisation, de la Gouvernance Lccale, de I'Administration et de l'Aménagement du Territoire, de Monsieur LEOTOICHAN Sakiou en qualité de Chargé de mission du Préfet des départements de I'Ouémé et du Plateau. <- Le Ministre de l'Economie et des Finances, Marie Odile ATTANASSO Ministre lntérimaire Le Ministre de l'Agriculture de I'Elev e et de la Pêche, Le Ministre des I nements ire, Mate rne I ti ne XARIMOU Le Ministre de la Décentralisation et de la Gouverna r-"'\ nce cale, I D phin O. KOUDANDE Ba z a ASSIGLI Le Minlstre du Travail, de la Fonction Publique et des Affaires Sociales, Adidiatou A. MATHYS AMPLIATIONS:PR6;AN2;CCz;C52;HAAC2;MESGPR2;NPDi2;MEF2;MlL2;MDGL;2;MEEI4t2; MENC : 2; MTFPAS : 2; MWDD: 2; AUTRES MINISTERES 12 ; SGG 4;
+INTERESSES : 1 ; IORB 1.
+I
