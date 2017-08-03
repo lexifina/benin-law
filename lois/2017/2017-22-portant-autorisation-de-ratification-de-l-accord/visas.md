@@ -1,0 +1,5 @@
+# Visas
+
+WG REPUBLIQUE DU BENIN FÉtemité-Juslice-Trâvail PRESIDENCE DE LA REPUBLIOUE LOt N" 2017-22 DU 03 AOÛT 2017 portant autorisation de ratification, de l'accord de prêt additionnel signé à Cotonou, le 28 février 2017, entre la République du Bénin et I'Association lnternationale de Développement (AlD), dans le cadre du financement additionnel de la seconde phase du Programme de Productivité Agricole en Afrique de l'Ouest ( PPAAO)^/VAAP P- Bénin.
+L'Assemblée nationale a délibéré et adopté, en sa séance du '15 juin 2017 ; le Président de la République promulgue la loi dont la teneur suit :
+Article 1e': Est autorisée la ratification, par le Président de la République, de l'accord de prêt d'un montant de dix-huit millions trois cent mille (18 300 000) Euros équivalant à douze milliards quatre millions (12004 000 000 ) de francs CFA, signé à Cotonou, le 28 février 2017 entre la République du Bénin et l'Associatlon Internationale de Développement (AlD), dans le cadre du financement additionnel de la seconde phase du Programme de Productivité Agricole en Afrique de l'Ouest (PPAAO)MAAPP-Bénin.
