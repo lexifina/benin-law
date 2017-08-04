@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le o 4 aoî t 201'7 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Patrice TALON.- Le Garde des Sceaux, Ministre de la lustice et de la Législation, Le Ministre des Affaires Etrangères et de la Coopération, Joseph DJO ENOU Aurelien AGBENONCI AMpLIATIONS:PR:6;ANt4iCC:2;CS:2;CES:2;HAACi2;HC):2;SGG:2;MJL:B;MAEC;2; Autres Mjnistères i 19; Ambassade du Bénin /Allemagne : 2Intéressé I IORB | 1. Article 2 : Le présent décret prend effet pour compter de la date de sa signature sans qu'il soit toutefois porté atteinte à la validité des actes posés par Monsieur Sourou Kossi Heva KOFFI, ni aux droits acquis par les tiers antérieurement à sa publication, sur le fondement de la nationalité béninoise de l'intéressé.
