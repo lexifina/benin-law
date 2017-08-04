@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le o 4 aoôt 2017 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Patrice TALON.- Le Garde des Sceaux, Ministre de la Justice et de la Législation, Le Ministre des Affaires Etrangères et de la Coopération, Joseph DJOGBENOU Auréli en AGBE ONCI AMPLIATIONS:PR:6;AN 4;CC 2;CSr2;CES;2;HAACt2;HC):2;SGG:2;MJL:B;MAEC:2; Autres l,linistères :19 ; Ambassade du Bénin /Allemagne : 2Intéressé 1 JORB : 1. Article 2: Le présent décret prend effet pour compter de la date de sa signature sans qu'il soit toutefois porté atteinte à ia validité des actes posés par Monsieur Amidou ATTI, ni aux droits acquis par les tiers antérieurement à sa publication, sur le fondement de Ia nationalité béninoise de l'intéressé.
