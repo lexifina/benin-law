@@ -1,0 +1,6 @@
+# Visas
+
+^t.i.ti/ REPI]BLIQI]E DU BEMN Fra tcrD i té -J u s tice' îi a va i l PRESIDENCE DE LA REPUBLIQLIE DECRETN'2017- 409 du o4 aolx 2ot7 portant création, organisation et fonctionnement du Comité chargé du ContrôIe de ia gestion des ressources additionnelles et de I'Exécution des missions de Sécurisation du Territoire (CCEST).
+LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT, Vu la Ioi n" 90-32 du 11 décembre 1990 portant Constitution de Ia République du Bénin i Vu 18 juin 1990 portant création des Forces Armées Ia Ioi n'90-016 du Béninoises;
+Vu Vu Vu Vu Vu Sur ia loi n'2005-043 du 26 juin 2006 portant statut général des personnels militaires des Forces Armées Béninoises i Ia loi n"2015-20 du 19 juin 2015 portant statut spécial des personnels des Forces de Sécurité Publique et Assimilées i Ia décision portant proclamation, Ie 30 mars 2016 par la Cour Constitutionnelle, des résultats définitifs de I'éIection présidentielle du 20 mars 2016 ;
+le décret rf20l6'264 du 6 avril 2016 portant composition du Gouvernement i le décret n'2016'416 du 20 juillet 2016 portant attributions, organisation et fonctionnement du Ministère de l'Intérieur et de Ia Sécurité Publique i proposition Président de Ia République, Chef de I'Etat, Chef du Gouvernement, DECRETE:
