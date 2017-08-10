@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 10 août 2017 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Patrice TALON.- [tGJnffi *+- ,lf Le Mrnistre d'Etat, Secrétaire Général de la Présidence de la République, Pascal lrénée KOUPAKI Le Garde des Sceaux, Ministre de la Justice et de la Législation, Le Ministre de l'Economie ances, et Joseph DJOGBENOU Romuald W Le tt/inistre des Enseignements Secondaire, Technique et de la Formation Professionnelle, Lucien KOKOU Ampllatlon§: PR 6 *AN 4-CC2- CS 2 - HCJ 2 - CE§ 2 - HAAC 2 - MESGPR 2 - MJL 2 - MEF 2 * |\4ESTFP 2 -AUTRES MINISTERE§ 17 - §GG 4 . JORB 1.
