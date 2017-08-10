@@ -1,0 +1,8 @@
+# Visas
+
+WG REPUtsLIQUE DU BENIN Fraternit,"Jusüco-Trsvail PR.â5ü2C6 PRESIDENCE DE LA REPUBLIOUE DECRET N'2017- 432 du 10 aott 2017 portant ratification de la Convention de crédit signée le 10 avril 2017, entre la République du Bénin et l'Agence Française de Développement dans le cadre du financement du Proiet de développement de l'enseignement technique, de la formation et de l'insertion professionnelle (DEFI-Pro).
+LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT, Vu la loi n"90-32 du 11 décembre 1990 portant Constitution de la République du Bénin , la loi n'2017-25 du 10 aoûl 2017 portant autorisation de ratification, de la Convention de créditsignée le 10 avril 2017, entre la République du Bénin et l'Agence Française de Développement dans le cadre du financement du Projet de développement de l'enseignement technique, de la formation et de l'insertion professionnelle (DEFI-Pro) ;
+la décision portant proclamation, le 30 mars 2016 par la Cour Constitutionnelle, des résultats définitifs de l'élection présidentielle du 20 mars 20'16;
+Vu Vu Vu le décret n'2016-264 du Gouvernement, 6 avril 2016 portant composition du DECRETE:
+Article 1s': Est ratifiée, la Convention de crédit d'un montant de vingt millions (20 000 000) d'Euros équivalant à treize milliards cent dix-neuf millions cent quarante mille (13 119 140 000) francs CFA, signée le 10 avril 2017 entre la République du Bénin et l'Agence Française de Développement (AFD), dans le cadre du financement du Projet de développement de l'enseignement /:
+technique, de la formation et de l'insertion professionnelle (DEFI-Pro) et dont le texte se trouve ci-joint.
