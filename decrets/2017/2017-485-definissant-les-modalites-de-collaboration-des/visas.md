@@ -1,0 +1,8 @@
+# Visas
+
+REPUBLIQUE DU BENIN -------------00----------- PRESIDENCE DE LA REPUBLIQUE ;2c6 DECRETN"2017. 485 du 02 octobre 2017 définissant les modalités de collaboration des organisations estudiantines avec l'Etat et les autorités des universités publiques en République du Bénin LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEFDE L'ÉTAT, CHEF DU GOUVERNEMENT Vu la loi n. 90-32 du 11 décembre 1990 portant constitution de la République du Bénin ;
+vu la décision portant proclamation, le 30 mars 2016 par la cour constitutionnelle' des résultats définitifs de l'élection présidentielle du 20 mars 2016; Vu le décret n" 2016.264 du 06 avril 2016 portant composition du Gouvernement; Vu le décret n'2016-208 du 04 avril 2016 portant création, attributions, organisation et fonctionnement des universités nationales du Bénin Vu le décret n" 2016-292 du 17 mai 2016 fixant la structure-type des ministères ; Vu le décret n' 2016-208 du 17 mai 2016 portant création, attributions, organisation et fonctionnement des universités nationales du Bénin vu le décret n" 2016-419 du 20 juillet 2016 portant attributions, organisation et fonctionnement du Ministère de I'Enseignement supérieur et de la Recherche Scientifique;
+Vu le décret n" 2016-421du 25 janvier 2017 portant attributions, organisation et fonctionnement du Ministère de I'Economie et des Finances ;
+Sur proposition du Ministre de l'Enseignement Supérieur et de la Recherche scientifique, après consultations des associations d'étudiants ;
+Le Conseil des Ministres entendu en sa séance du....?.6'. j.uillet 2077 t+ DÉCRÈTE:
+CHAPITRE PREMIER: REPRESENTATION DES ETUDIANTS AUPRES DES ADMINISTRATIONS UNIVERSITAIRES
