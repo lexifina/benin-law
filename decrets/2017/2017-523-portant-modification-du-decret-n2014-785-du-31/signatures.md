@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 15 novembre 2017 Par le Président de la République Chef de l'État, Chef du Gouvernement, 4./ Patrice TALON Le Ministre des Affaires étrangères et de la Co pératio n, oseph DJOGBENOU ) Ministre intérimaire Le Garde des Sceaux, Ministre de la Justice et de la Législation, Joseph DJOGBENOU Le Ministre de l'Economie Le Ministre de I'lntérieur et de la Sécurité Publique, et Finances, RomuaId WADA Sa aLA Ministre des lnfrastructures et des Transports, AtrÊllêlig!§ : PR 6 - AN 4 - CC 2 - CS 2 - CES 2 - HAAC 2 - HCJ 2 -MESGPR 2-MJL 2 - MEF 2 - MAEP 2 - MISP 2 - MIT 2 - AUTRES MINISTERES 17 -SGG 4 - JORB 1.
