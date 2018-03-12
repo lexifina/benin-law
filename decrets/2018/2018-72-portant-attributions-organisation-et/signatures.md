@@ -1,0 +1,7 @@
+# Signatures
+
+Fait a Cotonou, le 12 mars 2018 ~d,.1:_~_v _ _ ~
+- Patrice TALON Dona Jean-Claude HOUSSOU (--
+- ·- 7/;
+,(.;£ v' ''I Le Ministre du Travail et de la Fonction Publique, Adidjatou A. MATHYS Ampliations : PR : 06 ; AN : 02 ; CS : 02 ; CC : 02 ; HCJ : 02 ; CES : 02 ; HAAC : 02 ; MEF : 02 ; ME : 02 ; MTFP : 02 ; AUTRES MINISTERES: 19 ; SGG: 04; JORB: 01 l )7 ' ,# ORGANIGRAMME DU MINISTERE DE L'ENERGIE (ME) I MINISTRE I lnspecteur General du Ministere (IGM) I I lnspecteur General I Adjoint du Ministere Secretariat Administratif (SA) Personne Responsable des Assistant du Secreloire.
+(IGAM) Marches Publics {PRMP) Ministre (AM) Porticulier (SP) Personne Responsable des Marches Publics I (PRMP) Secretaire G eneral du Commission de Passation des Marches Publics Directeur de Cabinet Mlnistere (SGM) /CPMPl ~ {DC) Assistant du Directeur I I de Cabinet (A/DC) Secretalre Genera l Adjoint Cellule Juridique (CJ) Directeur Adjoint de du Mlnistere (SGAM) Cabinet {DAC) Assistant du SGM (A/SGM) I ~ Cellule Sectorielle de Pilotage de la Reforme Administrative et lnstitutionnelle {CSPRAI) Conseillers Techniques I I {CT) Directeur de la Programmation Directeur de I' Administration Direction de l'lnformatique et de la Prospective {OPP) et des Finances (OAF) et du Pre archivagc {DIP) I I Directeu r General de la Directeurs Maitrise des Ressources Depart ementaux de Energetiques (DGMRE) l'E nergic, (ODE) \ ABERME I CONTRELEC I \ SBEE l I
