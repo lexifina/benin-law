@@ -1,0 +1,6 @@
+# Visas
+
+{ RÉPUBLIAUE DU BÉNIN TNATERNITE.JUSIICE.TRAVAIL PRÉSIDENCE DE LA RÉPUBLIOUE DÉCRETN"201g- 109 du 30 mars 2018 portant approbation des statuts de I'Agence Nationale des Evénements Culturels, Sportifs et des Manifestations Officielles' LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, Vu vu la loi n" 90-32 du 1 1 décembre 1990 portant constitution de la République du Bénin ; la loi n" 94-009 du 28 juillet 1994 portant création, organisation et fonctionnement des offices à caractère social, culturel et scientifique ;
+la décision portant proclamation, le 30 mars 2016 par la Cour constitutionnelle, des résultats définitifs de l'élection présidentielle du 20 mars 2016 ;
+le décret n" 2017-506 du 27 octobre 2017 poftanl composition du Gouvernement ; le décret n" 2016-292 du 17 mai 2016 fixant la structure-ÿpe des ministères ; le décret n" 2018-049 du 15 février 2018 portant attributions, organisation et fonctionnement du Ministère du Tourisme, de la Culture et des Sports ; le décret n 2017-041 du 25 janvier 2017 porlanl attributions, organisation et fonctionnement du Ministère de l'Economie et des Finances ;
+proposition du Ministre du Tourisme, de la Culture et des Sports, Conseil des Ministres, entendu en sa séance du 14 février 20'l B, vu VU VU VU vu sur le oÉcRÈre:
