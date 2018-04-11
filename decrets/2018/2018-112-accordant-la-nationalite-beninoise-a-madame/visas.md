@@ -1,0 +1,7 @@
+# Visas
+
+RÉPUBLIOUE DU BENIN PR ES]DENC E DE LA RÉPUBLIOUF DÉCRET N' 2018 _ 112 DU 11 AVRIL 2O1B accordant la nationalité béninoise à madame Ablavi Akpayédéwo FIADJIGBE LE PRÉSIDENT DE LA RÉPUBLIOUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, Vu Ia loi n' 90-32 du 11 décembre 1990 portant Constitution de la République du Bénin ; vu la loi 65-17 du 23 juin 1965 portant code de la nationalité dahoméenne ; vu le décret n' Z72|PC|TÀJL du 11 août 1965 fixant les modalités d'application du code de la nationalité dahoméenne ;
+vu la décision portant proclamation, le 30 mars 2016 par la Cour constitutionnelle, des résultats définitifs de l'élection présidentielie du 20 mars 2016 ;
+vu le décret n'2017-506 du 27 octobre 2017 portant composition du Gouvernement; vu le décret n" 2016-292 du 17 mai 2016 fixant la structure-type des ministères; vu le décret n" 2017-586 du 1 3 décembre 2017 portant attributions, organisation et fonctionnement du Ministère des Affaires Etrangères et de Ia Coopération ; vu le décret n" 2016-425 du 20 juillet 2016 portant attributions, organisation et fonctionnement du Ministère de la Justice et de la Législation ;
+vu la requête en date du 22 octobre 2015 de madame Ablavi Akpayédéwo FIADJIGBE et l'engemble des pièces produites ;
+sur proposition du Garde des Sceaux, Ministre de la Justice et de la Législation, le Conseil des Ministres, entendu en sa séance du 11 avril 2018, oÉcRÈre:
