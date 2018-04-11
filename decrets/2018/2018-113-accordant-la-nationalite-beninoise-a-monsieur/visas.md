@@ -1,0 +1,8 @@
+# Visas
+
+REPUBLIQUE DU BENIN =,a!9,.tte.,)t,st:ae : â,ati PR.-SIDENCE DE LA RÉPUBL1OUE DÉCRET N" 2018 - 1 13 DU 1 1 AVRIL 2018 accordant la nationalité béninoise à monsieur Jean Collins NTOHOL LE PRÉSIDENT OE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, Vu Ia loi n' 90-32 du 1 1 décembre 1990 portant Constitution de la République du Bénin ; vu la loi 65-17 du 23 iuin 1965 portant code de la nationalité dahoméenne ; vu Ie décret n' 272lPCll,AJL du 1 1 août 1965 fixant les modalités d'application du code de la natrona lité dahoméenne ;
+vu la décision portant proclamation, le 30 mars 2016 par la Cour constitutionnelle, des résultats définitifs de l'élection présidentielle du 20 mars 2016 ;
+vu le décret n' 2017-506 du 27 octobre 2017 portant composition du Gouvernement: vu le décret n" 2016-292 du 17 mai 2016 fixant la structure-type des ministères , vu le décret n' 2017-586 du 13 décembre 2017 portant attributions, organisation et fonctionnement du Ministère des Affaires Etrangères et de la Coopération ; vu le décret n' 2016-425 du 20 juillet 2016 portant attributions, organisation et fonctionnement du Ministère de la Justice et de la Législation ;
+vu la requête en date du 25 juillet 2013 de monsieur Jean Collins NTOHOL et I'ensemble des pièces produites ;
+aur proposition du Garde des Sceaux, Ministre de la Justice et de la Législation, le Conseil des Ministres, entendu en sa séance du 1 1 avril 2018, DÉcRÈTE:
+Article prem ier La nationalité béninoise est accordée à monsieur Jean Collins NTOHOL, né le 12 août 1963 à Maloundo Omeg (Cameroun), fils de Emmanuel NTOHOL et de Ndogbeng Thérèse NGO.
