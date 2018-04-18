@@ -1,0 +1,7 @@
+# Visas
+
+RÉPUBLIQUE DU BÉNIN I\ttt tt..!t\t^| I hr\tl PRI:SIDENCE DE LA RÉPUBLIQU E DÉcRET N'20lB - i30 DU 1B AVRrL 2018 portânt âttributions, composition, organisation et fonctionnêment des comités de bassin hydrographique LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, la loi n" 90-32 du 11 décembre 1990 portant Constitution de Ia République du Bénin ; lâ lôi 2010-44 du 24 novem,brê 20'10 portânt gestiôn dê l'êau en Répub,lique du tsénin ; la décision portant proclamation, le 30 mars 2016 par la Cour constitution nelle, des résultats définitifs de I'élêction présidentiêllê du 20.na.rs 2016 q decret n ?-417.506 du 27 octobre 2017 portanl compôsttlon du (jouvernemen+ e decret n 2A1ê,-292 c-lu 1; mar 2016 fixant la structure-tvpe des mlnrstères le décret n' 2018-069 du 12 mars 2018 portant attributrons. organisation et fonctionnement du l\ilinistère de l'Eau et des l\ilines :
+le décret n" 2O16-417 du 20 luillet 20'16 portant attributions, organisation et fonctionnement du fiilinistère de la Décentralisation et de la Gouvernance Locâle , Ie décret n' 2016-501 du 11 août 2016 portânt attributions, organisation et fonctionnement du Ministère du Cadre de Vie et du Développêment Durable ; le décret n' 2011-621 du 29 septembre 2011 portant attributions, composition, organisation et fonctiônnement des comitês de bassin ;
+proposition du Ministre de I'Eau et des Mines, Conseil des [Vlinistres. entendu en sa sêance du 18 avril 2018.
+vu vu VU 3Ur le oÉcRÈre:
+CHAPITRE PREMIER: MlSSloN ET ATTRIBUTIONS
