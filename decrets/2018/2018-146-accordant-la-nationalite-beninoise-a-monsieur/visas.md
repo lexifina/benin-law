@@ -1,0 +1,8 @@
+# Visas
+
+BL1À RÉPUBLIQUE DU BÉNIN r,o tetn,tè - lutr tce - 1 t ûvo't Vu VU VU vu VU vu vu vu VU le PRTSGEOO PRÉSIDENCE DE LA RÉPUBLIQUE DÉ.cRET N' 2018 - 146 DU 25 AVRIL 2018 accordant Ia nationalité béninoise à monsieur Edwin PETER LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, DECRETE:
+Article prêmier sur la loi n" 90-32 du 11 décembre 1990 portant constitution de la République du Bénin ; la loi 65-17 du 23 juin 1965 portant code de la nationalité béninoise ; le décret n" 2TZlPCtMJl du 11 août 1965 fixant les modalités d'application du code de la nationalité béninoise ;
+la décision portant proclamation, Ie 30 mars 2016 par la Cour constitutlonnelle, des résultats définitifs de l'élection présidentielle du 20 mars 20'16 ;
+le décret n' 2017-506 du 27 octobre 2017 portant composition du Gouvernement ; le décret n" 2016-292 du 17 mai 20'16 fixant la structure{ype des ministères ; le décret n" 2017-586 du '13 décembrc 2017 portant attributions, organisation et fonctionnement du Ministère des Affaires Etrangères et de la Coopération , le décret n' 2016-425 du 20 juillet 2016 portant attributions, organisation et fonctionnement du Ministère de la Justice et de la Législation ;
+la requète en date â Cotonou du 25 mai 2015 de monsieur Edwin PETER et l'ensemble des pièces produites ;
+proposition du Garde des Sceaux, Ministre de la Justice et de la Législation, Conseil des Ministres, entendu en sa séance du 25 avril 2018, La nationalité béninoise est accordée à monsieur Edwin PETER, né le 23 janvier 1970 à UMUAHIA au Nigéria, fils de l\,4adubuko PETER et de Ekeoba PETER.
