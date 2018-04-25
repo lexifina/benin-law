@@ -1,0 +1,7 @@
+# Visas
+
+r.ateù: tté .) ù -.! t.e- f .dÿa tt PRËSIDENCE DE LA RÉPUBLIQUE REPUBLIQUE DU BÉNIN Vu vu VU vu VU VU vu VU 3Ur le DÉCRET N' 2018 _ 144 DIJ 25 AVRIL 2018 autorisant monsieur Sani Alassane TOURE ISSA MESSOUNA à renoncer à la nationalité bénrnoise.
+LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, la loi n' 90-32 du '1 1 décembre 1990 portant Constitution de la République du Bénin , la loi 65-17 du 23 juin 1965 portant code de la nationalité béninoise , le décret n" Z72lPCll.AJ-, du '1 1 août 1965 fixant les modalrtés d'application du code de la nationalité bénrnoise , la décision portant proclamation. le 30 mars 2016 par la Cour constitutionnelle, des résultats définitifs de l'élection présidentielle du 20 mars 2016 ;
+le décret n" 2017-506 du 27 octobre 2017 pod,.ant composition du Gouvernement, le décret n" 2016-292 du 17 mai 2016 fixant lâ structure-type des ministères ; le décret n" 2017-586 du 13 décembre 2017 portant attributions, organisation et fonctionnement du Ministère des Affaires Etrangères et de la Coopération ; le décret n" 2Q16-425 du 20 juillet 20'16 portant attributions, organisation et fonctionnement du Ministère de la Justice et de la Législation ;
+la requête en date à Cotonou, du 22 septembre 2017 de monsieur Sani Alassane TOURE ISSA MESSOUNA et l'ensemble des pièces produites ;
+proposition du Garde des Sceaux, Ministre de la Justice et de la Législation, Conseil des lvlinistres, entendu en sa séance du 25 avril 20'1 B, DECRETE:
