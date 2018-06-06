@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, [e 06 juin 2018 Par Le Président de [a Répubtique Chef de t'Etat, Chef du Gouvernement, .--.---'Lü/ Le Ministre de t'lntérieur et de La Sécu rité PubLique, Patrice TALON Le Garde des Sceaux, Ministre de La Justice et de [a Législation, ivl -,kt ccÇ s ca LAF Sévé lme QUENUM Le Ministre de [a Décentratisation et "" Le Ministre de I'Economie de [a Gouvernance Locate et in a nces ' Barnabé Z. D IGLI Le Mirristre de L'Economie Numérique et de [a Communication, Aurelie l. ADAM SOULE ZOUMAROU PR 6AN z cc Romuald WADAG \ ÀMPLIATIQNS cs z À,{ÂEC:2-MEF:2 ÀurREs MtNrsrEREs : 16 - sGG : 4 JoRB;1 CES IIAÀC ?, MPD:2 MISP MDGL I i &rôl *ga*qS
