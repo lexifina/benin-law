@@ -1,0 +1,5 @@
+# Visas
+
+REPUELIQUE DU BENIN !-rî ler ité,Justicr-Trivâil PRÉSIDENcE DE LA RÉPUBLIoUE DECRET N" 20{8-208 du 06 juin 2O18 abrogeant le décret n'2015-483 du 07 septembre 2015 portant attributions, organisation et fonctionnement du Conseil national de l'Education (CNE).
+Vu la loi n" 90-32 du 1 1 décembre '1990 portant Constitution de la République du Bénin ; VU la loi n' 2003-17 du 1 1 novembre 2003 portant Orientation de l'Education nationale en République du Bénin, telle que modifiée par la loi n" 2005-33 du 29 août 2005; vu la décision portant proclamation, le 30 mars 2016 par la Cour constitution nelle, des résultats définitifs de l'élection présidentielle du 20 mars 2016 ;
+vu le décret n" 2018-198 du 05 juin 2018 portant composition du Gouvernement ; VU le décret n" 2Q16-292 du 17 mai 2016 fixant Ia structuretype des ministères , vu le décret n" 2016-499 du 1'1 août 2016 portant attributions, organisation et fonctionnement du Secrétariat général de la Présidence de la République ; sur proposition du Ministre d'État, Secrétaire général de la Présidence de Ia République, le Conseil des Ministres, entendu en sa séance du 06 juin 2018, oÉcnÈre;
