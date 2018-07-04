@@ -1,0 +1,10 @@
+# Visas
+
+Vu VU RÉPUBLIQUE DU BÉNIN F ft le n it é-J u slic e-Tnvê il PRÉSIDENCE DE LA RÉPUBLIOUE DÉCRET N'2018 -2B2DU 04 JUILLET 2018 portant régime d'agrément ou d'homologation des équipements terminaux et des équipements ou installations d'accès aux seryices de communication audiovisuelle en République du Bénin.
+la loi n' 90-32 du 'l 1 décembre 1990 portant Constitution de Ia République du Bénin ; la loi organique n' 92-021 du 2'l août 1992 relative à la Haute Autorité de l'Audiovisuel et de la Communication, telle que modifiée par la loi organique n' 93-018 du 27 avril 1994 ;
+le règlement n' Q2/CMiUEMOA du 27 mars 2014 relatif aux normes de compression et de diffusion pour la télévision numérique terrestre dans l'espace UEMOA; la loi n' 90-005 du 15 mai 1990 fixant les conditions d'exercice des activités de commerce en République du Bénin ;
+la loi n" 2OO7-21 du '16 octobre 2007 portant protection du consommateur en République du Bénin ;
+Ia loi n" 2014-22 du 30 septemûe 2014 relative à la radiodiffusion numérique en République du Bénin ;
+la loi n" 2015-07 du 20 mars 2015 portant code de I'information et de la communication en République du Bénin ;
+la décision portant proclamation, le 30 mars 2016 par la Cour constitutionnelle, des résultats définitifs de l'élection présidentielle du 20 mars 2016 ;
+le décret n' 201B-'198 du 05 juin 2018 portant composition du Gouvernement ; Ie décret n'2O16-292 du 17 mai 2016 fixant la structure-type des ministères ; le décret n 2016-420 du 20 juillet 2016 portant attributions, organisation et fonctionnement du Ministère de l'Économie Numérique et de la Communication ; proposition du Ministre de l'Économie Numérique et de la Communication, après avis de la Haute Autorité de I'Audiovisuel et de la Communication, le Conseil des Ministres, entendu en sa séance du 04 juillet 2018, vu VU vu VU vu VU vu vu vu sur À LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, PRTS6EOO DÉCRÈTE CHAPITRE I : DÉFINITIONS, OBJET ET PRINCIPES GÉNÉRAUX
