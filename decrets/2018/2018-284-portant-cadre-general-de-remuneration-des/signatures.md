@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 04 juillet 2018 Par le Président de la République, Chef de l'État, Chef du Gouvernement, eL,LL Le Garde des Sceaux, Ministre de la Justice et de la Législation, {t, ,L7 Patrice TALON Le Ministre de l'Économie et des Finances, Marie Odile ATTANASSO Séverin Ludovi {""9' me QUENUM Ministre lntérimaire ,ÿ Article premier En application des dispositions de l'article 405 de la loi n" 201 5-18 du 1er septembre 2017 portant statut général de la fonction publique, telle que modifiée par la loi n' 2017 -43 du 02 juillet 2018, le présent décret détermine le cadre général de rémunération des collaborateurs externes de l'Etat.
+La Ministre du Travail et de la Fonction Publique, Le Ministre des Petites et Moyennes Entreprises et de la Promotion de l'Emploi, Adidjatou A. MATHYS Modeste T. KEREKOU AUe!!ÀIlgl§ : PR : 6 AN : 2 CC:2 CS:2 CES r2 HCJ 2 HAAC:2 MJL:2 MEF i2 MTFP:2 MPMEPE 2 AUTRES MINISTERES: 18 SGG 4 JORB: 1 ê
