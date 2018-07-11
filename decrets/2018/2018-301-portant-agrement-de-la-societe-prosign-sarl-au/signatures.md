@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 1 'l juiltet 20'l 8 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, { Patrice TALON Le Minist d'État, chargé du ptan u Développement, doulaye BIO TCHANE Le Ministre du Cadre de Vie et du Développement Durable, José TONATO Le Ministre du Travail et de la Fonction Publique, Adidjatou A. MATHYS Le Ministre de l' n-C laude oussou Le Ministre de l'Économie tnances, /) -À r^ WADAG, Romuald Le Ministre de l'lndustrie etduC Serge Maho HISSOU Le Ministre de l'Eau et des M ES, AMPLIATIONS : PR : 6 -AN : 4 - CC : 2 - CS : 2- AUTRES MINISTERES : r6 - SGc : 4-JORB ; 1 ,ADAMBI CES : 2 - HAAC : 2 - MPD i 2. MTFP : 2 - MtC : 2 _ MEM : Z _ ME : 2 - MCVOD : 2 _ 5,* ou SE I
