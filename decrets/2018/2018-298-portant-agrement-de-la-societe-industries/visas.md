@@ -1,0 +1,9 @@
+# Visas
+
+f rcl e n i I é - J ! s lice - I nv a i I PRÉSIDENCE DE LA RÉPUBLIQUE Vu la loi n' 90-32 du 11 Bénin ;
+VU VU VU vu vu vu sur le DÉCRET N" 2018 .298 DU 11 JUILLET 2O1B portant agrément de la société INDUSTRIES LAITIÈRES ET DE BolssoNS DU BÉNlN (ILBB) SARL au régime "B" du Code des investissements, pour le projet d'installation d'une unité de fabrication d'eau de table, de boisson non alcoolisée et de jus de fruits tropicaux à Ouèssè, commune de Ouidah, département de l'Atlantique.
+.-oo .-(r" q\§ LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, décembre '1990 portant Constitution de la République du la loi n. 90-02 du 09 mai 1990 portant code des investissements en République du Bénin, telle que modifiée :
+la décision portant proclamation, le 30 mars 2016 par la cour constitutionnelle, des résultats déiinitifs de l'élection présidentielle du 20 mars 2016 ;
+le décret n. 2018-198 du 05 juin 2018 portant composition du Gouvernement; le décret n 2016-292du 17 mai 2016 fixant la structure-type des ministères ; le décret n" 98-453 du 0B octobre 1998, modifié, fixant les modalités d'application de la loi n" 90-02 du 09 mai 1990 portant code des investissements, telle que modifiée;
+le décret n" 2014-547 du 12 septembre 2014 portant création, attributions, organisation et fonctionnement de I'Agence de Promotion des lnvestissements et àei Èiportations du Bénin, tel que modifié par les décrets n' 2016-167 du 25 mars 2016 et n'2018-036 du 31 janvier 2018 ;
+proposition conjointe du Ministre d'État, chargé du Plan et du Développement, du i/inirtr" de l'lndustrie et du Commerce, du Ministre de l'Économie et des Finances, ;;;À; ;"i. dà la commission Technique des Investissements, en sa session du vendredi 18 août 2O17 , Conseil des Ministres, entendu en sa séance du 11 juillet 2018' DÉcRÈTE
