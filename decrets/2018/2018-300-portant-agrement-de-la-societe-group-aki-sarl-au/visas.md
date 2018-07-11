@@ -1,0 +1,8 @@
+# Visas
+
+,oo a-Y ,é- RÉPUBLIQUE DU BÉNIN F ,âle m ilé - J u slicc-Tnve i I Vu ia loi n" 90-32 du 11 Bénin ;
+vu vu DÉCRET N" 2018 - 3OO DU 11 JUILLET 2O1B portant agrément de la société GROUP-AKI SARL au régime "A" du Code des investissemenls, pour te proj-et d'installation d'une unité de production d'eàui minérales et de jus de fruits à Honviguéli- Yénawa, commune de Covè, département du Zou' décembre 1990 portant Constitution de la République du VU VU VU la loi n" 90-02 du 09 mai 1990 portant Code des investissements en République du Bénin, telle que modifiée ;
+la décision portant proclamation, le 30 mars 2016 par la cour constitutionnelle, des résultats aeiinitifs de l'élection présidentielle du 20 mars 2016;
+le décret n" 2018-198 du 05 juin 2018 portant composition du Gouvernement; le décret n" 2016-292 du '',|7 mai 2016 fixant Ia structure{ype des ministères ; le décret n" 98-453 du 0B octobre 1998, modifié, fixant les modalités d'application OL la loi n" 90-02 du 09 mai 1990 portant Code des investissements, telle que modifiée ;
+le décret n" 2O14-547 du 12 septembre 2014 portant création,. attributions, organisation et fonctionnement de l'Âgence de Promotion des lnvestissements et àuïÈiport"tions du Bénin, tel que moàifié par les décrets n'2016-167 du 25 mars 2016 et n'2018-036 du 31 janvier 2018 ;
+proposition conjointe du Ministre d'État, chargé du Plan et du Développement, du triinirtr" de l'lniustrie et du Commerce, du Ministre de l'Économie et des Finances, ;;rè. ;"i" dé la commisiion Technique des lnvestissements, en sa session du VU sur mercredi 05 juillet 2017, ' Ie Conseil des Ministres, entendu en sa séance du 11 juillet 2018' DÉCRÈTE
