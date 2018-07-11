@@ -1,0 +1,4 @@
+# Visas
+
+9$96'ou- RÉPUBLIQUE DU BÉNIN F rale nilé-J usl ice-Trcva il DECRET N" 2018 - 314 DU 11 JUILLET 2O1B portant règlement du service dans la Police républicaine LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, vu la loi n" 2017- 42 du 02 juillet 2018 portant statut des personnels de la Police républicaine ;
+la décision portant proclamation, le 30 mars 2016 par la Cour constitutionnelle, des résultats définitifs de l'élection présidentielle du 20 mars 2016 ; le décret n'2018-198 du 05 juin 2018 portant composition du Gouvernement; le décret n" 2016-292 du 17 mai 2016 fixant la structure-type des ministères ; le décret n' 2016-416 du 20 juillet 2016 portant attributions, organisation et fonctionnement du ministère de l'lntérieur et de la Sécurité Publique; proposition du Ministre de l'lntérieur et de la Sécurité Publique, Conseil des l\rlinistres, entendu en sa séance du 1 1 juillet 2018, DECRETE TITRE PREMIER : DISPOSITIONS GENERALES
