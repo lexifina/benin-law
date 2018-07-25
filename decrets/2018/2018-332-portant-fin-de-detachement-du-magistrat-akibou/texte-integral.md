@@ -1,0 +1,11 @@
+# Décret n° 2018-332 du 25 juillet 2018 portant fin de détachement du Magistrat Akibou lbrahim GBAGUIDI
+
+^o -çy 45\3' e$t TKL RÉPUBLIQUE DU BÉNIN F É ! c nilé. J ù s lic e -TR v ail PRÉSIOENCE DE LA RÉPUBLIOUE DÉCRET N" 2018.332 DU 25 JUILLET 2O1B portant fin de détachement du Magistrat Aldbou lbnhlm GBAOUIDI.
+Yu la lol n.90-32 du 11 décambre 1990 ærtant constltutlon de la R6publlque du Bênln;
+ylt la loi n. 2001+5 du 21 Ëwler 2003 portant statr,rt de la maglstrature ; vlt h lol orgnnhr.re n' 94{)27 du 18 mars 1990 relaül,€ au Gonsell supôrleur de h Magbtoahrp tolle que modmâo par la lol n' 2018-02 du 02 iulllet 2018 : vu h dêciston portant Podamallon. le 30 mars 2016 par la Cour consllhrüonnelle' des Ésultats dÔllnltltb de ltl€dlon prûsldenüelle du 20 mars 2016 :
+w lo dôcret n.201&198 du 05 juln 2018 porbnt composltion du Gouwrnsrnonl : w le dêc|st n. 201ô,4i13 du 20 Jullht 2016 portant attrlbülons, oryanlsaüon et londlonnemont du Mlnbtère de la Justlce et de la Léglslatlon ;
+aur propostuon du Garde des scaau:q Mlnlstm de la Jusllce et de la Lêglslaüon, aprÈs aüs conûorme du consoll supôrleur de la Maglstrature en sa sosslon du 23 julllet2018, It Cons€ll des Mlnhùos, entendu en sa sôance du 25 Julllet 2018' oÉcRÈre:
+Article prern ier :
+Conformément aux dispositions de l'article 77 dela loi n" 2001-06 du 21 février 2003 portant statut de la magistrature, it est mis fin au détachement de monsieur Akibou lbrahim GBAGUIDI.
+L'intéressé est remis à la disposition du Ministère de la Justice et de la Législation. LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, ll sera publié au Journal officiel Patrice TALON Le Ministre de I'Economie et des Finances, l/4c/ Le Garde des Sceaux, Ministre de la Justice et de la Législation, l-t r ùl,u Romuald WADA Sévérin QUENUM AMPLIATIoNS;PR6AN4CS2CC2HAAC2HCJ2MJL2MEF2AUTRESMINISTERES20SGG4INTERESSEl JORB 1 Arllcle 2 Le présent décret, qui prend effet pour'compter de la date de sâ signature, abroge toutes dispositions antérieures contraires notamment celles du décret n" 2013-518 du 24 décembre 2013 portant détachement à titre de régularisation de monsieur lbrahim Akibou GBAGUIDI pour servir à la Cour constitutionnelle.
+Fait à Cotonou, le 25 juillet 2018 Par Ie Président de Ia République, Chef de l'Etat, Chef du Gouvernement,
