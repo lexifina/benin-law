@@ -1,0 +1,7 @@
+# Visas
+
+-..:_ _ J RÉPUBLIQUE DU BÉNIN F ft ! em il é-J uslicê-Thvail DÉCRET N.2018 -372 DU 22AOUT 2O1B portant approbation des statuts de l'Office National d'lmprimerie et de Presse.
+LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, vu la loi n" 90-32 du 11 décembre 1990 portant constitution de la République du Bénin ; vu la loi organique n" 92-021 du 21 août 1992 relative à ta Haute Autorité de l'Audiovisuel et de la communication telle que modifiée par la loi organique n" 93-018 du 27 avril 1994;
+vu Ia loi n. 94-009 du 28 juillet 1994 portant création, organisation et fonctionnement des offices à caractère social, culturel et scientifique ;
+vg la décision portant proclamation, le 30 mars 2016 par la Cour constitution nelle, des résultats définitifs de l'élection présidentielle du 20 mars 2016 , vt, le décret n" 2018-198 du 05 juin 2018 portant composition du Gouvernement ; vu le décret n" 2016-292 du 17 mai 2016 fixant la structure-type des ministères ; vu le décret n' 2016-420 du 20 juilteËo',16 portant attributions, organisation et fonctionnement du Ministère de l'Économie Numérique et de la Communication ; vr..r le décret n" 2O17-041 du 25 janvier 2017 portant attribulions, organisation et fonctionnement du Ministère de l'Économie et des Finances ;
+sur proposition du Ministre de l'Économie Numérique et de la communication, après avis de la Haute Autorité de l'Audiovisuel et de Ia Communication' le Conseil des Ministres, entendu en sa séance du 22 août 2018' DECRETE
