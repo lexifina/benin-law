@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou.le22 aotl2OlB Par le Président de la RéPublique, Chef de l'Etat, Chef du Gouvernement, -/ a ice TALON Le Ministre de l'Economie et des Finances, R muald WADAG Le Ministre de la Décentralisation et de la Gouvernanc ocale, Le Ministre du Tourisme, de la Culture et des SPorts, Le Ministre du Travail et de la Fonction Publique, Ba rnabé D SSIGLI Adidjatou A. MATHYS ,ÿ Oswald HOMEKY Le t\/inlstre des Enseignements Secondaire, Technique et de la Formation Professionnelle, Mahougnon KAKPO AMPLIÀTIONS : PR:6 :AN : 4; CC :2,C5 t2 | CES :2 ; HAAC :2 ; MTCS : 2 i i'/EF: 2 : I!4DGL : 2 : MTFP : 2 ; I4ESTFP : 2 ; AUTRES MINISTERES 17 ; SGG : 4 ; JoRB : 1
