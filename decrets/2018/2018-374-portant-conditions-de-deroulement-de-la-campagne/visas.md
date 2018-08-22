@@ -1,0 +1,10 @@
+# Visas
+
+pRIsGfoo RÉPUBLIOUE DU BÉNIN F âlemilé- JustÊe- T r avail PRESIDENCE DE LA RÉPUBLIOUE DÉCRET N" 2O1B * 374 DU 22 AOU-I 2O1B portant conditions de déroulement de la campagne de commercialisation 2018-2019 des amandes de karité.
+LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, Vu la loi n' 90-32 du 1 1 décembre 1990 portant Constitution de la République du Bénin ; vu la loi n. S0-0OS du 1 5 mai 1990 fixant les conditions d'exercice des activités de commerce en RéPublique du Bénin ;
+vu la loi n" 84-009 du 15 mars 1984 portant sur lg contrôle des denrées alimentaires ; al la loi n. 87-008 du 21 s'êptembre 1987 portant régime des taxes de contrôle du conditionnement et de normalisation des produits agricoles ;
+la décision portant proclamation, le 30 mars 2016 par la Cour constitutionnelle, des résultats définitifs de l'élection présidentielle du 20 mars 2016 ;
+le décret n. 2018-198 du 05 juin 2018 portant composition du Gouvernement ; le décret n" 2016-292 du 17 mai 2016 fixant la structure-type des ministères ; le décret n" 2018-071 du 12 mars 2018 portant attributions, organisation et fonctionnement du Ministère de l'lndustrie et du Commerce ;
+le décret n"2016-422 du 20 juillet 2016 portant attributions, organisation et fonctionnement du Ministère de l'Agriculture, de l'Elevage et de la Pêche ; le décret n. 87-351 du 23 octobre 1987 portant réglementation de la profession d'acheteur et de négociant de produits agricoles en République du Bénin , le décret n" 88-423 du 28 octobre 19BB portant organisation du commerce des produits agricoles en Républlque du Bénin ;
+le décret n" 88-30 du 20 janvier '1988, portant création de la commission permanente d'Approvisionnement en Facteurs de Productlon, de Commercialisation des Produits Agricoles et du Commerce Général ;
+proposition conjointe du Ministre de l'lndustrie et du commerce et du Ministre de l'Agriculture, de I'Elevage et de Ia Pêche, Conseil des Ministres entendu en sa séance du 22 août 2018, vu vu vu vu vu vu VU vu sur VU le ,f DÉCRÈTE
