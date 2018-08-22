@@ -1,0 +1,7 @@
+# Visas
+
+F RJ\5G2CG ,,., WG , ' REPUBLIQUE DU BENIN F G I e n il é-J u slic e-Trcv a i I PRÉSIDENCE DE LA RÉPUBLIQUE vu VU sur le DÉCRET N' 20'18 - 376 DU 22 AoÛT 2o1B portant cadre de promotion des associations sportives communales en République du Bénin.
+LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, Vu la loi n" 90-32 du 11 décembre 1990 portant Constitution de la République du Bénin ; vu la décision portant proclamation, le 30 mars 2016 par la Cour constitutionnelle, des résultats définitifs de l'élection présidentielle du 20 mars 2016;
+vu le décret n. 2018-198 du 05 juin 2018 portant composition du Gouvernement; vu le décret n" 2016-292 du 17 mai 2016 fixant la structure{ype des ministères ; vu Ie décret n" 2017-041 du 25 janvier 2Q17 portant attributions, organisation et fonctionnement du Ministère de l'Économie et des Finances ;
+vu le décret n' 2018-049 du 15 février 2018 portant attributions, organisation et fonctionnement du Ministère du Tourisme, de la p.ulture et des Sports ; le décret n" 2016-417 du 20 juillet' 2016 portant attributions, organisation et io.jiÀnèrç.! Çy M!n!9!Qre de ta Éécentratisatisn:et-!e la Gouvernance Locate ; ] la convention de partenariat signée entre le Ministère des Sports et les mairies des communes du Bénin ;
+proposition du Ministre du Tourisme, de la Culture et des Spotls, Conseil des lrrlinistres, entendu en sa séance du 22 aoÛt 2018, oÉcnÈre CHAPITRE I : OBJET - DENOMINATION - EMPLOI DU TEMPS
