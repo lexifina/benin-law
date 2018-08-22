@@ -1,0 +1,7 @@
+# Visas
+
+J.., RÉPUBLIQUE DU BÉNIN F rc lerni I é -J lstic e- f r ava il PRÉSIDENCE DE LA RÉPUBLIQUE vu vu vu vu VU sur le DÉCRET N" 2018 - 375 DU 22 AoÛT 2o1B portant institution des Classes Culturelles en République du Bénin.
+LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, Vu la loi n' 90-32 du 11 décembre 1990 portant Constitution dd la République du Bénin ; VU la décision portant proclamation, le 30 mars 2016 par la dour constitutionnelle, des résultats définitifs de l'élection présidentielle du 20 mars 2016 ;
+le décret n" 2018-198 du 05 juin 2018 portant composition du Gouvernement ; le décret n" 2016-292 du 17 mai 2016 fixant lâ structure-type des ministères ; Ie décret n' 2017-041 du 25 janvier 2017 portant attributions, fonctionnement du Ministère de l'Économie et des Finances ;
+le décret n" 2018-049 du 15 février 2018 portant attributions, fonctionnement du Ministère du Tourlsme, de la Culture et des Sports ; Ie décret n 2016-427 du 20 juillet 2016 portant attributions, organisation et fonctionnement du Ministère des Enseignements Secondaire, Technique et de la Formation Professionnelle ;
+organisation et organisation et des Sports et du Ministre Professionnelle, proposition conjointe du Ministre du Tourisme, de la Culturê-pt des Enseignements Secondaire, Technique et de la Formatbn Conseil des Ministres, entendu en sa séance du 22 août 2p{8, I I DÉcRÈTE CHAPITRE I : INSTITUTION - DENOMINATION - CIBLES - EMPLOI DU TEMPS
