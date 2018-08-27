@@ -1,0 +1,7 @@
+# Visas
+
+RÉPUBLIQUE DU BÉNIN Ftutenilé- Justice - frcvoil PRÉSIDENCE DE LA RÉPUBLIQUE DÉCRET n'2o1B - 379 DU 27 AouT 2o1B portant approbation des statuts de l'lnstitut de Formation Sociale, Economique et Civique LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, Vu la loi n" 90-32 du 1 1 décembre '1990 portant Constitution de la République du Bénin ; vu la loi n' 94-009 du 28 juillet '1994 portant création, organisation et fonctionnement des offices à caractères social, culturel et scientifique ;
+vu la décision portant proclamation, le 30 mars 2016 par la Cour constitutionnelle, des résultats définitifs de l'élection présidentielle du 20 mars 2016 ;
+vu le décret n" 2017-506 du 27 octobre 2017 portant composition du Gouvernement; vu le décret n" 2016-292 du 17 mai 2016 fixant la structure-type des ministères; vu le décret n" 2018-029 du 31 janvier 2018 portant attributions, organisation et fonctionnement du Ministère du Travail et de la Fonction Publique ;
+vu le décret n" 2017-041 du 25 janvier 2017 portant attributions, organisation et fonctionnement du Ministère de l'Economie et des Finances ;
+vu le décret n'2008-438 du 28 juillet 2008 portant création, attributions, organisation et fonctionnement de l'lnstitut de Formation Sociale, Économique et Civique , sur proposition du Ministre du Travail et de la Fonction Publique, le Conseil des Ministres, entendu en sa séance du 25 juillet 2018, oÉcnÈre :
