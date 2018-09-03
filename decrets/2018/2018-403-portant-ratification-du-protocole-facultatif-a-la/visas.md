@@ -1,0 +1,4 @@
+# Visas
+
+\/G RÉPUBLIQUE DU BÉNIN FrâtemilÉ-JusUcê-Travail PRESIDENCE DE LA RÉPUBLIQUE DÉCRET N' 2018 - 403 DU 03 SEPTEMBRE 2018 portant ratification du Protocole facultatif à la Convention sur l'élimination de toutes les formes de discrimination à l'égard des femmes, adopté à New York, Ie 06 octobre 1999 LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, vu la loi n" 90-32 du 11 décembre 1990 portant constitution de la République du Bénin , vu la loi n' 2o1 B-30 du 03 septembre 2018 portant autorisation de ratification du Protocole facultatif à la convention sur l'élimination de toutes les formes de discrimination à l'égard des femmes, adopté à New York, Ie 06 octobre 1999 ; vu la déclsion portant proclamation, le 30 mars 2016 par la Cour constitutionnelle, des résultats définitifs de I'élection présidentielle du 20 mars 2016;
+vu le décret n' 2018-198 du 05 juin 2018 portant composition du Gouvernement, DÉCRÈTE
