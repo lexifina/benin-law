@@ -1,0 +1,7 @@
+# Visas
+
+( I I I I I Vu vu vu RÉPUBLIQUE DU BÉNIN Erolernilé-luÿice Trovo PRÉSIDENCE DE tA RÉPUBLIQUE DÉCRET N' 2018 - 404 DU 05 SEPTEMBRE 2O1B portant ratification de la convention de crédit d'un montant de cinquante millions (50 000 000) d'euros équivalant à trente-deux milliards sept cent quatrevingt-dix-sept millions huit cent cinquante mille (32 797 850 000) francs CFA, signée à Paris' le 05 mars 2018 entre la République du Bénin et l'Agence Française de Développement, dans le cadre du financement du Programme d'adaptation des villes au changement climatique (PAVICC).
+LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, la loi n" 90-32 du ,1 1 décembre 1990 portant constitution de la République du Bénin ;
+la loi n. 2018-32 du 05 septembre 2018 portant autorisation de ratification de la convention de crédit d'un montant de cinquante millions (50 000 000) d'euros équivalant à trente-deux milliards sept cent quatre-vingt-dix-sept millions lru-it cent cinquante mille (32 797 850 000) francs cFA, signée à Paris, Ie 05 mars 2018 entre la République du Bénin et l'Agence Française de Développement, dans le cadre du financement du Programme d'adaptation des villes au changement climatique (PAVICC);
+la décision portant proclamation, le 30 mars 2016 par la Cour constitutionnelle, des résultats définitifs de l'élection présidentielle du 20 mars 2016 ;
+le décret n" 201 8-'198 du 05 juin 2018 portant composition du Gouvernement, VU DÉCRÈTE
