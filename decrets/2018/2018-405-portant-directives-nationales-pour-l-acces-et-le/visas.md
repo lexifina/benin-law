@@ -1,0 +1,9 @@
+# Visas
+
+F r alè m il é -J u slice - Tra v a il PRESIDENCE DE LA RÉPUBLIOUE Vu vu VU VU vu vu VU vu vu vu sur DÉCRET N' 2O1B - 405 DU 07 SEPTEMBRE 2O'1 B portant directives nationales pour l'accès et le partage des avantages issus de l'utilisation des ressources génétiques et dei connaissances traditionnelles associées en République du Bénin PNASG2CG LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, la loi n" 90-032 du 11 décembre 1990 portant constitution de la République du Bénin I Ia loi n" 98-030 du 12 février 1999 portant loi-cadre sur l'environnement en République du Bénin ;
+laconventionsurladiversitébiologique,signéele13iuin1992àRiodeJaneiro;
+le traité international sur les ressources phytogénétiques pour l'alimentation et l'agriculture signé le 03 novembre 2001 à Rome (ltalie) ;
+leprotocoledeNagoyasurl'accèsetlepartagejusteetéquitabledesavantagesissus de I'utilisation des ressources génétiques, adopté le 29 octobre 2010 à Nagoya (Japon) , ladécisionportantproclamation,le30mars20l6parlaCourconstitutionnelle'des résultats définitifs de l'élection présidentielle du 20 mars 2016 ;
+le décret n" 2018-198 du 05 juin 2018 portant composition du Gouvernement ; le décr.et î" 2016-292 du 17 mai 2016 fixant la structure - type des ministères ; le décret 2016-501 du 1 1 aoÛt 20'16 portant attributions, organisation et fonctionnement du Ministère du Cadre de Vie et du Développement Durable ;
+le décret n" 2016-422 du 20 juillet 2016 portant attributions, organisation et fonctionnement du Ministère de I'Agriculture, de l'Élevage et de la Pêche ; proposition conjointe du Ministre du Cadre de Vie et du Développement Durable et du Ministre de l'Agriculture, de l'Élevage et de la Pêche ;
+Conseil des Ministres, entendu en sa séance du 15 mars 2017' t+/ le cÉpuautou"Ëou eÉNtr.l DÉcRÈTE
