@@ -1,0 +1,7 @@
+# Visas
+
+I ÀECi(/wc RÉPUBLIQUE DU BÉNIN Ê;âlernité,Justice-Travail PRASG2CG PRÉSIDENCE DE LA RÉPUBLIQUE DÉCRET N'2018 _414DU 12 SEPTEMBRE 2O1B fixant les conditions d'ouverture et de déroulement des enquêtes techniques sur les accidents, incidents d'aviation civile, LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, Vu la loi n" 90-32 du 11 décembre 1990 portant Constitution de la République du Bénin; vu la convention relative à l'aviation civile internationale signée à Chicago le 07 décembre 1944', vu la loi n'20'13-OB du 29 août 2013 portant Code de l'Aviation Civile et Commerciale en République du Bénin ;
+vu la décision portant proclamation, le 30 mars 2016 par la Cour constitutionneile, des résultats définitifs de l'élection présidentielle du 20 mars 2016 ;
+vu le décret n" 201 B-1 98 du 05 juin 2018 por-tant composition du Gouvernement ; vu le décret n" 2016-292 du 17 mai 2016 fixant la structure-type des ministères; VU VU sur le décret n" 2015-045 du 09 février 2015 portant création, attributions, fonctionnement du Bureau Enquêtes-Accidents (BEA) ;
+le décret n' 20.16-418 du 20 juillet 2016 portant attributions, organisation et fonctionnement du Ministère des Infrastructures et des Transports ;
+proposition du Ministre des lnfrastructures et des Transports, Conseil des Ministres, entendu en sa séance du'12 septembre 2018, DECRETE CHAPITRE I : DISPOSITIONS GÉNÉRALES
