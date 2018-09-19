@@ -1,0 +1,13 @@
+# Décret n° 2018-430 du 19 septembre 2018 portant exemption de permis de construire au profit de la caserne militaire à Allada
+
+RÉPUBLIOUE DU BÉNIN F t.le milé-J u I ti cê - T. a v ai1 PRÉSIDENCE DE LA RÉPUBLIOUE DÉCRET N" 2018 _430 DU 19 SEPTEMBRE 2018 portant exemption de permis de conslruire au profit de la caserne militaire à Aliada.
+LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, vu la loi n" 90-32 du 11 décembre 1990 portant constitution de la République du Bénin ; vu la loi n" 97-28-du 15-janvler 1999 portant organisation de I'administration territoriale en République du Bénin ;
+vu la loi n" 97-29 du 15 janvier 1999 portant organisation des communes en République du Bénin ;
+vu la loi n" 98-05 du 1 5 janvier 1999 portant organisation des communes à statut particulier;
+vu la loi n" 98.30 du 12 février 1999 portant loi-cadre sur l'environnement ; vu la décision portânt proclamation, le 30 mars 2016 par Ia Cour constitutionnelle, des résultats définitifs de I'élection présidentielle du 20 mars 2016 ;
+le décret n" 201 8-198 du 05 juin 201 I portant composition du Gouvernement ; le décret n'2016-292 du 17 mai 2016 fixant la structure-type des ministères ; le décret n. 2016-50,1 du 11 août 2016 portant attributions, organisation et fonctionnement du Ministère du Cadre de Vie et du Développement Durable ; le décret n" 2016-421 du 20 juillet 2016 portant attributions, organisation et fonctionnement du Ministère de la Défense Nationale ;
+le décret n. 2006-775 du 31 décembre 2006 portant règles générales de sécurité dans les établissements à risque en République du Bénin;
+le décret nl 2014-205 du 13 mars 20',14 portant réglementation de la délivrance du permis de construire en République du Bénin ;
+proposition du l/linistre du Cadre de Vie et du Développement Durable, Conseil des Ministres, entendu én sa séance du 19 septembre 2018' vl,l VU vu VTI VU VU SUT le PRTSGEOO DÉCRÈTE Artlcle prem ier r'l Leprojetdeconstructiondelacasernemilitaired,Alladaestexemptédepermisdeconstruire conformément aux dispositions des articles 7 et I du décret n' 2O14'2O5 du 13 mars 2014 portantréglernentationdeladélivrancedupermisdeconstfuireenRépubliqueduBénin. A.rticle 2 Le présent décret prend effet pour compter de la date de sa signature et sera publié au Journal officiel.
+Fiü. à-Cotonou, le 19 sePtembre 2018 Par le Président de la RéPublque;
+Chef de l'État, Chef du Gouvernement, Patricê TALON Le Ministre du Cadre de Vie et du DéveloPPement Durable, Fortunet Alain NOUATIN osé TOTIATO AMPLIATIONSJPR6_ÂN4.CS2-CCz-cES2_HAAC2_HCJ2_MDN2-MCVDD2.AUTRESMII§STERES2O_SGG.. Le Ministre délégué auprès du Président de la Répubtique, chârgé de la Défen§e Nationale, JORB 1.
