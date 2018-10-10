@@ -1,0 +1,7 @@
+# Signatures
+
+Fait à Cotonou, le 1 0 octobre 201 I uJ Patrice TALON Article 10 La société JL AUIO PARTS LLC SARL doit se conformer aux dispositions de la loi n" 90- 002 du 09 mai '1990 portant code des lnvestissements, modifiée par Ia loi n: 90-033 du 24 décembre 1990 et l'ordonnance n" 2008-04 du 28 juillet 2008, modifiée par l'ordonnance n" 2008-06 du 05 novembre 2008, puis du décret n'98-453 du 08 octobre 1998 fixant les modalités d'application dudit Code.
+Article 11 Le règlement des litiges qui résulteraient de l'application du présent décret se fera, conformément aux dispositions des articles 73 el 74 de la loi n" 90-002 du 09 mai 1990 porlant Code des lnvestissements, modifiée par la loi n" 90-033 du 24 décembre 1990 et l,ordonnance n' 2008-04 du 28 juillet 2008, modifiée par l'ordonnance n' 2008-06 du 05 novembre 2008.
+Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Minist ;État, chargé du Plan ut Développement, Abdoulaye BIO TCHANE Le Mhistre du Cadre de Vie et du Développement Durable, José TONATO Le Ministre du Travail et de la Fonction Publique, Adidjatou A. MATHYS Le Ministre de l'Économie nances, /'L Romuald WADAGNI Le lvlinistre de l'lndustrie et du Serge Mahou SSOU me Ji LeM istre de l'Energie, Le Ministre de l'Eau et des Mines, Don ean-Claude HO SSoU ADAMBI a J AMPLIATIoNS:PRr6-AN:2-CC:2-CS:2-CES:2-HA^C:2-MPD:2-MTFP:2"MlC:2-MEM:2-MÉ'.2-MCVDDi2
+- MEF:2 - AUTRES MINISTERES:15 - SGG:4-JoRB:1.
+Samou SEID ,4
