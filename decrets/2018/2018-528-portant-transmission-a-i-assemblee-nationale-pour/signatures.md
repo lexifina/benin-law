@@ -1,0 +1,32 @@
+# Signatures
+
+Fait à Porto-Novo, le Le Président de l'Assemblée nationale, Adrien HOUNGBEDJI JJ t-''"' .' r.. l', tj'a r .t ç,rL'1 )1i' rUIN IsÏETTE D[5 IT!fRASTRUCTURES ET DES TRANsPORTS -t RE[ÉRENCE , ..a -q s8 inovrrrtarucql.''.Ô'.ris.',......
+o a j rr, ..f ru§..s-^-rx\.G-^\ i. §/..)r*J . . ..À. æ, J.
+. c{-"r\LLÀ-§*' . . Co*.ezx.'.&*,\-..-*..-tU.$.Èf{-= y. --.,* r - ,,..22 /.:1,ô.l. 4i' DA'i'T DE 5lvl55 tO AU 5 ANl.r oTATI O1.r SGM ;I & c.\ ":) ÿ{ ÿ:
+''t "- " " " " .........
+.,,'.. ...,....,.-....,.,....,...,.,:......,...
+D o UD o'i ATto ti 3r qS REPUBL!QUE D(r §:jl'it,\l I!4lnistère des lrfrel^.u.turÉs c, drg Tralspc ts ûitecticn Gin.r:rle d- 1.:i .:;t:lciur:s Direciiü1î d.:rs Irevar,:I Li AgRIVEE LÊ .G. 5 : rJÊÈG. S/N ouis F I Cr-r E D',êl! r\ oTATt oN DATE pE TRANSMtSStON.,AU MlNtsTgq.:
+ANNOTATION MINISIRE:
+, MKP* t7 e{ -N o,) (}-- e\ èâe 1ra CIFID The OPEC Fund for lnternational Developrnent LOAN NO. 13326P ]NTERNATIONAL ROAD CORRIDOR COTONOU-\IAMEY :
+BEROUBOUAY-MALANVTLLE SECTI ON PROJECT ( 1 69.4 KM) TI]E REPI.IBLIC O],- BEMN LuUti;i É.R3I\./EE L ENBEG.
+€ LOANAGRE]]MENT
+- ,,, BEI'WEEN REPUBi.iQtlE §Eftlf'l Ar.\l) DATED ocToBEr{ 1 t, 201 8 , I irI OFID The OPEC Funci for lnternational Deveiopment AGREEMENI' dated {Jctobcr 11. 2(}l ti bclue,:,r the Republic o1'llcnin $FtD Tlre OPEC Fund for lnternational Development ':General Conditioirs" means OFID Gcncrai Cr:nditioris Âpplicable 1o Public Sector I.oan Agrcclrrents, Dcce:nhcr 2007; and (r) OFID The OPEC Fund for international Development Arti.t.:
+,|, I i i OFID The OPEC Fund for lnternational Developmerrt §FtE,The OPEC Fund for lnternational Development LOANNO.13326P Suleinr Àlllcrbi enera t- OFI§ The OPEC Fund for lnternational Deve opment t' REPLIBL1C OF BENIN AITERNA TI On-AL ROAD CORItl DOR COI'ONOU N I A Ni E\' :
+B-EROIJB OUAY-MALAN\zILLE SECTI ON PR O.rECT ( I (,9.4 Klr4 ) Development OFID The CPEC Fund for lnternational Ancillary \1/orks ,.'| CFID The OPEC,Fund for lnternational Development e À 0û.00 0 GFtrD The OPEC Fund for lnternational Development OFtD The OPEC Fund for lnternational Development REPUBLIC OF BENIN Business Plan New lèxtile PIant Project in Seme-podji, Republic of Benio t.l Oct 2018 'ûyeing and Finishing Section Police, MiliÈry Uniform {Fabric No.1) Ne20 P/c (3s/6' Carded School, Public Uniform (Fabric l,lo.2) lle3 C co (100e6) Cnrd e d Shit, Africôn Design Print, Bed Sheet (Fôbric No.3) I',1e-10 Plc(35/6s) cornbÊd Singeiflg, oesizing, Scourirg & ÈleËching Rènge Mercerizer Singeing, De-ciziftg, Scouring & 8leôching Ronge N4ercerizer P6C Dryer Pèd Steènring RèngE Stenter Frôme Singeing, Deszing, Scouring & Bleëching Range ChÈin Merc€rlzer Stent€r FrÈme StenLer Frame Pod Dryer Thermosol Pad Sieomin RÈnge Stenter Frèn'le (Roi"ry Printer) (Dryer) (Stenier Frnme Shrinking MaÊhlne Fabric lnspection l,lachine (RotÈry Printer) Pëd Dryer Thermosol I%C StÉèmù'19 Range Stenter Frcm€ (RotEry Printer) (01'er) (Stent€r Frame) Shrinklng À,àchin€ (Dryer) (StÊnter FrÉme) Shrinking Môchine Fôbric Inspection [,]èchine Fabric ]ispection Nlôchine Business Plan New Textile Plant Project in Seme,podji, Republic of Benin Oct 2018 §ewing Section Polire, MilitÈry Uâiform (FèbriE No.1) lJ,"2 0 r/c (3s165J Carded school, Public LhiForm [Fdbric llo.2] Ne3C c0 {100%) Grdêd Shiiç Âfriftn Design Print (Fibric 0.3) Plc (3s165) C!mrêd :1 lot :t lor :1 tot :l tor :1 lot :1 lot Bed SheEt IFôbn. tto.3) lle10 Fic (3t6s) tlnrbed (4) Main Equipment List Main equipment required to satisÿ the proposed product mix and production volume are proposed for the Business plan purpose. Detailed equipment configuration and specification shall be elaborated at later stage.
+Most of the core equipment are designed and manufactured in Japan to avair the export credit facility from the Japanese government, Spinning Section Blowroom & Card Draw frame Lap Former & Comber Roving Frame Ring Spinning Frame Auto Winder Flni5hÊd FÈbric Roll Sprêàdjrg Afio Cutting Softng & Bundllng Sey,ir'!/Pressing Flrishing lnspectjon P.cliiag FinishÉd Fèbric Foll Spreôdirg A,,lo Cuttin! Sortir! & Eundling Seyiing/Pressing Flnishing Inspedion Packing Finished Fnbric Roil Spreàding Auto Cuttino Sofün-o 6. Eundling SÊvril]!,i PrÉs5inq Flnlshing hspectio;l Pir:fung FInGhÊd Fèbric Roll SpreEdr'tg ManudlCutt,ng Sodin! & BLrndlin! S€Y,,lng Flnishing Irspe[tior PaÇkirg E L:l Business Plan New Tertile Plant Project in Seme-Podji, Republic of Benin Oct 2018 Z Alr Compressor System industrial Water Treatment System Waste Water Treatment System Steam Boiler System Forklift & Reach Lift Gustic Soda Dissolving System :1 lot :1 lot :l lot :1lot :1 lot :1 lor (5) Utility Consumption Expected demand of the utility is shown below.
+1. Water : t,7OO m3lday
+2. Electriciÿ : 6l'lw
+3. Compressed Air : 6,300M3/hour 4, Steam : 13 tons/hour
+5. LPG : 30 tons/day Water, Electriciÿ and LPG Necessary raw Water, Electricity and LPG shall be provided by MEF to satisfy the amount according to actual production.
+Compressed Air and Steam Compressed Air and Steam will be produced at the Plant.
+(6) Materials It is recommendable to utilize the below-mentioned raw materials for the envlsaged production:
+a. Cotton (Lint) More than 1.o8inch Less than 35.0 I'1ore than 80,0 Less than 25.0 More than 80.0 More than 28,0 Required Qua ntify 120 tons/month Length Uniformlty Trash Count Strength l'{icronaire More than 28.5 120 tons/month 3.9 - 4.3 CD Ne 30s & PC Ne 40s PC Ne 20sr [4ore than 1.1oinch aq_En Busrness Plan New Textile Plant Project in Seme-Podji, Republic of Benin Oct 2018 b. Polyester Fiber 7.1-L.2dx38mm Required Quantity ; 50 tons/month c. Chemicals Chemicals required in process of production are shown below.
+- Sizing Material
+- Caustic Soda
+- Sulfric Acid
+- Sodium Hypochh lorite
+- Sodium Chloride
+- Others x The above ran, materials shall be provided by [{EF.
+x Specific chemicals and its amount required for the project will be elaborated at later stage.
+(7) Organization of the Factory a. Organization Factory organization is to be designed and finally put in ptace by MEF during before commissioning of the plant.
+For reference, a typical organization chat of textile factory is shown below. Eoard lllember General [.lana9er Llê Adrninislrallon/HR l,ian Accounting/lCT Planl Manager MErkellng Llanager Quêliry Control Llan L€§ê 1.1 Sp oning Section l\4anê Iteâvlng Seclion Dyelng & Finishin! Sectiof Mana l"{a:r Seyring Seclion Ulilily Section 1(l
