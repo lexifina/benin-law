@@ -1,0 +1,9 @@
+# Visas
+
+RÉPUBLIQUE DU BÉNIN Fraternité-Justice-Travail PRASG2CG PRÉSIDENCE DE LA RÉPUBLIOUE DÉCRET N'2018 - 547 DU 12 DECEMBRE 2O'I8 modifiant et complétant le décret n' 2014-205 du 13 mars 2014 portant réglementation de la délivrance du permis de construire en République du Bénin.
+LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, GHEF DU GOUVERNEMENT, Vu la loi n" 90-32 du 1 1 décembre 1990 portant Constitution de la République du Bénin , la loi n" 98-30 du 12 février 1999 portant loi-cadre sur l'environnement ; la loi n" 87-015 du 21 septembre'1987 portant code de l'hygiène publique ; la loi n" 2018-12 du 02 juillet 2018 portant régime juridique du bail à usage d'habitation en République du Bénin ;
+la décision portant proclamation, le 30 mars 2016 par la cour constitutionnelle, des résultats définitifs de l'élection présidentielle du 20 mars 2016 ;
+le décret n" 2018-198 du 05 juin 2018 portant composition du Gouvernement, le décret n" 20116-292 du 17 mai 2016 fixant la structure-type des ministères ; le décret n" 2016-501 du 11 août 2016 portant attributions, organisation et fonctionnement du Ministère du Cadre de Vie et du Développement Durable ; le décret n 2017-041 du 25 janvier 2017 portant attributions, organisation et fonctionnement du Ministère de I'Économie et des Finances ;
+le décret n" 2016417 du 20 juillet 2016 portant attributions, organisation et fonctionnement du Ministère de la Décentralisation et de la Gouvernance Locale ; le décret n" 2006-77 5 du 31 décembre 2006 portant règles générales de sécurité dans les établissements à risque en République du Bénin ;
+le décret n 2014-205 du 13 mars 2014 portant réglementation de la délivrance du permis de construire en République du Bénin ;
+proposition du Ministre du Cadre de Vie et du Développement Durable, Conseil des Ministres, entendu en sa séance du 12 décembre 2018, vu vu vu vu vu vu vu vu vu vu vu sur le rf DÉCRÈTE
