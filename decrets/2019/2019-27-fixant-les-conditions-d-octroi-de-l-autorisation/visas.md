@@ -1,0 +1,8 @@
+# Visas
+
+.' AECKlWG REPUBUQUE DU BENIN F ratern ite-Justice-Travail PRESIDENCE DE LA REPUBUQUE PRr~SG2.CG DECRET W 2019 - 027 DU 21 JANVIER 2019 fixant les conditions d'octroi de I'autorisation speciale relative aux sachets en plastique non biodegradables en Republique du Benin.
+LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ETAT, CHEF DU GOUVERNEMENT, Vu la loi n° 90-32 du 11 decembre 1990 portant Constitution de la Republique du Benin; vu la loi 90-005 du 15 mai 1990 fixant les conditions d'exercice des activites de commerce en Republique du Benin ;
+vu la loi n° 98-030 du 12 fevrier 1999 portant loi-cadre sur I'environnement en Republique du Benin;
+vu la loi n° 2017-39 du 26 decembre 2017 portant interdiction de la production, de I'importation, de I'exportation, de la commercialisation, de la detention, de la distribution et de I'utilisation de sachets en plastique non biodegradables en Republique du Benin ; vu la decision portant proclamation, Ie 30 mars 2016 par la Cour constitution nelle, des resultats detinitifs de I'election presidentielle du 20 mars 2016 ;
+vu Ie decret n° 2018-198 du 05 juin 2018 portant composition du Gouvernement ; vu Ie decret n° 2016-292 du 17 mai 2016 fixant la structure-type des ministeres ; vu Ie decret n° 2016-425 du 20 juillet 2016 portant attributions, organisation et fonctionnement du Ministere de la Justice et de la Legislation ;
+vu Ie decret n° 2016-501 du 11 aoOt 2016 portant attributions, organisation et fonctionnement du Ministere du Cadre de Vie et du Developpement Durable; sur proposition du Ministre du Cadre de Vie et du Developpement Durable, Ie Conseil des Ministres, entendu en sa seance du 12 decembre 2018, DECRETE CHAPITRE PREMIER: OBJET ET CHAMP D'APPLICATION
