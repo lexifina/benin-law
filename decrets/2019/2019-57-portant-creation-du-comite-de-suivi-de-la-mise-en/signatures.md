@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 20 février 201 Par le Président de la République, Chef de l'État, chef du Gouvernement, P trice TALON Le Ministre tat, chargé du Plan etd éveloppement, Abd Le Ministre de l'Économie ou ye et des Finances N Le Ministre des Affaires Étrangères et de la Coopération, ,r muald WADAGNI Aurélien A. AGBEN cl Le présent décret prend effet pour compter de la date de sa signature et sera publié au Le Ministre de la Santé, Le Ministre du Travail et de la Fonction Publique, Benjamin lgnace B. HOUNKPATIN idjatou A. MATHYS Le Ministre de l'Enseignement Supérieur et de la Recherche Scientifique, Marie Odile ATTANASSO AMPLIATIONS:PR6-AN4-CC2-CS2_CES2.I-IPÂC2.HCJ2.MEF2_MAEC2_MPD2-MESRS2-MS2'MIÉP2 _AUTRES MINISTERES 16. SGG 4 - JORB 1.
