@@ -1,0 +1,8 @@
+# Visas
+
+RÉPUBLIQUE OU BÉNIN FôEm|é-losbco-Tnÿrl PRÉSIDENCE DE LA RÉPUBLIQUE Vu vu vu vu DÉCRET N" 2019 - 079 DU 13 MARS 2019 portant mise en disponibilité du CommissaÎre principal de police GOUNDETE Cossi Césaire Ernest.
+LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, DÉcRÈTE vu vu vu la loi n'90-32 du 11 décembre 1990 portant Constitution de la République du Bénin ;
+laloi n 201741du 29 décembre 2017 portant création de la Police républicaine ; la loi n" 2017 42 du 02 juillet 2018 portant statut des personnels de la Police républicaine;
+la décision portant proclamation, le 30 mars 2016 par la cour constitutionnelle, des résultats définitifs de l'élection présidentielle du 20 mars 2016 ; le décret n' 2018-1 98 du 05 juin 201 I portant composition du Gouvemement ; le décret n'2016-292 du '17 mai 2016 fixant la structure-type des ministères ; le décret n" 2016-416 du 20 juillet 2016 portant attributions, organisation et fonctionnement du Ministère de l'lntérieur et de la Sécurité Publique ; le décret n" 2017 -041 du 25 janvier 2017 portant attributions, organisation et fonctionnement du Ministère de l'Économie et des Finances ;
+le décret n. 2018-006 du 17 janvier 2018 portant attributions, organisation et fonctionnement de la Direction générale de la Police républicaine ;
+lacorrespondancen.I34ZDGPRySG/DPJ/SAendatedul4décembre2018 *r"gir1iëu àu Secrétariat administratif de la Direction générale. de la Police ;ô;Ëii.;i;" a;rs le numéro 16703 du 14 décembre 2018, relative à Ia demande de mise en disponibilité de l'intéressé, proposition du Miniske de l'lntérieur et de la Sécurité Publique' Conseil des Ministres, entendu en sa séance du 13 mars 2019' vu vu vu sur le
