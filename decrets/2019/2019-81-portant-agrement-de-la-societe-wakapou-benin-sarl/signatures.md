@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 1 3 mars 2019 Par le Président de la République, Chef de l'État, Chef du Gouvernement, P rice TALON Le Minisk État, chargé du Plan Développement, A laye BIO TCHANE Dona u e AMPTIATIONS: PR ]6 AN:2 CC:2 CS : 2. CES ] 2 . I(ÂAC : 2 - MPD : 2 - IIT Le Miniske de l'Économie et des Finances, Le Ministre du Cadre de Vie et du Développement José TONATO Le Minist de l'Énergie, la HOUA Le Ministre de I'lndustrie u Serge Mahouw o HISSOU Le Ministre du Travail et de la Fonction Publique, Adidjatou A. MATHYS Le Ministre de l'Eau AM I'ir\\t §Àlr.llt Samou SEIDO IüEÉ:2 -AUTRES MINISTERES: 15 -SGG:4 -JOR8:1 .ME:2_MEM:2'MCVOO:2- Marie Odile ATTANASSO Ministre intérimaire et et des
