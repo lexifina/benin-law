@@ -1,0 +1,6 @@
+# Visas
+
+RÉPUBTIQUE DU BÉNIN PRASG2CG f rolemilé-Juÿace-Irovoil pnÉsrorNce DE La pÉpugrroue DÉCRET N" 2019 - 093 DU 22 MARS 2019 portant ratification de I'accord de prêt signé à Cotonou, le 19 décembre 2018, entre la République du Bénin et la Banque d'lnvestissement et de Développement de la CEDEAO (BIDC), dans le cadre du financement partiel du Projet d'électrification rurale de cent (100) localités par le réseau centralisé en République du Bénin.
+LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, Vu la loi n" 90-32 du 1 1 décembre 1990 portant constitution de la République du Bénin ; vu la loi n" 2019-15 du22 mars 2019 portant autorisation de ratification de l'accord de prêt signé à Cotonou, le,l9 décembre 2018, entre la République du Bénin et la Banque d'lnvestissement et de Développement de la CEDEAO (BIDC), dans le cadre du financement partiel du Projet d'électrification rurale de cent (100) localités par le réseau centralisé en République du Bénin ;
+vu la décision portant proclamation, le 30 mars 2016 par la Cour constitutionnelle, des résultats définitifs de l'élection présidentielle du 20 mars 2016 ;
+vu le décret n" 2018-198 du 05 juin 2018 portant composition du Gouvernement, DECRETE
