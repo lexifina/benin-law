@@ -1,0 +1,8 @@
+# Visas
+
+Vu vu AECKWG RÉPUBLIQUE DU BÉNIN F r e I e m il é J u sli ce- f n va i I PRASG2CG PRÉSIDENCE DE LA RÉPUBLIQUE DÉCRET N" 2019 - 120 DU 10 AVRIL 2O19 portant agrément de la société DONGACO PAPIERS SARL au régime "C" du Code des lnvestissements, pour le projet d'installation de l'usine de fabrication de papier rame et de papier toilette à Sèmè-Podji, commune de Sèmè-Podji, département de l'Ouémé.
+la loi n' 90-32 du 11 décembre 1990 portant Constitution de la République du Bénin ; la loi n' 90-002 du 09 mai 1990 portant Code des lnvestissements en République du Bénin, telle que modifiée ;
+le décret n" 98-453 du 08 octobre 1998 fixant les modalités d'application de la loi n" 90-002 du 09 mai '1990 portant Code des lnvestissements, modifiée par la loi n" 90-033 du 24 décembre 1990 ;
+la décision portant proclamation, le 30 mars 2016 par la Cour constitutionnelle, des résultats définitifs de l'élection présidentielle du 20 mars 2016 ;
+le décret n" 2018-198 du 05 juin 2018 portant composition du Gouvernement ; le décret n" 2016-292 du 17 mai 2016 fixant la structure-type des ministères ; le décret n.2016-167 du 25 mars 2016 portant modification du décret n" 2a14-547 du 12 septemb re 2014 portant création, attributions, organisation et fonctionnement de l,Agence de Promotion des lnvestissements et des Exportations du Bénin (APlEx);
+proposition du Ministre d'État, chargé du Plan et du Développement, après avis iavorable de la Cellule d'Appui au Comité lnterministériel de Promotion des lnvestissements (cA-clPl), en sa séance du vendredi 1 1 janvier 2019, entériné par le Comité lnterministériel de Promotion des lnvestissements (ClPl), Conseil des Ministres, entendu en sa séance du 10 avril 2019' DÉCRÈTE vu vu vu vu VU sur le
