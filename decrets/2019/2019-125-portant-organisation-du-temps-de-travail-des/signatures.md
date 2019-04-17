@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 17 avril 2019 Par le Président de la RéPubligue, Chef de l'État, Chef du Gouvernement, q Patric TALON Article I Le présent décret, qui prend effet pour compter de la date de sa signature, abroge toutes dispositions antérieures contraires ll sera publié au Journal officiel' Le Garde des Sceaux, Ministre de la Justice et de la Législation, é1-e'"-) Le Ministre de la Santé, Benjamin lgnace B. HOUNKPATIN Le Ministre du Travail et de la Fonction Publique, ,3.,.'^ Séve e QUENUM Le Ministre de l'Économie et des Finances, Romuald WAD A Adidjatou A.
+Le Ministre de I'Enseignement Supérieur et de la Recherche Scientifique, Marie Odile ATTANASSO AMPLIATTONS: PR:6- AN:4- CC r2 - CS: 2 - CES' 2- HAAC:2- HCJ:2 - [4JL: 2- MEF' 2 - MTFP:2 - MS:2 lïiEÊ6ilnurnes MtNtsTERES : l7 - scc : 4 - JoRB : 1' +
