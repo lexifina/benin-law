@@ -1,0 +1,8 @@
+# Visas
+
+IMÀ/ICG RÉPUBLIaUE DU BÉNIN F rol etnil é ) uÿXe. lo ÿo il PRÂSG2CG PRÉSIDÊNCE DE LA RÉPUBLIQUE DÉCRET N' 2019 - 144 DU 22 MAt zoig portant interdiction de la productron, de l'importation, de la commercialisation et de I'utilisatioh des feuilles de tôles ondulées galvanisées non laquées en République du Bénin.
+LE PRÉSIDENT OE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, Vu la loi n'90-32 du 11 décembre 1990 portant Constitution de la République du Bénin ; vu vu vu vu vu VU VU sur le la loi n" 90-005 du 15 mai 1990 fixant les conditions d'exercice des activités de commerce en République du Bénin, telle que modifiée par la loi n'93-007 du 29 mars 1993 ;
+la loi n' 2007 -21 du 16 octobre 2007 portant protection des consommateurs en République du Bénin ;
+ia loi n" 2016-25 du 04 novembre 2016 portant organisation de la concurrence en République du Bénin , la décision portant proclamation, !e 30 mars 2016 par la Cour constitutionnelle, des résultats définitifs de l'élection présidentielle du 20 mars 2016 ;
+le décret n" 2018-198 du 05 juin 2018 ponant composition du Gouvernerrent : le décret n" 2016-292 du 17 mai 2016 fixant la structure-type des ministères , le décret n' 2016-501 du 11 août 2016 portant attributions, organisation et fonctionnement du Ministère du Cadre de Vie et du Développement Durable ; proposition du Ministre du Cadre de Vie et du Développement Durable, Conseil des Ministres, entendu en sa séance du 22 mai 2019, DECRÈTE Artic[e premier Sont interdites, la production, I'importation, la commercialisation et I'utilisation des tôles ondulées galvanisées non laquées.
+.4
