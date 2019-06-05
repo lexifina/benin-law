@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 05 juin 2019 Par le Président de la République, Chef de I'État, Chef du Gouvernement, Patrice TALON Le Ministre des Affaires Finances, Etrang ères et de la Coopération, omuald WADAG-] r Aurélien A. AGBE NCI AMPI-|ATIQX§: PR :6 AN :4 : CC : 2 S:2;CES|2iH,â C :2 ; llCJ : 2 ; MEF : 2 ; IIAEC: 2 ;AUTRES MINISTERES : 20 ; SGG :4 ; JoRB :1 Article 2 Les chefs de Chancelleric sont choisis prioritairement parmi les agents du Ministère des Affaires Étrangères et de !a Coopération appartenant aLt corps des financiers ou ayant des compétences a'rérées en administration et en finances, Le Ministre de l'Économie ü I
