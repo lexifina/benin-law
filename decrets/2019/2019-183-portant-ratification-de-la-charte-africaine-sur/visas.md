@@ -1,0 +1,6 @@
+# Visas
+
+PRA.562CG RÉPUBLIQUE DU BÉNIN Fralemité-Jrtslice-Travail PRÉSIDENCE DE LA RÉPUBLIOUE DÉCRET N'2019 - 183 DU 04 JUILLET 2019 portant ratification de la Charte africaine sur la stlreté et la sécurité maritimes et le développement, signée par les Chefs d'Etat et de Gouvernement de l'Union Africaine à Lomé, le 15 octobre 2016.
+LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT' vu la décision portant proclamation, le 30 mars 2016 par la Cour constitutionnelle, des résultats définitifs de l'élection présidentielle du 20 mars 2016 ;
+le décret n" 2018-198 du 05 juin 20'18 portant composition du Gouvernement, vu Vu vu la loi n.90-32 du 11 décembre 1990 portant constitution de la République du Bénin ;
+Ia loi n" 2019-26 du o4'juitlet 2019 portant autorisation de ratification de la Charte africaine sur la sûreté ei la sécurité'maritimes et,le développement, signée par.les chefs d'Etat et de Gouvernement de l'union Africaine à Lomé, le 15 0ctobre 2016 ; DÉCRÈTE Article Premier Est ratifiée, la charte africaine sur la sûreté et la sécurité maritimes et le développement, signée par les chefs d'Etat et de Gouvernement de l'union Africaine à Lomé, le 15 octobre 2016 et dont le texte se trouve ci-joint'
