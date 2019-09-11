@@ -1,0 +1,10 @@
+# Visas
+
+AECK/ WG REPUBLIQUE DU BENIN . .. i\ (^.:.1 - r-;T -.- -*r' -l r-"g\-r Frate rn ité-J ustice-Trava i I PRESIDENCE DE LA REPUBLIQUE DÉCRET NO 2019 - 4OO DU Il SEPTEIUBRE 2A1g porlant conditions de déroulement de la campagne de commercialisation 2019-2020 des amandes de karité.
+le pnÉsrDENT DE LA nÉpueLreuE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, Vu la loi n" 90-32 du 11 décembre 1990 portant Constitution de Ia République du Bénin ; vu la loi n" 90-005 du 15 mai 1990 fixant les conditions d'exercice des activités de commerce en République du Bénin ;
+vu la loi n' 84-009 du 15 mars 1984 portant sur le contrôle des denrées alimentaires ; vu la loi n' 87-008 du 21 septembre 1987 portant régime des taxes de contrôle du conditionnement et de normalisation des produits agricoles ;
+vu la décision portant proclamation, le 30 mars 2016 par la Cour constitutionnelle, des résultats définitifs de I'élection présidentielle du 20 mars 2oi6;
+vu le décret n" 2019-396 du 05 septembre 2019 portant composition du Gouvernement' vu le décret n" 2016-292 du 17 mai 2016 fixant la structure-type des ministères ; vu le décret no 2018-071 du 12 mars 2018 portant attributions, organisation et fonctionnement du Ministère de l'lndustrie et du Commerce ;
+vu le décret no 2016-422 du 20 juillet 2016 portant attributions, organisation et fonctionnement du Ministère de l'Agriculture, de I'Élevage et de la Pêche ; vu le décret n'87-351 du 23 octobre 1987 portant réglementation de ta profession d'acheteur et de négociant de produits agricoles en République du Bénin ; vu le décret n' 88-423 du 28 octobre 1988 portant organisation du commerce des produits agricoles en République du Bénin ;
+vu le décret n" 88-30 du 20 janvier 19BB portant création de la Commission Permanente d'Approvisiônnement en Facteurs de Production, de Commercialisation des Produits Agricoles et du Commerce Général ;
+sur proposition conjointe du tMinistre de I'lndustrie et du Commerce et du Ministre de l'Agriculture, de l'Élevage et de la Pêche, le conseil des Ministres, entendu en sa séance du 11 septembre zo1g, , DÉcnÈre
