@@ -1,0 +1,8 @@
+# Visas
+
+Vu VU PNâSGZCG Â!c(/,!(-, REPUBLIQUE DU BENIN Fraiernilé-Justrce Travall PRESIDENCE DE LA REPUBLIQUE DÉCRET N' 2019 -4s1 DU 09 ocroBRE 2019 portant règlement financier de l'Autorité nationale chargée de l'action de l'État en mer.
+LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, la loi n'90-32 du 11 décembre 1990 portant Constitution de la République du Bénin ; la loi n' 94-009 du 28 juillet 1994 portant création, organisation et fonctionnement des offices à caractère social, culturel et scientifique;
+la loi n' 2005-43 du 26 juin 2006 portant statut général des personnels militaires des Forces armées béninoises ;
+la décision portant proclanration, le 30 mars 2016 par la Cour constitutionnelle, des résultats définitifs de l'élection présidentielle du 20 mars 2016 , le décret n" 20'19-396 du 05 septembre 2019 portant composition du Gouvernement ; le décret n" 2016-292 du 17 mai 2016 fixant la structure{ype des ministères; le décret n' 20'16-499 du 1 1 août 2016 portant attributions, organisation, et fonctionnement du Secrétariat général de la Présidence de la République ; le décret n" 2017-041 du 25 janvier 2017 portant attributions, organisation et fonctionnement du Ministère de l'Économie et des Finances ;
+le décret n" 2014-785 du 31 décembre 2014 portant création, organisation, attributions et fonctionnement de I'Autorité nationale chargée de l'action de l'État en mer, tel que modifié par le décret n'2019-450 du 09 octobre 2019 ;
+proposition du Président de la République, Chef de l'État, Chef du Gouvernement, Conseil des Ministres, entendu en sa séance du 09 octobre 2019, vt"t VU vu VU vu VU VU sur le DÉcRÈTE CHAPITRE I : DISPOSITIONS GENERALES
