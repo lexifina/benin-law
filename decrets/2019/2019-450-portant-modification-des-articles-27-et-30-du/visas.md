@@ -1,0 +1,7 @@
+# Visas
+
+Vu VU PRASG2CG ^ECK/\ral REPUBLIQUE DU BENIN Fralernilé-Juslrce-Travail PRESIDENCE DE LA REPUBLIQUE DÉCRET N. 2019 - 450 DU 09 OCTOBRE 2019 portant modification des articles 27 et 30 du décret n" 2014-785 du 31 décembre 2014 portant création, attributions, organisation et fonctionnement de l'Autorité nationale chargée de l'action de l'État en mer.
+LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, la loi n' 90-32 du 1 1 décembre 1990 portant Constitution de la Répubiique du Bénin ; Ia Convention des Nations-Unies sur le droit de la mer, signée à lvlontego Bay le 10 oécenrbre 1982;
+la décision portant proclamation, le 30 mars 2016 par la Cour constitution nelle, des résultats définitifs de l'élection présidentielle du 20 mars 2016 ;
+le décret n'2019-396 du 05 septembre 2019 portant composition du Gouvernement ; le décret n" 2016-292 du 17 mai 2016 fixant la structure{ype Ces ministères; le décret 2016-415 du 20 juillet 2016 portant attributions, organisation et fonctionnement du Ministère de la Défense nationale ;
+le décre1 n'2014-785 du 31 décembre 2014 portant création, organisation, attributions et fonctlonnement de l'Autorité Nationale Chargée de l'Action de l'État en l\4er; proposition du Président de la République, Chef de l'État, Chef du Gouvernement, Conseil des Ministres, entendu en sa séance du 09 octobre 2019, r/ Ll vu VU vu VU sur le DECRETE

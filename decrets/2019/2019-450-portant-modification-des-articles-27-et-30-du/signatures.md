@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 09 octobre 2019 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, ,J Le Garde des Sceaux, Ministre de la Justice et de la Législation, ,l,tr Patrice TALON Le Ministre des lnfrastructures et des Transports, Séverin Maxi ENUM ervé Yves HEHOMEY ,{"- Le lr4inistre des Affaires Étrangères et de la Coopération, Le lVlinistre de l'Économie et des Finances, L\-/ Aurélien A. AGBEN ct Romuald WADAGNI Le lvlinistre de I'lntérieur et de la Sécurité Publique, S ca LAFIA AMPLIATIONS:PR 6- AN 4 _CC 2 _ CS 2 _ CES 2 _ HAAC 2 _ I]CJ 2 - I\TIJL2.IUEF 2 _ MAEC 2 - MISP 2 - IVIT 2 -AIJTRES I,{INISTERES 1S. SGG 4. JORTB 1, l
