@@ -1,2 +1,2 @@
 Titre 4: DU POUVOIR LEGISLATIF
-I - DE L'ASSEMBLEE NATIONALE
+I - De l'Assemblée Nationale
