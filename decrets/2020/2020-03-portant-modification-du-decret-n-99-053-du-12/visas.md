@@ -1,0 +1,7 @@
+# Visas
+
+Vu vu VU vu vu 9]ZDSVUd PRESIDENCE DE LA REPUBLIQUE DECRET N" 2O2O _ OO3 DU 08 JANVIER 2O2O portant modification du décret n" 99-053 du 12 f évrier 1999 portant approbation des statuts du Fonds de développement de la Formation continue et de l'apprentissage et modifiant les statuts dudit Fonds.
+LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, la loi n" 90-32 du 11 décembre 1990 portant constitution de la Republique du Bénin, telle que modifiée par la loi n" 2019-40 du 07 novemb re 2019 ;
+la loi n" 94-009 du 28 juillet 1994 portant création, organisation et fonctionnement des offices à caractère social, culturel et scientifique;
+la décision portant proclamation, Ie 30 mars 2016 par la cour constitutionnelle, des résultats définitifs de l'élection présidentielle du 20 mars 20.16;
+le décret n" 2019-396 du 05 septembre 2019 portant composition du Gouvernement ; le décret n" 2016-427 du 20 juillet 2016 portant attributions, organisation et fonctionnement du Ministère des Enseignements secondaire, Technique et de Ia Formation Professionnelle, tel que modifié par le décret n" 2017 -253 du 03 mai 2017; le décret n" 99-053 du 12 février 1999 portant approbation des statuts du Fonds de développement de la Formation continue et de l'apprentissage (FODEFCA) ; proposition conjointe du À/linistre des Enseignements secondaire, rechnique et de la Formation Professionnelle et du [tlinistre du Travail et de la Fonction publique, Conseil des lVlinistres, entendu en sa séance du 0B janvier 2020, VU sur le DÉCRÈTE
