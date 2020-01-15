@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le '15 ja nvier 202 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, u/ cooRDONN EES DE LA zoN E 1 640 HA Y X N" 731136.56 B1 418054.53 730863.32 418487.97 B3 730006.10 B8 417833.94 729234.10 418835.27 728998.00 418408.25 727768.41 417987.70 727012.10 417950.74 724711.70 B3B 415138.87 724953.55 414682.21 727041.83 413313.38 730114.26 416454.79 729716.69 416977.83 P trice TALON Le Ministre du Cadre de Vie et du Le Ministre de l'Économie et des Finances, Développement Durable, José TONATO Romua Id WADAG0 AMPLIAIIONS : PR 6 AN 4 - CS 2 - CC 2 - CES 2 - HCJ 2 - HAAC 2 - MEF 2 - MCVDD 2 _ AUTRES I\IINISTERES 22 _ SGG 4 JORB 1 ,* l
