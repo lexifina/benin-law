@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 15 janvier 2O2O Par le Président de Ia République, Chef de l'État, Chef du Gouvernement, Pa ce TALON C-r-")lo,) ïïi:.y,*" Situation Administrative antérieu re Situation administrative après reversement et reclassement Situation admin istrative après reclassement (avancement) Noms et prénoms Mle Date d'incorporation Date de nomlnation dans le grade Ancienneté de grade au Tsl06lz0ts Grade Réserve d'ancienneté au L9/06/zots Date d'effet Grade et date d'effet HOUNDEGNON Sessi touis Philippe L3/03/rgss CGP 0t/ot/20 2ans5 mois 18 jou rs CGP 2ans5 mois 18 jours HOUNNONKPE Ahofodji Nazaire FP 17/02/te86 PN 01 /o?/1 qq? CGP otl04/20 2ans3 mois 18 jours CGP 2ans3 mois 18 jours INTERESSES 2-JORB.I 4f
