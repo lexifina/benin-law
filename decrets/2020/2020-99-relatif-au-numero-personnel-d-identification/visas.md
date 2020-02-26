@@ -1,0 +1,10 @@
+# Visas
+
+a AECI« WG RÉPUBLIQUE DU BÉNIN Fraternité-Justice-Travail PRÉSTDENCE DE LA RÉpusLreur oÉcnrr N" 2020 - 099 DU 26 FEVRIER 2020 relatif au Numéro personnel d'ldentification.
+LE PRÉSIDENT DE LA RÉPUBI-IQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, Vu la loi n" 90-32 du 1'l décembre 1990 portant Constitution de Ia République du Bénin, telle que modifiée par la loi n" 2019-40 du 07 novembre 2019 ;
+vu la loi n" 2017-08 du 19 juin 2017 portant identification des personnes physiques en République du Bénin ;
+vu la loi n" 2017-20 du 20 avrtl 2018 porlant code du numérique en République du Bénin ;
+vu la décision portant proclamation, le 30 mars 2016 par la Cour constitutionnelle, des résultats définitifs de I'élection présidentielle du 20 mars 2016;
+vu le décret no 2019-396 du 05 septembre 2019 portant composition du Gouvernement;
+vu Ie décret n' 2019-430 du 02 octobre 2019 fixant la structure-type des ministères ; vu le décret n" 2016-499 du 11 août 2016 portarrt attributions, organisation et fonctionnement du Secrétariat général de la Présidence de la République ; vu le décret n" 2016-416 du 20 juillet 2016 portant attributions, organisation et fonctionnement du Ministère de l'lntérieur et de la Sécurité Publique ; vu le décret n' 2016-417 du 20 juillet 2A16 portant attributions, organisation et fonctionnement du Ministère de la Décentralisation et de la-Gouvernance Locale ; vu le décret n" 2019-545 du 11 décembre 2019 portant attributions, organisation et fonctionnement du Ministère du Numérique et de la Digitalisation ;
+vu le décret no 2018-206 du 06 juin 2018 portant attributions, organisation et fonctionnement de I'Agence nationale d'identification des personnes (ANIP) ; sur proposition du Ministre de l'lntérieur et de la Sécurité Publique, le Conseil des Ministres entendu en sa séance du 26 février 2020, ,tf oÉcnÈrr Article prernier : Sens En application de la loi n" 2017-08 du 19 juin 2017 portant identification des personnes en République du Bénin, les dispositions du présent décret définissent les conditions de mise en æuvre et d'exploitation du Numéro personnel d'ldentification, en abrégé "NPl".
