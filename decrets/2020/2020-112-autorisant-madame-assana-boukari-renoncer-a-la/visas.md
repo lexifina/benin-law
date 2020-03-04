@@ -1,0 +1,7 @@
+# Visas
+
+AEC}« WG RÉPUBI-IQUE DU BENIN F râ te rn ité-J u stice-Trava il PRESIDENCE DE LA RÉPUBLIQUE DÉcRET N" 2o2o - 112 DU 04 r\4ARS 2o2o autorisant madame Assana BOUKARI renoncer à la nationalité béninoise.
+LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CI-{EF DU GOUVERNEMENT, Ia loi r-r" 90-32 du 11 décembre 1990 porlant Constitution de la République du Bénin, telle que modifiée par la loi n" 2019-40 du 07 novembre 2019 , la loi n" 65-17 du 23 juin 1965 porlant code de la nationalité béninoise ; le décret n" 2721?C/IVJL du 11 août 1965 fixant les modalités d'application du code de la nationalité béninoise ;
+la décision portant proclamation, le 30 mars 2016 par la Cour constitutionnelle, des résultats definitifs de l'élection présidentielle du 20 mars 2016', le décret no 2019-396 du 05 septembre 2019 portant composition du Gouvernement ;
+le décret n" 2019-430 du 02 octobre 2A19 fixant la structure-type des ministères ; le décret n" 2017-586 du 13 décembre 2017 portant attributions, organisation et fonctionnement du IMinistère des Affaires Etrangères et de la Coopération ; le décret n" 2016-425 du 20 juillet 2016 portant attributions, organisation et fonctionnement du lVinistère de la Justice et de la Législation , la demande formulée le 19 novembre 2O1B par madame Assana BOUKARI et l'ensemble des pièces produites ;
+proposition du Garde des Sceaux, lVlinistre de la Justice et de la Législation, Conseil des tVinistres entendu en sa séance du 04 mars 2024, ,§ a Vu VU vu sur le VU VU VU VU VU vu oÉcnÈrr
