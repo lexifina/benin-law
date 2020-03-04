@@ -1,0 +1,7 @@
+# Visas
+
+Vu VU vu VU VU AECI« WG REPU BLIQI.J E DU BÉI{II.I F raternité'J u stice-Trava il PRESIDENCE DE LA REPUBLIQUE oÉcner N" 2020 - '109 DU 04 tvtARS zo2o autorisant madame Doris Médéssè GANGBENAMON à renoncer à la nationalité béninoise.
+LE PRÉSIDENT DE LA RÉPUELIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMEITT, la loi n" 90-32 du 11 décembre 1990 portant Constitution de la République du tsénin, telle que modifiée par la loi n" 2019-40 du 07 novembre 2019', la loi n" 65-17 du 23 juin 1965 portant code de la nationalité béninoise ; le décret n" 27ZlPClfUJL du 1 1 août 1965 fixant les modalités d'application du code de la nationalité béninoise , Ia décision portant proclamation, le 30 mars 2016 par la Cour constitutionnelle, des résultats définitifs de l'élection présidentielle du 20 mars 2016', le décret no 2019-396 du 05 septembre 2019 portant composition du Gouvernement ;
+le décret n" 2019-430 du 02 octobre 2019 fixant Ia structure-type des ministères ; le décret n" 2017-586 du 13 décembre 2017 portant attributions, organisation et fonctionnement du lMinistère des Affaires Étrangères et de la Coopération ; le décret n" 2016-425 du 20 juillet 2016 portant attributions, organisation et fonctionnement du Ministère de la Justice et de la Législation ;
+la demande formulée le 11 novembre 2018 par madame Doris lVédéssè GANGBENAIMON et l'ensemble des pièces produites ;
+proposition du Garde des Sceaux, [/inistre de la Justice et de la Législation, Conseil des lt/linistres entendu en sa séance du 04 mars 2020, vu VU sur le vu VU oÉcnÈrr
