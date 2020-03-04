@@ -1,0 +1,7 @@
+# Visas
+
+Vu vti VU VU vu AECK/ WG RÉPUBLIQUE DU BÉNIN Fraternité Justice-Travail PRÉSIDENCE DE LA REPUBLIQUE oÉcnrr N" 2o2o - 102 DU 04 TMARS 2o2o autorisant madame Gisèle Pulchérie Ayaba ZOUNON à renoncer à la nationalité béninoise' LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CI-IEF DU GOUVERNEMENT, la loi n. 90-32 du 11 décembre 1990 portant constitution de la République du Bénir-r, telle que modifiée par la loi n' 2019-40 du 07 novembre 2019 , la loi n" 65-17 du 23 juin 1965 portant code de la nationalité béninoise ; le décret n" 272lpcltvJL du 11 août 1965 fixant les modalités d'application du code <je la nationalité béninoise ;
+Ia décision porlant proclamation, le 30 mars 2016 par la cour constitutionnelle, des résultats définitifs de l'élection présidentielle du 20 mars 2016 '' le décret no 2019-396 du 05 septembre 2019 portant compositiott du Gouvernement;
+le décret n" 2O19-430 du 02 octobre 2019 fixant la structure-type des ministères ; le décret n'2017-586 du 13 décembre 2017 portant attributions, organisation et fonctionnement du tVlinistère des Affaires Étrangères et de la Coopération ; le décret n" 2016-425 du 20 juillet 2016 portant attributions, organisation et fonctionnement du lVlinistère de la Justice et de la Législation ;
+la demande formulée le 10 août 2o1B par madame Gisèle Pulchérie Ayaba ZOUNON et l'ensemble des pièces produites ;
+proposition du Garde des sceaux, tr/inistre de la Justice et de la Législation, conseil des fi,/linistres entendu en sa séance du 04 mars 2020, vu vu vu sur le VU oÉcnÈre
