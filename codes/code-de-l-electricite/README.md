@@ -1,6 +1,6 @@
-# Loi n° 2006-16 du 27 mars 2007 portant code de l'électricité en République du Bénin
+# Loi n° 2020-05 du 1er avril 2020 portant code de l'électricité en République du Bénin
 
-- Source : Secrétariat général du Gouvernement du Bénin (sgg.gouv.bj), documenthèque, <https://sgg.gouv.bj/doc/loi-2006-16/download>
-- Date : 2007-03-27 (date du texte dans son intitulé (promulgation/signature) ; la date de publication au Journal officiel n’est pas donnée par la source)
-- Couche texte : PDF natif
-- Unités : 71 articles
+- Source : FAOLEX (FAO Legal Database), fiche LEX-FAOC234919, <https://faolex.fao.org/docs/pdf/ben234919.pdf>
+- Date : 2020-04-01 (date de promulgation dans l’intitulé officiel du SGG (sgg.gouv.bj), le texte venant de FAOLEX ; la date de publication au Journal officiel n’est pas donnée par la source)
+- Couche texte : fournie par l’éditeur sur un document numérisé (non relue)
+- Unités : 93 articles
