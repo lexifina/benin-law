@@ -1,0 +1,8 @@
+# Visas
+
+AECK/WG RÉPUBLIQUE DU BÉNIN Fraternité-lustice Travail PRÉSIDENCE DE LA RÉPUBLIQUE DÉCRET N' 2020 - 296 DU 10 JUIN 2020 portant modification de l'article 10 du décret n' 2014-360 du 16 juin 2014 portant création, attributions, organisation et fonctionnement de l'lnstitut national d'lngénierie de Formation et de Renforcement des Capacités des Formateurs.
+Vu la loi n" 90-32 du '1 1 décembre 1990 portant Constitution de la République du Bénin, telle que modifiée par la loi n" 2019-40 du 07 novembre 2019 " vu la loi n' 2003-17 du 11 novembre 2003 portant orientation de l'Education nationale en République du Bénin, telle que modifiée par la loi n'2005-33 du 06 octobre 2005 ;
+vu la décision portant proclamation, le 30 mars 2016 par la Cour constitutionnelle, des résultats définitifs de l'élection présidentielle du 20 mars 2016 ; vu le décret n' 2019-396 du 05 septembre 201 9 portant composition du Gouvernement ;
+vu le décret n' 2019-430 du 02 octobre 2019 fixant la structure-type des ministères ;
+vu le décret n" 2016-427 du 20 juillet 2016 portant attributions, organisation et fonctionnement du Ministère des Enseignements Secondaire, Technique et de la Formation Professionnelle, tel que modifié par le décret n' 2017-253 du 03 mai 2017 ;
+vu le décret n" 2014-360 du 16 juin 2014 portant création, attributions, organisation et fonctionnement de l'lnstitut national d'lngénierie de Formation et de Renforcement des Capacités des Formateurs , sur proposition du Ministre des Enseignements Secondaire, Iechnique et de la Formation Professionnelle, le Conseil des Ministres entendu en sa séance du 10 juin 2020, DECRETE
