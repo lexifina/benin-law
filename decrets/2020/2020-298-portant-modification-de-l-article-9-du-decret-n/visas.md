@@ -1,0 +1,9 @@
+# Visas
+
+Vu Vu VU VU vu vu VU vu sur le AECI«WG RÉPUBLIQUE DU BÉNIN FraternitéJustice-Travail PRÉSIDENCE DE LA RÉPUBLIOUE DÉCRET N'2o2o - 298 DU 10 JUIN 2o2o portant modification de l'article I du décret n" 201 5- 461 du 07 septembre 2015 portant attributions, organisation et fonctionnement de l'École de Formation des Personnels d'Encadrement de l'Éducation nationale.
+LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, la loi n.90-32 du 11 décembre 1990 portant constitution de la République du Bénin, telle que modifiée par la loi n' 2019-40 du 07 novembre 2019 :
+Ia loi n" 2OOg-17 du 11 novembre 2003 portant orientation de l'Éducation nationale en République du Bénin, telle que modifiée par la loi n'2005-33 du 06 octobre 2005 ; la loi n" 94-009 du 28 juillet 1994 portant création, organisation et fonctionnement des offices à caractère social, culturel et scientifique en République du Bénin ; la décision portant proclamation, Ie 30 mars 2016 par la Cour constitutionnelle, des résultats définitifs de l'élection présidentielle du 20 mars 2016 ;
+le décret n'2019-396 du 05 septembre 2019 portant composition du Gouvernement ;
+le décret n. 2019430 du 02 octobre 2019 fixant la structuretype des ministères ; le décret n" 2015-461 du 07 septembre 2015 portant attributions, organisation et fonctionnement de I'Ecole de Formation des Personnels d'Encadrement de I'Éducation Nationale ;
+le décret n" 2016-427 du 20 juillet 2016 portant attributions, organisation et fonctionnement du Ministère des Enseignements Secondaire, Technique et de la Formation Professionnelle, tel que modifié par le décret n" 2017- 253 du 03 mai 2017 ;
+proposition du Ministre des Enseignements Secondaire, Technique et de la Formation P rofess io n ne lle, Conseil des Ministres entendu en date du 10 juin 2020, DÉCRÈTE

@@ -1,0 +1,6 @@
+# Décret n° 2020-298 du 10 juin 2020 portant modification de l'article 9 du décret n° 2015-461 du 07 septembre 2015 portant attributions, organisation et fonctionnement de l'École de Formation de Personnels d'Encadrement de l'Éducation nationale
+
+- Source : Secrétariat général du Gouvernement du Bénin (sgg.gouv.bj), documenthèque, <https://sgg.gouv.bj/doc/decret-2020-298/download>
+- Date : 2020-06-10 (date du texte dans son intitulé (promulgation/signature) ; la date de publication au Journal officiel n’est pas donnée par la source)
+- Couche texte : fournie par l’éditeur sur un document numérisé (non relue)
+- Unités : 3 articles
