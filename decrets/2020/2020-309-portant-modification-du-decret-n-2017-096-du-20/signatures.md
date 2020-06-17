@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou ,le 17 j uin 2020 )) Situation administrative antérieure Situation administrative Nom et prénoms Grads ou catégorie (date) lndice Date d'intégration Grade/lndice Bonitication de 2 échelons Bonification d'un échelon pour le temps de formation da MATHA Michel Eernadino Théodore Officier de justice A3-5 à/c du 1510411991+ AC Néant s20 16t06/1992 A'l-3 à/c du 16/06/1992+ AC 07 mois A1-5 à/c du 16/06/'1992+ AC 07 mois A1-6 à/c du '16/06/1992+ AC 07 mois Par le Président de la République, Chef de l'État, Chef du Gôuvernement, Patrice TALON fi ».
+I Le reste des dispositions du décret ainsi modifié demeure sans changement. Le Ministre de l'Economie Le Garde des Sceaux, Ministre de la Justice et de la Législation, et s Finances, *^ ,./r^z Ro uald Séverin Maxime QU AMPLIATIONS : PR : 6 : AN : 4 ; cc " z',CS : 2 : HCJ : 2 ; CES : 2 ; HAAC : 2 ; MEF : 2 ; MJL : 2 i AUTRES I\4INISTERES : 22 : SGG : 4 ; JORB : 1 -À"rP WADAGNTT \r(/

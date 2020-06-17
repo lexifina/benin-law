@@ -1,0 +1,9 @@
+# Visas
+
+AECI</WG RÉPUBLIOUE DU BÉNIN Fraternité-Juslice-Travail PRÉSIDENCE DE LA RÉPUBL]OUE DÉCRET N" 2020 - 309 DU 17 JUIN 2020 portant modification du décret n' 2017-096 du 20 février 2017 portant reconstitution de carrière des magistrats intégrés le 11 juillet '1984 dans le corps de la magistrature, uniquement en ce qui concerne le magistrat Michel Bernadino Théodore da MATHA.
+LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, Vu la loi n.90-32 du 11 décembre 1990 portant constitution de la République du Bénin, telle que modifiée par la loi n" 2019-40 du 07 novembre 2019 , la loi n. 2001-35 du 21 février 2003 portant statut de la Magistrature, telle que modifiée et complétée par la loi n" 2019-12 du 25 février 2019 ;
+la décision portant proclamation, le 30 mars 2016 par la Cour constitutionnelle, des résultats définitifs de l'élection présidentielle du 20 mars 2016 ; le décret n" 2019-396 du 05 septembre 2019 portant composition du Gouvernement ;
+le décret n. 2019-430 du 02 octobre 2019 fixant la structure-type des ministères ; le décret n" 2020-079 du 19 février 2020 portant attributions, organisation et fonctionnement du Ministère de la Justice et de la Législation ;
+le décret n" 80-34 du 11 février 1980 portant déblocage total et définitif des avantages financiers correspondant aux avancements des agents permanents de l,Etat ei des personnels militaires des Forces armées populaires du Bénin, pour compter du 1e' janvier 1 980 ;
+le décret n" 2017-096 du 20 février 2017 portant reconstitution de carrière des Magistrats intégrés à partir du 11 juillet 1984 ;
+l,avis du conseil supérieur de la Magistrature en sa séance du 28 août 2018 ; proposition du Garde des sceaux, Ministre de la Justice et de la Législation, Conseil des Ministres entendu en sa séance du 17 juin 2020 ' DÉCRÈTE VU VU vu vu vu sur le vu vu vu
