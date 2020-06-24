@@ -1,0 +1,8 @@
+# Visas
+
+AECI(WG Vu RÉPUBLIOUE DU BÉNIN PRÉSIDENCE DE LA RÉPUBLIQUE DECRET N. 2020 - 326 DU 24 JU|N 2020 portant suspension de la cession du patrimoine foncier des communes.
+LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, la loi n" 90-32 du"l I décembre '1990 portant Constitution de la République du Bénin, telle que modifiée par la loi n" 2019-40 du 07 novembre 2019 ;
+la loi n" 2013-01 du 14 août 2013 portant code foncier et domanial en République du Bénin, telle que modifiée et complétée par la loi n" 2O1Z-15 Ou lO aoOt )OtZ ; la loi n' 97 -029 du 15 janvier 1999 portant organisation des communes en République du Bénin ;
+la décision portant proclamation, Ie 30 mars 2016 par la cour constitutionnelle, des résultats définitifs de l'élection présidentielle du 20 mars 2016 ; le décret n" 2019-396 du 05 septembre 2019 portant composition du Gouvernement ;
+le décret n'20'19-430 du 02 octobre 2019 fixant la structure-type des ministères ; le décret n' 2016-417 du 20 juillet 201 6 portant attributions, organisation et fonctionnement du Ministère de la Décentralisation et de la GouvernaÀce Locale ; le décret n' 2019-547 du 11 décembre 2019 portant attributions, organisation et fonctionnement du tMinistère du Cadre de Vie et du Développement Durable; le décret n" 2017-041 du 25 janvier 2017 portant attributions, organisation et fonctionnement du Ministère de l'Economie et des Finances ;
+proposition du Ministre de la Décentralisation et de la Gouvernance Locale, du Ministre du cadre de Vie et du Développement Durable et du Ministre de l'Économie et des Finances, Conseil des Ministres entendu en sa séance du 24 juin 2020, oÉcnÈre vu vu vu VU vu VU vu vu sur le
