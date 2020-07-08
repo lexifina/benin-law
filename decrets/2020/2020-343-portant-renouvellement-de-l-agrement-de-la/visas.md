@@ -1,0 +1,8 @@
+# Visas
+
+RÉPUBLIQUE DU BÉNIN F rate rn ité -J u stice- Trava il PRÉSIDENCE DE LA RÉPUBLIQUE LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, Vu Ia loi n'90-32 du 11 décembre 1990 portant Constitution de la République du Bénin, telle que modifiée par la loi n" 2019-40 du 07 novembre 2019 ;
+la décision portant proclamation, le 30 mars 2016 par la Cour constitutionnelle, des résultats définitifs de l'élection présidentielle du 20 mars 2016 ;
+le décret n" 2019-396 du 05 septembre2019 portant composition du Gouvernement; le décret n" 20'19-430 du 02 octobre 2019 fixant la structure{ype des ministères ; le décret n" 2020-078 du 19 février 2020 portant attributions, organisation et fonctionnement du Ministère de la Santé ;
+Ie décret n'89-307 du 28 juillet 1989 créant la Centrale d'Achat des Médicaments Essentiels et Consommables Médicaux (CAME) et ses actes modificatifs ; le décret n" 2018-253 du 20 juin 2018 portant retrait de I'agrément accordé à la Centrale d'Achat des Médicaments Essentiels et Consommables Médicaux ;
+le décret n" 2018-260 du 28 juin 2018 portant agrément provisoire accordé à la Centrale d'Achat des Médicaments Essentiels et Consommables Médicaux et mise en place d'un administrateur provisoire ;
+le décret n" 2019-220 du 31 juillet 2019 portant renouvellement de I'agrément de la Centrale d'Achat des Médicaments Essentiels et Consommables Médicaux ; proposition du Ministre de la Santé, Conseil des Ministres entendu en sa séance du 0B juillet 2020, vu vu vu vu vu vu vu vu sur le DÉCRÈTE Article pre.mier L'agrément provisoire accordé à la Centrale d'Achat des Médicaments essentiels et Consommables médicaux est renouvelé pour une période de trois (3) mois à compter du 1"' juillet 2020.
