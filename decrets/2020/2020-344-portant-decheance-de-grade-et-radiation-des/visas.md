@@ -1,0 +1,15 @@
+# Visas
+
+RÉPUBLIQUE DU BÉNIN AECI(/ WG Fraternité ltrsiice'Travail Vu VU VU VU vu VU vu vu VU PRÉSIDENCE DE LA RÉPUBLIQUE DÉCRET N" 2O2O _ 344 DU OB JUILLET 2O2O portant déchéance de grade et radiation des officiers subalternes Souradjou ALLASSANE et Gilbert CODJO des effectifs de la Police républicaine.
+LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, la loi n'90-32 du 11 décembre 1990 portant Constitution de la République du Bénin, telle que modifiée par la loi n" 2019-40 du 07 novembre 2019 ', la loi n''86-014 du 26 septembre 1986 portant Code des pensions civiles et militaires de retraite, telle que modifiée et complétée par la loi n' 2015-19 du 02 avril 2015 ; la loi n' 2017-41 du 29 décembre2017 portant création de la Police républicaine ; la loi n' 2017-42 du 02 juillet 2018 portant statut des personnels de la Police républicaine, la décision portant proclamation, le 30 mars 2016 par la Cour constitutionnelle, des résultats définitifs de l'élection présidentielle du 20 mars 20'16 ;
+le décret n" 2019-396 du 05 septembre 2019 portant composition du Gouvernement;
+le décret n" 2019-430 du 02 octobre 2019 fixant la structure-type des ministères ; le décret n" 2020-322 du 24 juin 2020 portant attributions, organisation et fonctionnement du [\4inistère de la Défense nationale ;
+le décret n" 2016-416 du 20 juillet 2016 portant attributions, organisation et fonctionnement du [Vlinistère de l'lntérieur et de la Sécurité Publique ; le décret n" 2017-041 du 25 janvier 2017 porlant attributions, organisation et fonctionnement du IVIinistère de l'Économie et des Finances ;
+le décret n" 2018-006 du 17 janvier 2018 portant attributions, organisation et fonctionnement de la Direction générale de la Police républicaine ;
+le décret n" 2018-314 du 1 1 juillet 2018 portant règlement du service dans la Police républicaine;
+le décret n" 2015-127 du 10 avril 2015 portant promotion au grade de capitaine ou de lieutenant de vaisseau, de certains officiers des Forces armées béninoises ; le décret n' 2016-041 du 10 mars 2016 portant promotion au grade de capitaine ou de lieutenant de vaisseau, de certains officiers des Forces armées béninoises ; la décision n" 239/lt/lDN/DCiSG/DHRiSCH/SP-C du 06 mars 2003 portant admission dans la Gendarmerie nationale du Bénin des élèves gendarmes de la 2Bè'" promotion ;
+VU VU VU VU vu .tt VU la décision n" 1711IIMDNiDC/SG/DRH/SGSC/SP-C du 26 juin 2014 porlant admission dans la Gendarmerie nationale du Bénin des élèves gendarmes de la 32ème promotion ;
+les décisions n' 590/MDN/DC/SG/DHR/SCH/SP-C du 11 juin 2OO4 et n" 0529/MDN/DC/SG/DRH/SGSC/SP-C du 20 mai 2015 portant titularisation des élèves gendarmes respectivement de la 28è et de la 32è promotion ;
+le message-porté n' 007/DGPR/SG/DRHC/SIVAAC/SA du 14 mars 2018 portant désertion d'un officier subalterne ;
+le message-porté n" 010/DGPRiSG/DRHC/SMAACISA du 12 avril 2018 portant désertion d'un officier subalterne ;
+rapport du lVlinistre de l'lntérieur et de Ia Sécurité Publique, DÉcRÈTE VU
