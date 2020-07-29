@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou , le 29 juillet 2020 Par le Président de la République Chef de l'Etat, chef du gouvernement, .,/ LL<) dt Sa a LAFIA Le Ministre de la Décentralis tion de la Gouvern an Le À/linistre de l'Economie Numérique et de Ia Digitalisation, Le Ministre de l'lntérieur et de la Sécurité Publique, Patrice TALON Le Garde des Sceaux, Ministre de la Justice et de la Législation, .4/ra Sév NU tn istre de I'Economie et des Finances, ()-L <:) Romuald WADAGNI Alassane SEIDOU )- Aurelie ADAM SOULE ZOUMAROU PR :6AN .zCC.zCS : 2 CES:2 HAAC :2 MtSp : ZMJL:IMDGL: 2MEF:2 MND 02 : AUTRES MTNISTERES : ,18 SGG : 4. ANlp 02; DEt 2; PREFECTRES 12; JORB : 1 AMPLIATIONS I
