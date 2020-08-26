@@ -1,0 +1,8 @@
+# Visas
+
+AECK,/ WG RÉPUBLIQUE DU BENIN Fraternité - Justice - Travail PRÉSIDENCE DE LA RÉPUBLIQUE Vu VU VU vu VU VU sur le DÉCRET N'2020 -414DU 26 AoÛT 2o2o nortant création et règles de gestion du Fonds national de Réponse aux Catastrophes LE PRÉSIDENT DE LA, RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, laloin.90-32du11décembrelgg0portantC-onstitutiondelaRépubliquedu iîe"-i., t"ffà que modifiée par la loi 2O1g-40 du 07 novembre 2019;
+la loi organique n" 2013-14 du 27 septembre2Ol3 relative aux lois de finances ; la décision portant proclamation, le 30 mars 2016 par la Cour constitutionnelle' iir.iàr-ritrti Jéfinitifs de t'élection présidentielle du 20 mars 2016 ; 05 septembre 2019 portant composition du le décret n' 2019-396 du Gouvernement , ledécretn"20lg.430du02octobre20lgfixantlastructuretypedesministères;
+ledécretn"2O17-O4ldu25jan,vier20lTportant.attributions'organisationet ii.Ëtiànï"r"nt du N/linistère de l'Économie et des Finances ;
+proposition du tVlinistre de l'Économie et des Finances' Conseil des lVlinistres entendu en sa séance du 26 aot|2020 ' DÉCRÈTE CHAPITRE PREMIER : CREATION - REGIME JURIDIQUE Article Premier ll est créé, en République du Bénin' une ligne budgétaire domiciliée dans les livres de la Direction générale du Trésor et de la comptabilité publique dénommée « Fonds national de Réponse aux Catastrophes »' Le Fonds est créé pour une durée indéterminée.
+,tt Le Ministre chargé des Finances est'ordonnateur du Fonds nationar de Réponse aux catastrophes' A ce titre, ir prescrit les dépenses. , peut déréguer son pouvoir d'ordonnateur au Directeur générar du Budget dans les conditions déterminées suivant les règles de gestion du Fonds.
+cHAptTRE lt : DEF|NtTtONS
