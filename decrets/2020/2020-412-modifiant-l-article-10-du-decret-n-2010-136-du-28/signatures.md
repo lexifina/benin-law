@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 26 août 2020 Par le Président de la Répubtique, Chef de l'Etat, Chef du Gouvernement, Le Ministre de l'Économie et des Finances, Rom Le Ministre des Petites et Moyennes Entreprises et de la Promotion de l,Emploi, Modeste Tihounté KEREKOU AMPLIATIONS PR:6;AN:4;CC Le Ministre du Travail et de la Fonction Publique, Adidjatou A. MATHYS 2 : CS : 2 ; HCJ : 2 ; CES : 2 ; HAAC : 2 ; I1,4EF : 2 ; MPMEPE : 2 ; MTFP : 2 ; AUTRES rf MINISTERES : 21 ; SGG : 4 ; JORB : 1 Le présent décret, qui prend effet pour compter de la date de sa signature, sera publié Patrice TALON l I

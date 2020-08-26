@@ -1,0 +1,9 @@
+# Visas
+
+Vu vu vu AFCK/WG RÉPUBLIaUE DU BÉNIN Fraternité - Justice - Travail PRÉSIDENCE DE LA RÉPUBLIQUE DÉCRET N'2020 -412DU26 AoÛT 2o2o modifiant I'article 10 du décret n'2010-136 du 28 avril 2010 portant création, attributions, organisation et fonctionnement du Centre de Perfectionnement et d'Assistance en Gestion.
+LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, la loi n" 90-32 du 1 1 décembre 1990 portant Constitution de la République du Bénin, telle que modifiée par la loi n" 2019-40 du 07 novembre 2019 ;
+la loi n' 94-009 du 28 juillet'1994 portant création, organisation et fonctionnement des offices à caractère social, culturel et scientifique ;
+la décision portant proclamation, le 30 mars 2016 par la Cour constitutionnelle, des résultats définitifs de l'élection présidentielle du 20 mars 2016 ; le décret n'2019-396 du 05 septembre 20'19 portant composition du Gouvernement; le décret n'2019-430 du 02 octobre 2019 fixant la structure{ype des ministères ; le décret n" 2020-028 du 15 janvier 2020 portant attributions, organisation et fonctionnement du lVlinistère des Petites et fi/oyennes Entreprises et de Ia Promotion de I'Emploi ;
+le décret n" 2017-041 du 25.janvier 2017 porlant attributions, organisation et fonctionnement du Ministère de l'Economie et des Finances ;
+le décret n" 2020-241 du 15 avril 2020 portant attributions, organisation et fonctionnement du [Vlinistère du Travail et de la Fonction Publique ;
+le décret n' 2010-136 du 28 avril 2010 portant création, attributions, organisation et fonctionnement du Centre de Perfectionnement et d'Assistance en Gestion ; proposition du lVlinistre des Petites et lVloyennes Entreprises et de la Promotion de l'Emploi, Conseil des Ministres entendu en sa séance du26 aottt 2020 ' vu vu vu VU VU VU sur le DECRETE
