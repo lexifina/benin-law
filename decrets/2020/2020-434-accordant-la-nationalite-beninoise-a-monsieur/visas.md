@@ -1,0 +1,7 @@
+# Visas
+
+Vu VU vu VU AECI«WG RÉPUBLIQUE DU BÉNIN Frâternité - Justice - Travail PRÉSIDENCE DE LA RÉPUBLIQUE LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, la loi n" 90-32 du 11 décembre'lgg0 portant constitution de la République du Bénin, telle que modifiée par la loi n. 2019-40 du 07 novemb re 2019 : la loi n' 65-17 du 23 juin 1 965 portant code de la nationalité béninoise ; le décret n' 272|PC/MJL du "l 1 août 1965 fixant les modalités d,application du code de la nationalité béninoise ;
+la décision portant proclamation, le 30 mars 2016 par la cour constitutionnelle, des résultats définitifs de l'élection présidentielle du 20 mars 2016 ;
+le décret n' 201 9-396 du 0s septemb re 2019 portant composition du Gouvernement ; le décret n" 2019-430 du 02 octobre 20i9 fixant la structure-type des ministères ; le décret n" 2020-079 du 1 9 février 2020 portant attributions, organisation et fonctionnement du Ministère de la Justice et de Ia Législation ;
+le décret n' 2020-27 3 du 13 mai 2020 portant attributions, organisation et fonctionnement du Ministère des Affaires Étrangères et de la coopération ; la requête de naturalisation formulée le 26 février 201g par monsieur Gwendal EuzEN et l'ensemble des pièces produites ;
+proposition du Garde des sceaux, Ministre de la Justice et de la Législation, Conseil des Ministres entendu en sa séance du 16 septembre2O20, DÉcRÈTE
