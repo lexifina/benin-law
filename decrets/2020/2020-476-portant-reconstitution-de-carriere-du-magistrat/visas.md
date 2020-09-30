@@ -1,0 +1,11 @@
+# Visas
+
+^ECTVWG Fraternité-J ustice,Trâvâii PRESIDENCE DE LA RÉPUBLIOUE DÉCRET N" 2O2O _ 476 DU 30 SEPTEMBRE 2O2O portant reconstitution de carrière du magistrat Adébiyi CHABI.
+LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, Ia loi n' 90-32 du 1 1 décembre 1990 portant constitution de la République du Bénin, telle que modifiée par la loi n" 2019-40 du 07 novembre 2019 ;
+la loi organique n" 94-027 du 'lB mars 199g relative au conseil supérieur de la Magistrature, telle que modifiée et complétée par la loi n" 2o1B-40 du 02juiilet z01B ; la loi n" 20'15-18 du 1 er septem bre 2017 portant statutgénéral de Ia fonction publique et les lois qui l'ont modiflée ;
+la loi n" 2019-46 du 27 décembre 20 ,l9 portant loi de finances pour la gestion 2019 ; la loi n" 2001-35 du 21 février 2003 portant statut de Ia Magistrature, telle que modifiée et complétée par la loi n" 2019-12 du 25 février 2019 I la décision portant proclamation, le 30 mars 2016 par la cour constitutionnelle, des résultats définitifs de l'élection présidentielle du 20 mars 2016 ;
+Ie décret n'80-34 du 11 février 1980 portant déblocage total et définitif des avantages financiers correspondant aux avancements deJ Agents permanents de l'Etat et des personnels militaires des Forces armées populaires du Bénin, pour compter du 1er janvier 1 980 ;
+Ie décret n'20'19-396 du 05 septembre 2019 portant composition du Gouvernement ;
+le décret n" 2019-430 du 02 octobre 2019 fixant la structure-type des ministères ; le décret n" 2020-079 du 19 février 2020 portant attributions, organisation et fonctionnement du Ministère de la Justice et de la Législation ;
+le décret n" 2017-041 du 25 janvier 2017 poftant attributions, organisation et fonctionnement du Ministère de I'Economie et des Finances ;
+le décret n" 2004-174 du 06 avril 2004 portant reversement de tous les magistràts régis par la loi n" 83-005 du 17 mai 1983 portant statut de la magiskature béninoise dans la loi n" 200'1-35 du 21 février 2003 portant statut de la magistrature ; I'avis du Conseil supérieur de la Magistrature en date du 11 juin 2020 ; proposition du Garde des Sceaux, IVlinistre de la Justice et de ta Législation, Conseil des Ministres entendu en sa séance du 30 septemb re 2020, RÉPUBLIQUE DU BÉNIN Vu vu vu vu vu vu vt.t VU vu vu vu vu VU sur Ie DÉCRÈTE
