@@ -1,0 +1,6 @@
+# Décret n° 2020-490 du 7 octobre 2020 portant transfert à la Société Béninoise d’Infrastructures SA de la licence d’établissement et d’exploitation de réseau de fourniture d’accès internet attribuée à Bénin Télécoms S.A
+
+- Source : Secrétariat général du Gouvernement du Bénin (sgg.gouv.bj), documenthèque, <https://sgg.gouv.bj/doc/decret-2020-490/download>
+- Date : 2020-10-07 (date du texte dans son intitulé (promulgation/signature) ; la date de publication au Journal officiel n’est pas donnée par la source)
+- Couche texte : fournie par l’éditeur sur un document numérisé (non relue)
+- Unités : 3 articles
