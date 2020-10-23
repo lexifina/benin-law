@@ -1,0 +1,5 @@
+# Visas
+
+Vu AECK/ WG RÉPUBLIQUE DU BÉNIN Frâternité-lustice'Travâil PRÉSIDENCE DE LA RÉPUBLIoUE DÉCRET N. 2o2O - 5,IO DU 23 oCToBRE 2o2o portant ratification de la Convention portant création de l'Alliance pour le biodigesteur en Afrique de l'Ouest et du Centre (AB/AOC), adoptée à Ouagadougou, le 04 octobre 2018.
+LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, vu Ia loi n' 90-32 du 1 1 décembre 1990 portant Constitution de la République du Bénin, telle que modifiée par la loi n'2019-40 du 07 novembre 2019;
+la loi n' 2020-32 du 23 octobre 2020 portant autorisation de ratification de la Convention portant création de l'Alliance pour le biodigesteur en Afrique de l'Ouest et du Centre (AB/AOC), adoptée à Ouagadougou, le 04 octobre 2018 ; la décision portant proclamation, le 30 mars 2016 par la Cour constitutionnelle, des résultats définitifs de l'élection présidentielle du 20 mars 2016 ; le décret n" 2019-396 du 05 septembre 2019 portant composition du Gouvernement, VU vu DÉcRÈTE
