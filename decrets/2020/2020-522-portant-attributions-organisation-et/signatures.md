@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 04 novembre 2020 Par le Président de Ia RépubliQue, Chef de l'État, Chef du Gouvernement, Patrice TALON Le Garde des Sceaux, lVlinistre de Ia Justice et de la Législation, XJ lt9 l14a Le lVlinistre des Affaires Sociales et de la [Vlicrofinance Véronique TOGNIFODE MEWANOU I Séverin Maxiqe QUE NUIÿI Le Ministre des Affaires Étrangères Le lt/linistre de I'lntérieur et de la Sécurité Publique, et de la Coopération, Aurélierr A. AGBEN ct Sa a LAFI AMPLIATIONS:PR:6-AN:4-CCr2-CS:2-CES:2-HAAC:2-HCJ:2-MAEC:2-MISP:2-MASN4:2-l'ÂJL:2 AUTRES MINISTERES : 20-SGG : 4- JORB 1 -{f
