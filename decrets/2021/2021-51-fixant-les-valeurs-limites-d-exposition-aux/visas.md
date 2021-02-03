@@ -1,0 +1,12 @@
+# Visas
+
+RÉPUBLIQUE DU BÉNIN !,/G Frà1er|ité-lLrstlce Travail PRESIDENCE DE LA RËPUBLIQUE DÉCRET N'2021 - 051 DU 03 FEVRIER 2021 fixant les valeurs limites d'exposition aux champs électriques, magnétiques et électromagnétiques et les modatités de contrÔle et d'inspection des équipements et installations radioélectriques' LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, vu Ia toi n" 90-32 du 11 décembre 1990 portant constitution de la République du Bénin, t"ll" que modifiée par la loi n'2019-40 du 07 novembre 2019 ;
+vulaloin.gT-02gdu15janvierlgggportantorganisationdescommunesen RéPublique du Bénin ;
+vulaloin.2ooT-2ldu16octobre200Tportantprotectionduconsommateuren République du Bénin ;
+vulaloin'2017-2Odu20avril201BportantcodedunumériqueenRépubliquedu àenin, t"tt" que modifiée parla loi n" 2020-35 du 06 janvier2021 ;
+vu la décision portant proclamation, le 30 mars 2016 par la C9u1 constitutionnelle' des résultats définitifs de l'élection présidentielle du 20 mars 2016 ;
+vuledécretn.2019.396du05septembre2019portantcompositiondu Gouvernement ;
+vuledécretn.2019-430du02octobre20lgfixantlaStructuretypedesministères; Vl.,tledécretn"2016-445du27juillet2016portantrégimed'agrémentou d'homologation Oes equlpements- terminaux et équipements ou installations radioéleciriques en République du Bénin ;
+Vuledécretn"2019-217du31juillet2019fixantlesrèglesdeg-estionetconditions d,utilisation des frequences radioélectriques en République du Bénin ; vu le décret n. 2019-20g du 31 juillet 2019 portant attributions, organisation et fonctionnemen, ."J""rg"".. Oé- tÀutorite de Régulation des Communications Électroniques et de la Poste vutedécretn.2019.545du11décembre20lgportantattributions,organisationet fonctionnementduMinistèreduNumériqueetdelaDigitalisation;
+Vuledécretn"2019-547du11décembre20lgporlantattributions,organisationet fonctionnement Uu vtiniJte" du Cadre de Vie ei du Développement Durable ; vuledécretn.202o.o79du19février2020portantattributions,organisationet fonctionnement du N/linistère de la Justice et de la Législation ' le décret n" 2020-351 du 15 juillet 2020 portant attributions, organisation et fonctionnement du fi/inistère de la Décentralisation et de la GouvernaÀce Locale .
+le décret n" 2020-241 du 1s avril 2020 portant attributions, organisation fonctionnement du l\/inistère du Travail et de Ia Fonction publique; " sur proposition du lVlinistre du Numérique et de la Digitalisation, le Conseil des Ministres entendu en sa séance du 03 février 2021, DECRETE CHAPITRE PREMIER : DISPOSITIoNS GENERALES
