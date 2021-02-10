@@ -1,0 +1,8 @@
+# Visas
+
+AECKIWG RÉPUBLIQUE DU BÉNIN FraternltéJustice-Travâil PR ÉSIDENCE DE LA REPUBLIQUE Vu DECRET N" 2021 _ 056 DU 1O FEVRIER 2021 portant maintien au poste des recteurs et vice-recteurs des universités d'Abomey-Calavi et de Parakou.
+LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, la loi n" 90-32 d u 1 1 décembre '1 990 portant Constitution de la République du Bénin, telle que modifiée par la loi n' 2019-40 du 07 novembre2019 ;
+la loi n' 2003-17 du 11 novembre 2003 portant orientation de l'éducation nationale en République du Bénin, telle que modifiée par la loi n" 2005-33 du 6 octobre 2005 ; la décision portant proclamation, le 30 mars 2016 par la Cour constitutionnelle, des résultats définitifs de l'élection présidentielle du 20 mars 2016;
+le décret n'2019-396 du 05 septembre 2019 portant composition du Gouvernement ; le décret n'2019-430 du 02 octobre 2019 fixant la structure-type des ministères ; le décret n'2020-342 du 8 juillet 2020 portant attributions, organisation et fonctionnement du Ministère de l'Enseignement Supérieur et de la Recherche Scientifique ; le décret n" 2016-208 du 04 avril 2016 portant création, attributions et fonctionnement des universités nationales en République du Bénin ;
+le décret n" 2018-395 du 29 août 2018 portant attributions, organisation et fonctionnement du Conseil National de l'Education ;
+I'avis du Conseil National de l'Education n" 21l009/CNE/P/CPF/SE du 09 février 2021 ; proposition du Ministre de l'Enseignement Supérieur et de la Recherche Scientifique, Conseil des Ministres entendu en sa séance du 10 février 2021, VU vu VU vu VU vu vu vu sur le DECRETE
