@@ -1,0 +1,7 @@
+# Visas
+
+Vu VU vu VU vu VU sur le AECK / WG RÉPUBLIoUE DU BÉNIN traterôitéJustice-Travail PRÉSIDENCE DE LA REPUBLIQUE DECRET N" 2021 - 169 DU 24 MARS 2021 modifiant I'article 14 du décret n" 2020 -333 du 1e' juillet 2020 portant attributions, organisation et fonctionnement du Ministère des Enseignements Secondaire, ïechnique et de la Formation P rofession nelle.
+LE PRESIDENT DE LA REPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, la loi n" 90-32 du '1 1 décembre 1990 portant Constitution de la République du Bénin, telle que modifiée par la loi n" 2019-40 du 07 novembre 2019 ;
+Ia loi n' 2003-017 du 11 novembre 2003 portant orientation de l'Education nationale en République du Bénin, telle que modifiée par la loi n"2005-33 du 06 octobre 2005 ; la décision portant proclamation, le 30 mars 2016 par la Cour constitutionnelle, des résultats définitifs de l'élection présidentielle du 20 mars 2016 ;
+le décret n" 2019-396 du 05 septembre2019 portant composition du Gouvernement ; le décret n'2019-430 du 02 octobre 2019 fixant la structure-type des ministères ; le décret n' 2020-333 du '1er juillet 2020 portant attributions, organisation et fonctionnement du Ministère des Enseignements Secondaire, Technique et de la formation professionnelle ;
+proposition du Ministre des Enseignements Secondaire, Technique et de la Formation Profession nelle, Conseil des Ministres entendu en sa séance du 24 mars 2021 , DECRETE
