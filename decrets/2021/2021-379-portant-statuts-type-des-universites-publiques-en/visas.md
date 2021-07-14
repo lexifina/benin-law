@@ -1,0 +1,15 @@
+# Visas
+
+PRÉSIDENCE DE LA RÉPUBLIOUE DÉCRET N. 202,I.379 DU 14 JUILLET 2021 portant statuts-ÿpe des universités publiques en République du Bénin.
+LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, la loi n' 90-32 du '1 1 décembre 1990 portant Constitution de la République du Bénin, telle que modifiée par la loi n'2019-40 du 07 novembre 2019 ;
+la loi n' 2015-18 du 1er septembre 2017 portant statut général de la fonction publique telle que modifiée par la loi n'2018-35 du 5 octobre 2018, loi n" 86-0'14 du 26 septembre 1986 portant code des pensions civiles et militaires de retraite telle que modifiée par la loi n' 201 5-19 du 6 janvier 2017 la loi n' 2002-014 du 27 août 2002 portant conditions d'admission à la retraite des enseignants permanents de l'enseignement supérieur et des chercheurs , la décision portant proclamation par la Cour constitutionnelle des résultats définitifs de l'élection présidentielle du 11 avtil 2021 :
+le décret n'2021-257 du 25 mai 2021 portant composition du Gouvernement, le décret n" 2019-430 du 2 octobre 2019 fixant la structure-type des ministères ; le décret n" 2020-241 du "15 avril 2020 portant attributions, organisation et fonctionnement du Ministère du Travail et de la Fonction Publique ;
+le décret n" 2020-342 du 08 juillet 2020 portant attributions, organisation et fonctionnement du Ministère de l'Enseignement Supérieur et de la Recherche Scientifique;
+le décret n" 2020-078 du 19 février 2020 portant attributions, organisation et fonctionnement du Ministère de la Santé ;
+le décret n" 2017 -041 du 25 janvier 2017 portant attributions, organisation et fonctionnement du Ministère de l'Economie et des Finances ;
+le décret n" 2016-208 du 4 avril 2016 portant création attributions, organisation et fonctionnement des universités nationales en République du Bénin ;
+RÉPUBLIQUE DU BÉNIN Fraternité - Justice - Travail Vu Vu Vu Vu Vu vu Vu Vu Vu Vu Vu Vu le décret n" 2016-638 du 13 octobre 2016 universités nationales en République du Bénin ;
+portant création de quatre (04) le décret n' 1 63/PRi MFPTT du 26 mai 1967 portant délégation de certains pouvoirs du Président de la République au Ministre de la Fonction Publique en matière des personnels de l'État ;
+le décret n" 2004-627 du 10 novembre 2OO4 portant transfert de certaines attributions du Ministre de la Fonction Publique au (x) Ministre (s) en charge de l'Education en matière de gestion des personnels enseignants;
+Sur proposition du Ministre de I'Enseignement Supérieur et de la Recherche Scientifique, du Ministre du Travail êt de la Fonction Publique, du Ministre de la Santé et du Ministre de l'Economie et des Finances, Après avis du Conseil National de l'Education n'2021-0166/CNE/P/CQR/CPF/SE du 13 .iuillet 2021;
+Le Conseil des Ministres entendu en sa séance du 14 juillet 202'1, Titre premier : Dispositions générales Article l er Le présent décret fixe les conditions de création, d'attribution, d'organisation et de fonctionnement des universités publiques du Bénin de même que le régime de tutelle auquel elles sont soumises conformément à la législation en vigueur au Bénin.

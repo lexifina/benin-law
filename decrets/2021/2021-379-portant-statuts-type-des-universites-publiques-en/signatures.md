@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou , le 14 juillet 2021 Par le Président de la République Chef de l'Etat, Chef du Gouvernement, --- l,) Patrice TALON Le Ministre du Dé oppement et de la Le Ministre de I'Economie et des Finances, Ministre d'Etat, muatdw Le Ministre du Travail et de la Fonction Publique, Coordination de n Gouvernementale, d'Etat, nistre A aye c ANE Adidjatou A. MATHYS Eléonore YAYI LAOEKAN Le Ministre de la Santé, Benjamin lgnace B. HOUNKPATIN AMPLIATIONS : PR : 06 - AN 04 - CC 02 - CS 02 6 - CES 02 - HAAC 02 - HCJ 02 -MDC 02 - l\4EF 02 - MTFP 02 _ IVIESRS 02 _ MS 02 - AUTRES MINISTERES 18 _ SGG 04 _ UNIVERSITES 08 _ JO 01. Le Ministre de l'Enseignement Supérieur et de la Recherche Scientifique,
