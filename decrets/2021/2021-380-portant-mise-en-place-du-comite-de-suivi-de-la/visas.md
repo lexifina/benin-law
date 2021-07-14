@@ -1,0 +1,15 @@
+# Visas
+
+RÉPUBLIQUE DU BÉNIN Fraternité - Justice - Travail portant mise en place du Comité de suivi de la mise en æuvre de la stratégie de développement de l'enseignement supérieur, la recherche scientifique et l'innovation.
+LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, vu la loi n" 90-32 du 1 1 décembre 1990 portant Constitution de la République du Bénin, telle que modifiée par la loi n'2019-40 du 07 novembre 2019 ;
+la loi n" 2015-18 du lerseptembre 2017 portant statut général de la fonction publique telle que modifiée par la loi n"2018-35 du 5 octobre 2018 ;
+loi n" 86-014 du 26 septembre 1986 portant code des pensions civiles et militaires de retraite telle que modifiée par la loi n" 2015-19 du 6 janvier 2017 ; la loi n" 2002-014 du 27 août 2002 portant conditions d'admission à la retraite des enseignants permanents de I'enselgnement supérieur et des chercheurs ; la décision portant proclamation par la Cour constitutionnelle des résultats définitifs de l'élection présidentielle du 11 avril 2021 ;
+le décret n' 2021-257 du 25 mai 2021 portant composition du Gouvernement ; le décret n" 20'19-430 du 2 octobre 2019 fixant la structure-type des ministères ; le décret n" 2020-241 du 15 avril 2020 portant attributions, organisation et fonctionnement du Ministère du Travail et de la Fonction Publique ;
+le décret n" 2020-342 du 08 juillet 2020 portant attributions, organisation et fonctionnement du Ministère de l'Enseignement Supérieur et de la Recherche Scientifique ;
+le décret n'2020-078 du 19 février 2020 portant attributions, organisation et fonctionnement du Ministère de la Santé ;
+Ie décret n" 2017-041 du 25 janvier 2017 portant attributions, organisation et fonctionnement du Ministère de l'Economie et des Finances ;
+le décret n' 2016-208 du 4 avril 2016 portant création, attributions, organisation et fonctionnement des universités nationales en République du Bénin ;
+le décret n'2016-638 du 13 octobre 2016 portant création de quatre (04) universités nationales en République du Bénin ;
+vu vu vu vu vu vu vu vu vu vu Vu vu PRÉSIDENCE DE LA RÉPUBLIQUE DÉCRET N" 2021-380 DU 14 JUILLET 2021 vu vu vu le le décret n''163/PR/MFprr du 26 mai 1967 portant dérégation de certains pouvoirs du Président de ra Répubrique au Minisire de ra Foiction Èuurique en matière des personnels de l,État ;
+le décret n" 2004-BZ7 du 10 novembre 2oo4 portant transfert de certaines attributions du Ministre de ra.Fonction pubrique aü 1x; Ministre trl * .Ààrs" ou l'Education en matière de gestion des personnels ensègnants ; ' ' proposition du Ministre de l'Enseignement supérieur et de la Recherche scientifique, du Ministre du Travair ei de la Fonction publique, du Ministre de la Santé et du Ministre de I'Economie et des Finances, conseil des Miniskes entendu en ses séances des 14 et2g juiret2021 , DÉcRÈTE coordonner le calendrier d,installation des gouvernance des universités ;
+ll est mis en place un comité de survi de ra mise en æuvre de ra stratégie de développement de l'enseignement supérieur, ra recherche scientifiqîà et I'innovation.
