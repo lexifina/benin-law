@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 1"r septembre 2021 Patrice TALON Le Ministre du Développement et de la Coordinatio ndel' on Gouvernementale, A oula lVlinistre IO TCHANE d'État Gaston Cossi DOSSOUHOUI Le Ministre des lnfrastructures et des Transports, Le Ministre de l'lntérieur et de la Sécurité Publique, Alassane SEIDOU Le Ministre du Travail et de la Fonction Publique, ça ervé Yves HEHOMEY Fortunet Alain NOUATIN AUP!!À[!gX§: PR i6 -AN:4 - CC:2 - C§:2 - CES:2- HCJ 2 - HAAC:2 - MDC:2 'MJL:2- i/lEF:2-MIT:2'; ü6Nïllî-rp, z ; ttrttsP : 2 i MAEP : 2 ; AUTR Es MINISTERES : 1 5 - sGG : 4 - JoRB : 1 ) I Adidjatou A. MATHYS Le Ministre délégué auprès du Président de la République, chargé de la Défense Nationale,
