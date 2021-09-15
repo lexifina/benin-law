@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 15 septembre 2021 Par le Président de la République, Chef de l'État, chef du Gouvernement, Patrice TALON.- Article 4 Le liquidateur doit produire, lors de sa prise de fonction, une feuille de route de la mission présentant notamment la méthodologie de travail et les modalités d'intervention à soumettre à la validation d'un comité interministériel chargé de la supervision de la liquidation. ll dispose d'un délai de six (06) mois à compter de sa prise de fonction, pour accomplir sa mission.
+Le Ministre de l'Économie et des Finances, l c.À c,f Romuald WADAGNI Ministre d'État Le Ministre des Petites et Moyennes Entreprises et de la Promotion de l'Emploi, Modeste Tihounté KEREKOU AüPt!ÀILg]l§: PR: 6; AN :4; CC:2; CS: 2; CES ; 2: HAAC:2;HCJ .2: MÉF:2; IVIPMEPE: 2. ;AUTRES MINISTERES:21 : SGG :4;JORB : 1.
