@@ -1,0 +1,8 @@
+# Visas
+
+AÊCKA/\/G RÉPUBLIQUE DU BÉNIN Fraternité-Justice-Travail PRÉSIDENCE DE LA RÉPUBLIQUE DÉCRET N'2021 - 523 DU 13 ocroBRE 2021 portant approbation des statuts modifiés de l'lnstitut national de la Statistique et de l'Analyse économique désormais dénommé lnstitut national de la Statistique et de la Démographie.
+LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, Vu la loi n. 90-32 du I 1 décembre 1990 portant constitution de la République du Bénin, telle que modifiée par la loi n'2019-40 du 07 novembre 2019 ;
+la loi n' 2O2O-20 d u 02 septem bre 2020 portant création, organ isation et fonction nement des entreprises publiques en République du Bénin ;
+la loi n. 2012-02 du 19 janvier 2012 portant autorisation de ratification de la charte africaine de la Statistique, adoptée à Addis-Abeba (Éthiopie), le 04 février 2009 et ratifiée par la République du Bénin le 10 avrll2012 , la loi n" 99-14 du 12 avril 2000 portant création, organlsation et fonctionnement du Conseil National de la Statistique;
+la décision portant proclamation, le 21 avril 2021 par la Cour constitutionnelle, des résultats définitifs de l'élection présidentielle du 11 avril2021 , le décret n 2021-257 du 25 mai 2021 portant composition du Gouvernement , le décret n 2021-401 du 28 juillet 2021 tixant la structuretype des ministères ; le décret n' 2021-307 du 09 juin 2021 porlant attributions, organisation et fonctionnement du Ministère de l'Économie et des Finances ;
+proposition du Ministre de l'Économie et des Finances, Conseil des Ministres entendu en sa séance du 13 octobre 2021, vu vu vtl vu vu vu vu sur le
