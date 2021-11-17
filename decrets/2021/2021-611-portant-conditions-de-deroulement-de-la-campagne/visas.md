@@ -1,0 +1,9 @@
+# Visas
+
+AECK,AûG RÉPUBLIQUE DU BÉNIN Fraternité-J ustice-Travail PRÉSIDENCE DE LA RÉPUBLIQUE DECRET N' 2021 - 611 DU 17 NOVEMBRE 202.I portant conditions de déroulement de la campagne 2021-2022 de commercialisation du soja.
+LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, Vu la loi n'90-32 du 11 décembre 1990 portant Constitution de la République du Bénin, telle que modifiée par la loi n" 2019-40 du 07 novembre 2019 ;
+vu vu vu vu vu vu vu vu vu sur le la loi n" 84-009 du 15 mars 1984 portant sur le contrôle des denrées alimentaires ; la loi n' 90-005 du 1 5 mai 1990 fixant les conditions d'exercice des activités de commerce en République du Bénin ;
+la décision portant proclamation, le 21 avril 2021 par la Cour constitutionnelle, des résultats définitifs de l'élection présidentielle du 11 avril2021 ;
+le décret n'2021-257 du 25 mai 2021 porlanl composition du Gouvernement; le décret n" 2021-401 du 28 juillet 2021 fixant la structure{ype des ministères ; le décret n'87-351 du 23 octobre 1987 portant réglementation de la profession d'acheteur et de négociant de produits agricoles en République du Bénin ; le décret n" 88-30 du 20 janvier 1988 portant création de la Commission permanente d'Approvisionnement en Facteurs de Production, de Commercialisation des Produits agricoles et du Commerce général ;
+le décret n' 2021-542 du 27 octobre 2021 porlant attributions, organisation et fonctionnement du Ministère de l'lndustrie et du Commerce ;
+le décret n' 2021-563 du 03 novembre 2021 portant attributions, organisation et fonctionnement du Ministère de I'Agriculture de l'Élevage et de la Pêche ; proposition conjointe du Minishe de l'lndustrie et du Commerce et du Ministre de l'Agriculture, de l'Elevage et de la Pêche, Conseil des Ministres entendu en sa séance du 17 novembre 2021, DÉcRÈTE a L_O
