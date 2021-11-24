@@ -1,0 +1,9 @@
+# Visas
+
+RÉPUBLIOUE DU BÉNIN Fraternitê-Justice-Travail PRÉSIDENCE DE LA REPUBLIQU E AECKA!G Vu vu vu VU DÉCRET N' 2021 _ 638 DU 24 NOVEIVBRE 2021 porlant approbation des statuts modifiés et âugmentation du capital de la Société des lnfiastructures routières du Bénin, devenue « Société des lnfrastructures routières et de l'Aménagement du Territoire S.A. », par absorption de l'Agence du Cadre de Vie pour le Développement du Territoire.
+LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, la loi n" 90-32 du 11 décembre 1990 portant constitution de la République du Bénin, telle que modifiée par la loi n" 2019-40 du 07 novembre 2019 ;
+la loi n. 2o2o-20 du 02 septembre 2020 portant création, organisation et fonctionnement des entreprises publiques en République du Bénin ;
+I'acte uniforme de l'Organisation pour l'Harmonisation en Afrique du Droit des Affaires relatif au droit des sociétés commerciales et du groupement d'intérêt économique ; la décision portant proclamation, le 21 avril 2021 par la Cour constitution nelle, des résultats définitifs de l'élection présidentielle du 11 avril2021 ;
+le décret n" 2021-257 du 25 mai 2021 porlant composition du Gouvernement ; le décret n 2021-401 du 28 juillet 2021 fixanl la structure-type des ministères ; le décret n 2021-307 du 09 juin 2021 portant attributions, organisation et fonctionnement du Ministère de l'Économie et des Finances ;
+le décret n 2021-565 du 03 novembre 2021 2021 porlanl attributions, organisation et fonctionnement du Ministère du cadre de vie et du Développement Durable ; le décret n' 2O1B-179 du 16 mai 2018 portant approbation des statuts de la société des lnfrastructures routières du Bénln S.A. ;
+proposition conjointe du À/inistre de l'Économie et des Finances, du IVlinistre du cadre ie'Vie et du Développement Durable et du Ministre des lnfrastructures et des Transports, Conseil des Ministres entendu en sa séance du 24 novembre 2021' VU VU vu VU vu sur le oÉcnÈre
