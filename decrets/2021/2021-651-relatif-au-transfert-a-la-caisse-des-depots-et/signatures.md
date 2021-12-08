@@ -1,0 +1,8 @@
+# Signatures
+
+Fait à Cotonou, le 08 décembre 2021 Par le Président de la RéPublique' Chef de l'État, Chef du Gouvernement, Patrice ALON.- Article 3 : Modalités de transfert et de restitution des fonds Le Trésor public reverse trimestriellement sur un compte dédié ouvert dans ses livres par la Caisse des Dépôts et Consignations du Bénin, les fonds de tiers et consignations qu'il enregistre dans ses écritures.
+Les fonds de tiers tels que les cautionnements et consignations reçus par le Trésor public entre le 1e, janvier 2O2O el la date d'effet du présent décret, sont transférés suivant les indications ci-après :
+. une première partie sur la base du point provisoire que devra produire le Trésor public sur les ressources déjà centralisées sur les comptes dédiés ;
+. une seconde partie, représentant le reliquat du point définitif, à reverser après la clôture des comptes de la gestion 2020.
+Les fonds et consignations reçus par le Trésor public avant le 1e' janvier 2020 seront reversés à la caisse des Dépôts et consignations du Bénin, à la suite de leur évaluation exhaustive par un cabinet recruté à cet effet.
+une convention régissant les relations entre la caisse des Dépôts et consignations du Bénin et la Direction générale du Trésor et de la Comptabilité publique précise, pour l'application du présent décret, les modalités de transfert des ressources à la Caisse' ainsi que les conditions de leur restitution à leurs bénéficiaires ou ayants droit. Le Ministre de l'Économie et des Finances, Romuald WADAGNI Ministre d'État AMPLIATIONS : PR 6 - AN 4 - CS 2 CC 2 - HAAC 2 HCJ 2 - CES 2 - MEF 2 - MJL 2 AUTRES MTNTSTERES 2.t SGG 4 _ JORB 1 I
