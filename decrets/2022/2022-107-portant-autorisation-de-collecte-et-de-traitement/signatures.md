@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou ,le 16 février 2022 Par le Président de la République, Chef de l'Etat, Chef du Gouvernement, Le Garde des Sceaux, Ministre de la Justice et de la Législation, -4/r^ /,* Séverin Maxim UM Patrice TALON. - Le Ministre de l'lntérieur et de la Sécurité Publique, L L stre du Numérique Alassane SEIDOU Le Ministre de la Décentralisation et de la Gouvernance Locale, et de la Digitalisation, Aurelie l. ADAM SOULE ZOUMAROU Raphaël D ou AK TEGNON Le Ministre des lnfrastructures et des Transports, Le Ministre délégué auprès du président de la République, chargé de la Défense Nationale, Yves HEHOMEY Fortunet Alain NOUATTN |:ElLlAlqry§r PR:6;AN:+;CC.;199:2;CES:2;HAAC:2;HCJ:2;MJL:2;MND:2;MtT:2;MoN:2; MISP: 2;MDGL:2 iAUTRES MTNTSTERES:21 ;SGG:+;Jonà, f
