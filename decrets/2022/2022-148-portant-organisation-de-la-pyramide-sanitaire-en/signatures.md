@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou,le 02 mars 2022 Par le Président de la République, Chef de l'État, Chef du Gouvernement, Le Ministre de l'Economie et des Finances, Le Ministre de la Santé, Benjamin lgnace B. HOUNKPATIN Y).^^r*O Rdmuald WADAGNI f Ministre d'Etat Le Ministre de la Décentralisation et de la Gouvernance Locale' Raphaél Dossou AKOTEGNON Le Ministre délégué auprès du Président la République, chargé de la Défense Nationale, ir I / ------:- Y/,P'4t Fortunet Alain NOUATIN Ministre de I'lntérieur et de la Sécurité Publique' /t) l_-/ ' Alassane SEIDOU Le Ministre de I'Enseignement Supérieur et de la Recherche Scientifique, Eléonore YAYI LADEKAN I
