@@ -1,0 +1,8 @@
+# Visas
+
+AECKWG RÉPUBLIOUE DU BÉNIN Fraternité'lustice_Travail PRÉSIDENCE DE LA RÉPUBLIQUE DÉCRET N" 2022- 198 DU 23MARS2022 portant dissolution du Centre de Perfectionnement du Personnel des Entreprises et nomination de son liquidateur.
+LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, vu la loi n. 90-32 du 1 1 décembre 1990 portant constitution de la République du Bénin, telle que modifiée par la loi n'2019-40 du 07 novembre 2019 ;
+vu I'Acte uniforme révisé du traité de l'oHADA relatif au droit des sociétés commerciales et du groupement d'intérêt économique, du 30 janvier 2014 ; vu la loi n. 2o2O-20 du 02 septembre 2020 portant création, organisation et fonctionnement des entreprises publiques en République du Bénin ;
+vu la décision portant proclamation, le 21 avril 2021 par la cour constitutionnelle, des résultats définitifs de l'élection présidentielle du 11 avril 2021 : vu le décret n" 2021-257 du 25 mai 2021 podanl composition du Gouvernement ; vu le décret n' 2021-401 du 28 juillet 2021 fixanl la structure-type des ministères ; vu le décret n" 2021-307 du 09 juin 2021 porlant attributions, organisation et fonctionnement du Ministère de I'Economie et des Finances ;
+vu le décret n" 2021-569 du 03 novembre 2021 portanl attributions, organisation et fonctionnement du Ministère des Enseignements Secondaire, Technique et de la Formation Professionnelle ;
+sur proposition conjointe du Ministre de l'Economie et des Finances et du Ministre des Enseignements secondaire, Technique et de la Formation Professionnelle, le Conseil des Ministres entendu en sa séance du 23 mars 2022, DÉCRÈTE
