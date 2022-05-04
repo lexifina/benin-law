@@ -1,0 +1,7 @@
+# Visas
+
+AECI« RÉPUBLIQUE DU BÉNIN Fraternité-Justice-Trava PRÉSIDENCE DE LA REPUELIOU E DÉCRET N' 2022 - 27s DU 04 MAt 2022 portant création, attributions et composition du Comité muséographique du Musée international du Vodun.
+LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, vu la loi n' 90-32 du 1 1 décembre 1990 portant constitution de la République du Bénrn, telle que modifiée par la loi n" 2019-40 du 07 novembre 2019 ;
+vu la loi n" 2020-20 du 02 septembre 2020 portant création, organisation et fonctionnement des entreprises publiques en République du Bénin ; ' vu la décision portant proclamation, le 21 avril 2021 par la cour constitutionnelle, des résultats définitifs de l'élection présidentielle du 11 avril 2021 ;
+vu le décret n" 2021-257 du 25 mai 2021 porlant composition du Gouvernement; vr'r le décret n' 2021-401 du 28 juillet 2021 fixant la structure{ype des ministères ; vu le décret n" 2016-442 du 27 juillet 2016 portant approbation des statuts de l,Agence nationale de promotion des patrimoines et de Déveroppement du Tourisme ; vu le décret n' 2021-533 du 20 lctobre 2oz1 portant attributions, organisation et fonctionnement du Ministère du Tourisme, de là Culture et des Arts vu le décret n' 2021-536 du 20 0ctobre 2021 portant création, attributions et composition du Comité spécial du musée Vodun ;
+sur proposition du Ministre du Tourisme, de la Culture et des Arts, le Conseil des Ministres entendu en sa séance du 04 mai 2022, DÉcRÈTE
