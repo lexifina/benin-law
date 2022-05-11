@@ -1,0 +1,11 @@
+# Visas
+
+AECK/WG RÉPUBLIQUE DU BÉNIN Fraternité'Justice-Travail PRÉSIDENCE DE LA RÉPUBLIQUE Vu DÉCRET N. 2022 - 282 DU 11 MAt 2022 modifiant et complétant le décret n" 20l94Sg du 09 octobre 2019 portant attributions, organisation et fonctionnement du Comité consultatif paritaire de la Fonction publique.
+LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, la loi n' 90-32 du 11 décembre 1g90 portant constitution de la République du Bénin, telle que modifiée par la loi n.2019-40 du 07 novembre2}lg;
+la.loi n'2015-1,8.du 1erseptemt92917 portantstatutgénéral delaFonctionpublique, telle que modifiée par ta loi n'2017-43 du 02 juiilet iota et ta toi n" 2018_'à5 du os octobre 2018 ;
+la décision portant proclamation, le zl avril 2021 par la cour constitutionnelle, des résultats définitifs de l'élection présidentielte du 11 avril2021 :
+le décret n' 2021-257 du 25 mai 202r portant composition du Gouvernement ; le décret n' 2021-401 du 28 juiilet 2021 frxant la structure-ÿpe des ministères ; le décret n" 163-PR/MFPTT du 26 mai 1967 portant délégation de certains pouvoirs du Président de ta Répubrique au ministre chàrgé de ra Finction pruriqr" "riÀàiier" d'administration des personnels de l,État;
+le décret n" 2019-458 du 09 octobre 2019 portant attributions organisation et fonctionnement du comité consurtatif paritaire dé ra Fonction pubrique ; le décret n" 2020-4sB du 23 septembre 2o2o portant différentes formes d organisations syndicares des travairieurs et critères de leur représentativité en République du Bénin, ter que modifié par re décret n' 2021-339 d, ôrlrirËilôri ; le décret n" 2020-459 du 23septembre2o2o portant modalités d,organisation des élections professionnelles en République du Bénin;
+le décret n' 2021-307 du 09-juin 2021 portant attributions, organisation et fonctionnement du Ministère de l,Éôonomie et àes Finances ;
+le décret n" 2021-562 du 03 novembre 2021 portant attributions, organisation et fonctionnement du Ministère du Travail et de la Ëonction publique ;
+lr-"f::,].. conjointe du Ministre du rravair et de ra Fonction pubrique et du Miniske oe t'Economie et des Finances, Conseil des Ministres entendu en sa séance du 11 mai 2022, vu vu vu le DÉcRÈTE
