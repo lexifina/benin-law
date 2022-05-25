@@ -1,0 +1,10 @@
+# Visas
+
+AECI(WG RÉPUBLIQUE DU BÉNIN FraternitéJustice-Travail PRÉSIDENCE DE LA RÉPUBLIQUE DÉCRET N" 2022- 301 DU 25 MAI 2022 portant règlementation du bruit en République du Bénin.
+LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, vu la loi n" 90-32 du 't1 décembre 1990 portant Constitution de la République du Bénin, telle que modifiée par la loi n'2019-40 du 07 novembre 2019 ;
+vu la loi n'98-030 du 12 février 1999 portant loi-cadre sur l'environnement en République du Bénin ;
+vu laloi n' 2022-04 du 16 lévrier 2022 sur l'hygiène publique en République du Bénin ; vu la décision portant proclamation, le 21 avril 2021 par la Cour constitutionnelle, des résultats définitifs de l'élection présidentielle du 11 avril2021 :
+vu le décret n" 2021-257 du 25 mai 2021 portant composition du Gouvernement ; vu le décret n'2021-401 du 28 juillet 2021 fixanl la structure-type des ministères ; vu le décret n" 2021-533 du 20 octobre 2021 porlant attributions, organisation et fonctionnement du Ministère du Tourisme, de la Culture et des Arts ;
+vu le décret n" 2021-541 du 25 octobre 2021 portant attributions, organisation et fonctionnement du Ministère de la Décentralisation et de la Gouvernance Locale ; vu le décret n" 2021-542 du 27 octobre 2021 poianl attributions, organisation et fonctionnement du Ministère de l'lndustrie et du Commerce ;
+vu le décret n" 2021-565 du 03 novembrc 2021 portant attributions, organisation et fonctionnement du Ministère du Cadre de Vie et du Développement Durable ; vu le décret n" 2021-568 du 03 novembre 2021 portant attributions, organisation et fonctionnement du Ministère de l'lntérieur et de la Sécurité Publique ; vu le décret n" 2021-573 du 03 novembre 2021 portant attributions, organisation et fonctionnement du Ministère de la Justice et de la Législation ;
+sur proposition conjointe du Ministre de l'lntérieur et de la sécurité Publique et du Ministre du Cadre de Vie et du Développement Durable, le Conseil des Ministres entendu en sa séance du 25 md 2022' DÉCRÈTE CHAPITRE PREMIER : DÉFINITIONS
