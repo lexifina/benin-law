@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 24 juillet 2024 Par le Président de la République, Chef de l'État, Chef du Gouvernement, Le Ministre de l'Economie et des Finances, ( ~ sr.:J Romuald WADAG~ I Ministre d'Etat Le Ministre de l'Intérieur et de la Sée ,ité..p blique, Alassane SEIDOU Patrice TALON.- Le Ministre du Cadre de Vie et des Transports, chargé du Développement durab e, ~ ONATO Le Ministre de la Décentralisation et de la Gouvernance locale, Raphaël Dossou AKOTEGNON AMPLIATIONS : PR: 06, AN : 4 ; CS : 2 ; C.COM : 2; CES : 2; HAAC : 2; HCJ : 2; MEF : 2; MCVT : 2; MISP 2 ; MDGL 2; AUTRES MINISTERES : 17 ; SGG : 4 ; JORB 1.
