@@ -1,0 +1,4 @@
+# Signatures
+
+Fait à Cotonou, le 06 novembre 2024 Par le Président de la République, Chef de l'État, Chef du Gouvernement, Le Garde des Sceaux, Ministre de la Justice et de la Législation, Yvon DETCHENOU Le Ministre de l'Intérieur et de la (3)1blique, Alassane SEIDOU \, Le Ministre de !'Agriculture, de !'Elevage et de la Pêche, Gaston Cossi DOSSOUHOUI Patrice TALON Le Ministre de la Santé, · .( Benjamin Ignace B. HOUNKPATIN Le Ministre des Affaires étran Le Ministre du Cadre de Vie ,des Transports, chargé du Oév ppement durable, ' Le Ministre de de la Décentralisation et de la Gouvernance locale, ~c ---=cF-~ =-~ t =3> Raphaël Dossou AKOTEGNON ! AMPLIATIONS : PR: 6; AN: 4; CC: 2; CS: 2; C.COM: 2; CES: 2; HAAC: 2; HCJ: 2; MS 2- MJL 2- MISP 2- MDGL 2- MAEP 2-MAE 2-MCVT 2; AUTRES MINISTERES : 14; SGG: 4; JORB : 1.
+,f ,f l
