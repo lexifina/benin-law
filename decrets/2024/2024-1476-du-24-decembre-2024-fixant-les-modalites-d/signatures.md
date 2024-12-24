@@ -1,0 +1,3 @@
+# Signatures
+
+Fait à Cotonou, le 24 décembre 2024 Par le Président de la République, Chef de l'État, Chef du Gouvernement, Le Ministre du Cadre de Vie et des TransP-orts, chargé du Développement dura " Patrice TALON Le Ministre de !'Agriculture, de l'Elevage et de la Pêche, Cossi Gaston DOSSOUHOUI Le Ministre des Petites et Moyennes Entreprises et de la Promotion de l'Emploi, Mo AMPLIATIONS : PR : 6 ; AN : 4 ; CC : 2 ; CS : 2 ; C.COM : 2 ; CES : 2 ; HAAC : 2 ; HCJ : 2 ; MAEP : 2 ; MCVT : 2 ; MPMEPE : 2 ; AUTRES MINISTERES : 18 ; SGG : 4 ; JORB : 1.
