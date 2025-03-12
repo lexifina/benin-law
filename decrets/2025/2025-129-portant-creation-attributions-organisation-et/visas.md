@@ -1,0 +1,8 @@
+# Visas
+
+AECKIICG REPUBLIQUE DU BENIN Fraternité-Justice-Travail PRESIDENCE DE LA REPUBLIQUE DÉCRET N° 2025 - 129 DU 12 MARS 2025 portant création, attributions, organisation et fonctionnement du Cadre national de Concertation de l'Artisanat au Bénin.
+LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DE L'ÉTAT, CHEF DU GOUVERNEMENT, Vu la loin° 90-32 du 11 décembre 1990 portant Constitution de la République du Bénin, telle que modifiée par la loi n° 2019-40 du 07 novembre 2019 ;
+vu le Règlement n° 01/2014/CM/UEMOA du mars 2014 portant Code communautaire de l'Artisanat de l'Union économique et monétaire Ouest africaine ; vu le Règlement d'exécution n° 005/2018/COM/UEMOA du 11 avril 2018 portant attributions, composition et fonctionnement du Cadre de Concertation régionale sur l'Artisanat au sein de l'Union économique et monétaire Ouest africaine ; vu la décision portant proclamation, le 21 avril 2021 par la Cour constitutionnelle, des résultats définitifs de l'élection présidentielle du 11 avril 2021 ;
+vu le décret n° 2025-001 du 06 janvier 2025 portant composition du Gouvernement ; vu le décret n° 2021-401 du 28 juillet 2021 fixant la structure-type des ministères, tel que modifié par le décret n° 2022-476 du 03 août 2022 ;
+vu le décret n° 2023-127 du 05 avril 2023 portant attributions, organisation et fonctionnement du Ministère des Petites et Moyennes Entreprises et de la Promotion de l'Emploi ;
+sur proposition du Ministre des Petites et Moyennes Entreprises et de la Promotion de l'Emploi, le Conseil des Ministres entendu en sa séance du 12 mars 2025, DÉCRÈTE CHAPITRE PREMIER : CREATION
