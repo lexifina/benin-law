@@ -1,0 +1,20 @@
+{
+  "note": "Documents probed for Benin (gitlaw-BJ, 2026-10-28/29). 'text' is the quality of the PDF's own text layer; we never OCR. Only 'clean' and 'publisher-ocr-usable' rows are build inputs.",
+  "documents": [
+    {"url": "https://assemblee-nationale.bj/wp-content/uploads/2017/10/Benin-La-Constitution-1990.pdf", "law": "loi-90-32", "what": "Constitution 1990 as promulgated 11 Dec 1990 (Assemblee nationale retyped text)", "text": "clean", "use": "constitution v1"},
+    {"url": "https://courconstitutionnelle.bj/files/documents/1677952525_constitution_de_.pdf", "law": "loi-2019-40", "what": "Constitution consolidated 'a jour de sa revision par la loi 2019-40' (Cour constitutionnelle); revised articles marked '(nouveau)'", "text": "clean", "use": "constitution v2"},
+    {"url": "https://courconstitutionnelle.bj/files/documents/1677952224_decision_dcc19_5.pdf", "law": "loi-2019-40", "what": "DCC 19-504 of 6 Nov 2019, conformity of loi 2019-40", "text": "clean", "use": "dates / evidence"},
+    {"url": "https://sgg.gouv.bj/doc/loi-2019-40/download", "law": "loi-2019-40", "what": "Loi 2019-40 (art. 2: in force on promulgation, 2019-11-07)", "text": "bad-ocr (a->o substitutions)", "use": "evidence for in-force date only"},
+    {"url": "https://documentation-anbenin.org/files/original/227/Loi_N_2017-20_DU_20_AVRIL_2018.pdf", "law": "loi-2017-20", "what": "Code du numerique as promulgated 20 Apr 2018 (AN documentation, Omeka item 227)", "text": "publisher-ocr-usable (split words, some missed article numbers)", "use": "code-numerique v1"},
+    {"url": "https://documentation-anbenin.org/files/original/2170/loi-2020-35.pdf", "law": "loi-2020-35", "what": "Loi 2020-35 of 6 Jan 2021 amending arts 121, 125, 464 + art. 2 global renaming of the minister", "text": "publisher-ocr-usable", "use": "code-numerique v2 (replay)"},
+    {"url": "https://sgg.gouv.bj/doc/loi-90-32/download", "law": "loi-90-32", "what": "Constitution 1990 (SGG)", "text": "scan", "use": "none"},
+    {"url": "https://sgg.gouv.bj/doc/loi-2025-20/download", "law": "loi-2025-20", "what": "Loi 2025-20 of 17 Dec 2025 revising the Constitution", "text": "scan", "use": "none: missing revision"},
+    {"url": "https://courconstitutionnelle.bj/files/documents/1776281473_texte_de_la_cons.pdf", "law": "loi-2025-20", "what": "Constitution as revised 17 Dec 2025, final signed text (Cour constitutionnelle)", "text": "scan", "use": "none: missing revision"},
+    {"url": "https://sgg.gouv.bj/doc/loi-2017-20/download", "law": "loi-2017-20", "what": "Code du numerique (SGG; same file on legis.cdij.bj)", "text": "bad-ocr", "use": "none"},
+    {"url": "https://sgg.gouv.bj/doc/loi-2020-35/download", "law": "loi-2020-35", "what": "Loi 2020-35 (SGG)", "text": "bad-ocr", "use": "none"},
+    {"url": "https://documentation-anbenin.org/files/original/2074/Loi_N_2018-16_du_28_decembre_2018001.pdf", "law": "loi-2018-16", "what": "Code penal 2018 (AN documentation, item 2074; 111 MB)", "text": "bad-ocr (a->o substitutions)", "use": "none: Code penal skipped"},
+    {"url": "https://legis.cdij.bj/554ee90b-7a7f-42f6-b8b1-9bfdd6867803/download", "law": "loi-2022-37", "what": "Loi 2022-37 amending the Code penal (CDIJ)", "text": "scan", "use": "none"},
+    {"url": "https://courconstitutionnelle.bj/files/documents/1707905789_loi_n_2022_09_po.pdf", "law": "loi-2022-09", "what": "Loi organique Cour constitutionnelle", "text": "scan", "use": "none"},
+    {"url": "https://courconstitutionnelle.bj/files/documents/1757515816_loi_n_2025_18_du.pdf", "law": "loi-2025-18", "what": "Loi 2025-18 amending loi 2022-09", "text": "scan", "use": "none"}
+  ]
+}
