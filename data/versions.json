@@ -1,0 +1,25 @@
+{
+ "country": "BJ",
+ "acts": [
+  {
+   "slug": "constitution",
+   "short": "Constitution",
+   "title": "Constitution de la République du Bénin",
+   "url": "https://courconstitutionnelle.bj/fr/docs/textes-fondamentaux",
+   "versions": [
+    {
+     "from": "1990-12-11",
+     "units": 172,
+     "source_url": "https://web.archive.org/web/20201204234550id_/https://assemblee-nationale.bj/wp-content/uploads/2017/10/Benin-La-Constitution-1990.pdf",
+     "sha256": "3b6034ed25ecf132cc8da96593c7e92af5e50214b5d265a2d00137fbb1bc3042"
+    },
+    {
+     "from": "2019-11-07",
+     "units": 190,
+     "source_url": "https://courconstitutionnelle.bj/files/documents/1677952525_constitution_de_.pdf",
+     "sha256": "0572b6c2e913b6d3d3a1e3e794f7d0ff02c441f5eb031df140b4aa0d9e31db16"
+    }
+   ]
+  }
+ ]
+}
