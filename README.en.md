@@ -59,6 +59,7 @@ The first version is credited to Loi n° 90-32. Provisions the Cour constitution
 - `tools/check_repo.py` reads every version back from git on the day it took effect and on the day before, and both must match the corpus the history was built from; it also checks that every commit's trailers parse, that there are no merge commits and that no commit is dated in the future.
 - `tools/build.py` writes the history from that corpus in one pass, and the same corpus always gives the same commit hashes. The corpus itself is not in the repository; [`data/corpus.sha256`](data/corpus.sha256) gives its hash and [`data/versions.json`](data/versions.json) the hash of each source PDF.
 - [`REPRODUCE.md`](REPRODUCE.md), written at the build on 2026-10-30, records the checks as not yet run for that build and no second build compared.
+- [vulnerabilities/](vulnerabilities/README.en.md): possible drafting mistakes in this law, found by global-law's detectors and checked by hand. Not run yet.
 
 ## What it does not show
 
@@ -78,6 +79,10 @@ The first version is credited to Loi n° 90-32. Provisions the Cour constitution
 See [`LICENSE`](LICENSE). The texts are the official constitutional text of the Republic of Benin, published openly by the Assemblée nationale and the Cour constitutionnelle; a constitution is a public act of the State, neither site states a reuse restriction, and the publishers are credited as the source. The history, commit messages, tables and tools are CC0 1.0.
 
 No AI model wrote, translated or corrected legal text, and none runs when the history is built; the scripts were written by an AI model (see [`REPRODUCE.md`](REPRODUCE.md)).
+
+## Visualisations
+
+- [visualisations/](visualisations/README.en.md): charts drawn from this repository. Not drawn yet.
 
 ## More
 

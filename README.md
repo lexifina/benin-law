@@ -59,6 +59,7 @@ La première version est attribuée à la loi n° 90-32. Les dispositions que la
 - `tools/check_repo.py` relit chaque version depuis git au jour de son entrée en vigueur et la veille, et les deux doivent correspondre au corpus à partir duquel l’historique a été construit ; il vérifie aussi que les trailers de chaque commit se lisent sans erreur, qu’il n’existe aucun commit de fusion et qu’aucun commit n’est daté dans le futur.
 - `tools/build.py` écrit l’historique à partir de ce corpus en une seule passe, et le même corpus donne toujours les mêmes empreintes de commit. Le corpus lui-même ne figure pas dans le dépôt ; [`data/corpus.sha256`](data/corpus.sha256) en donne l’empreinte et [`data/versions.json`](data/versions.json) celle de chaque PDF source.
 - [`REPRODUCE.md`](REPRODUCE.md), rédigé lors de la construction du 30 octobre 2026, indique que les vérifications n’avaient pas encore été exécutées pour cette construction et qu’aucune seconde construction n’a été comparée.
+- [vulnerabilities/](vulnerabilities/): erreurs de rédaction possibles dans ce droit, trouvées par les détecteurs de global-law et vérifiées à la main. Pas encore lancé.
 
 ## Ce qu’il ne montre pas
 
@@ -80,6 +81,10 @@ Voir [`LICENSE`](LICENSE). Les textes sont le texte constitutionnel officiel de 
 Aucun modèle d’IA n’a écrit, traduit ou corrigé de texte juridique, et aucun n’est exécuté lors de la construction de l’historique ; les scripts ont été écrits par un modèle d’IA (voir [`REPRODUCE.md`](REPRODUCE.md)).
 
 Ceci est une traduction de la version anglaise ([README.en.md](README.en.md)) ; en cas de divergence, la version anglaise fait foi.
+
+## Visualisations
+
+- [visualisations/](visualisations/): graphiques tirés de ce dépôt. Pas encore dessinés.
 
 ## En savoir plus
 
