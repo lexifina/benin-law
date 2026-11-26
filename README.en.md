@@ -11,7 +11,7 @@ The law of Benin as a git history: one file per provision, each version committe
 
 Part of [lexifina/global-law](https://github.com/lexifina/global-law), one git history for every country's law: this is Benin's national law, which global-law reads at `benin/national/acts/`.
 
-**What is in it now:** the Constitution of 11 December 1990 (Loi n° 90-32), in two versions: as enacted, and as revised by Loi n° 2019-40 of 7 November 2019, with its 176 articles (18 of them added in 2019, such as 54-1), the preamble and the 13 title headings. No statute yet. [`constitution/README.md`](constitution/README.md) lists every provision.
+**What is in it now:** the Constitution of 11 December 1990 (Loi n° 90-32), as enacted and as revised by Loi n° 2019-40; 8 codes in `codes/` (among them the Code des personnes et de la famille and the Code foncier et domanial); and laws, ordinances, decrees and orders from 1987 to 2013 (8 laws), one folder per text, one file per article, a number that grows as collection proceeds. See [STRUCTURE.md](STRUCTURE.md) and `corpus.json`.
 
 Each provision is one file in `constitution/` (`art-042.md` is Article 42, the President's term of office; `art-054-01.md` is Article 54-1); the preamble is `preambule.md`, and each title heading has its own file (`titre-01.md`).
 
@@ -65,18 +65,20 @@ The first version is credited to Loi n° 90-32. Provisions the Cour constitution
 
 - **The Constitution in force today.** Loi n° 2025-20 of 17 December 2025 revised it again; that text is published only as a scan with no text layer, so this history stops at the 2019 revision.
 - **An exact 1990 text.** The first version is the Assemblée nationale's retyped copy, with its slips (a heading left at the end of Article 130, Article 138 inside `art-137.md`); most of the 117 unexplained changes are differences between that copy and the Court's text, not amendments.
-- **Any statute.** The copies of the Code du numérique and the Code pénal that were found have unusable text layers.
+- **Every text.** Most of the Secrétariat général du Gouvernement's PDFs are scans with no text layer, or carry an OCR layer too damaged to use ("lo loi", "portont"): those texts are left out (we do no OCR), and a text is taken only where the SGG or FAOLEX publishes a readable text layer. Appointment decrees and other individual acts are not taken. Each text is recorded as published, in one version, on its promulgation or signature day; later amendments are not replayed yet. Case law (Cour constitutionnelle, OHADA decisions) is in the private `benin-law-caselaw` repository.
 
 ## Sources
 
 | Source | Kind | Past versions | Notes |
 | --- | --- | --- | --- |
 | Assemblée nationale du Bénin ([its PDF, Internet Archive capture of 2020-12-04](https://web.archive.org/web/20201204234550/https://assemblee-nationale.bj/wp-content/uploads/2017/10/Benin-La-Constitution-1990.pdf)) | The Constitution as promulgated in 1990, a retyped copy | no, the 1990 text only | The first version |
+| [Secrétariat général du Gouvernement](https://sgg.gouv.bj/documentheque/) | Laws, ordinances, decrees and orders as promulgated (official PDFs) | no, the text as promulgated | Taken where the PDF has a readable text layer |
+| [FAOLEX](https://faolex.fao.org) (FAO) | Copies of national PDFs | no, one version each | Where the SGG PDF is a scan or unreadable; commits carry `Source-status: secondary copy` |
 | [Cour constitutionnelle du Bénin](https://courconstitutionnelle.bj/fr/docs/textes-fondamentaux) | The Constitution consolidated to the revision of Loi n° 2019-40 | no, the 2019 text only | The second version; its "(nouveau)" marks give the credits to Loi n° 2019-40 |
 
 ## Licence
 
-See [`LICENSE`](LICENSE). The texts are the official constitutional text of the Republic of Benin, published openly by the Assemblée nationale and the Cour constitutionnelle; a constitution is a public act of the State, neither site states a reuse restriction, and the publishers are credited as the source. The history, commit messages, tables and tools are CC0 1.0.
+See [`LICENSE`](LICENSE). The texts are official texts of the Republic of Benin (the Constitution, laws, ordinances, decrees, orders), published openly by the Assemblée nationale, the Cour constitutionnelle and the Secrétariat général du Gouvernement, or copied from FAOLEX (FAO); a constitution is a public act of the State, neither site states a reuse restriction, and the publishers are credited as the source. The history, commit messages, tables and tools are CC0 1.0.
 
 No AI model wrote, translated or corrected legal text, and none runs when the history is built; the scripts were written by an AI model (see [`REPRODUCE.md`](REPRODUCE.md)).
 

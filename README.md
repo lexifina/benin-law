@@ -11,7 +11,7 @@ Le droit béninois sous forme d’historique git : un fichier par disposition, c
 
 Fait partie de [lexifina/global-law](https://github.com/lexifina/global-law), un historique git unique pour le droit de chaque pays : ce dépôt contient le droit national béninois, que global-law lit dans `benin/national/acts/`.
 
-**Contenu actuel :** la Constitution du 11 décembre 1990 (loi n° 90-32), en deux versions : telle que promulguée, et telle que révisée par la loi n° 2019-40 du 7 novembre 2019, avec ses 176 articles (dont 18 ajoutés en 2019, tel l’article 54-1), le préambule et les intitulés de ses 13 titres. Aucune loi pour l’instant. [`constitution/README.md`](constitution/README.md) énumère chaque disposition.
+**Contenu actuel :** la Constitution du 11 décembre 1990 (loi n° 90-32), telle que promulguée et telle que révisée par la loi n° 2019-40 ; 8 codes dans `codes/` (dont le Code des personnes et de la famille et le Code foncier et domanial) ; et des lois, ordonnances, décrets et arrêtés de 1987 à 2013 (8 lois), un dossier par texte, un fichier par article, le nombre croissant à mesure que la collecte avance. Voir [STRUCTURE.md](STRUCTURE.md) et `corpus.json`.
 
 Chaque disposition est un fichier dans `constitution/` (`art-042.md` est l’article 42, relatif à la durée du mandat du Président de la République ; `art-054-01.md` est l’article 54-1) ; le préambule est `preambule.md`, et chaque intitulé de titre a son propre fichier (`titre-01.md`).
 
@@ -65,18 +65,20 @@ La première version est attribuée à la loi n° 90-32. Les dispositions que la
 
 - **La Constitution en vigueur aujourd’hui.** La loi n° 2025-20 du 17 décembre 2025 l’a de nouveau révisée ; ce texte n’est publié que sous forme de numérisation sans couche texte, de sorte que cet historique s’arrête à la révision de 2019.
 - **Un texte exact de 1990.** La première version est l’exemplaire ressaisi de l’Assemblée nationale, avec ses erreurs (un intitulé laissé à la fin de l’article 130, l’article 138 à l’intérieur de `art-137.md`) ; la plupart des 117 modifications inexpliquées sont des différences entre cet exemplaire et le texte de la Cour, et non des révisions.
-- **Aucune loi.** Les exemplaires du Code du numérique et du Code pénal qui ont été trouvés ont des couches texte inexploitables.
+- **Tous les textes.** La plupart des PDF du Secrétariat général du Gouvernement sont des scans sans couche texte, ou portent une couche OCR trop abîmée (« lo loi », « portont ») : ces textes sont écartés (nous ne faisons pas d’OCR), et un texte n’est repris que si le SGG ou FAOLEX en publie une couche texte lisible. Les décrets de nomination et autres actes individuels ne sont pas repris. Chaque texte est enregistré tel que publié, en une version, au jour de sa promulgation ou signature ; les modifications ultérieures ne sont pas encore rejouées. La jurisprudence (Cour constitutionnelle, décisions OHADA) est dans le dépôt privé `benin-law-caselaw`.
 
 ## Sources
 
 | Source | Nature | Versions antérieures | Remarques |
 | --- | --- | --- | --- |
 | Assemblée nationale du Bénin ([son PDF, capture de l’Internet Archive du 4 décembre 2020](https://web.archive.org/web/20201204234550/https://assemblee-nationale.bj/wp-content/uploads/2017/10/Benin-La-Constitution-1990.pdf)) | La Constitution telle que promulguée en 1990, exemplaire ressaisi | non, le seul texte de 1990 | La première version |
+| [Secrétariat général du Gouvernement](https://sgg.gouv.bj/documentheque/) | Lois, ordonnances, décrets et arrêtés promulgués (PDF officiels) | non, le texte tel que promulgué | Le texte est repris quand le PDF a une couche texte lisible |
+| [FAOLEX](https://faolex.fao.org) (FAO) | Copies de PDF nationaux | non, une version chacun | Quand le PDF du SGG est un scan ou illisible ; commits `Source-status: secondary copy` |
 | [Cour constitutionnelle du Bénin](https://courconstitutionnelle.bj/fr/docs/textes-fondamentaux) | La Constitution consolidée jusqu’à la révision opérée par la loi n° 2019-40 | non, le seul texte de 2019 | La seconde version ; ses mentions « (nouveau) » fondent les attributions à la loi n° 2019-40 |
 
 ## Licence
 
-Voir [`LICENSE`](LICENSE). Les textes sont le texte constitutionnel officiel de la République du Bénin, publié librement par l’Assemblée nationale et la Cour constitutionnelle ; une constitution est un acte public de l’État, aucun des deux sites n’énonce de restriction à la réutilisation, et les éditeurs sont cités comme source. L’historique, les messages de commit, les tableaux et les outils sont sous CC0 1.0.
+Voir [`LICENSE`](LICENSE). Les textes sont des textes officiels de la République du Bénin (Constitution, lois, ordonnances, décrets, arrêtés), publiés librement par l’Assemblée nationale, la Cour constitutionnelle et le Secrétariat général du Gouvernement, ou copiés de FAOLEX (FAO) ; une constitution est un acte public de l’État, aucun des deux sites n’énonce de restriction à la réutilisation, et les éditeurs sont cités comme source. L’historique, les messages de commit, les tableaux et les outils sont sous CC0 1.0.
 
 Aucun modèle d’IA n’a écrit, traduit ou corrigé de texte juridique, et aucun n’est exécuté lors de la construction de l’historique ; les scripts ont été écrits par un modèle d’IA (voir [`REPRODUCE.md`](REPRODUCE.md)).
 

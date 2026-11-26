@@ -69,3 +69,22 @@ The commit messages are written by `build.py` from the source data.
 
 Model use at data-build time:
 - none
+
+## Runner (2026-11-26)
+
+The acts outside `constitution/` are written by `scripts/benin-law/runner/bj_build.py acts` (one commit per act, pushed
+as fast-forward batches; no rebuild of earlier history):
+
+- Listing: the SGG documenthèque (`/documentheque/lois|ordonnances|arretes|decrets/<page>/`), each entry's title giving
+  the number and the promulgation or signature day; FAOLEX records for Benin from FAOLEX's public sitemaps.
+- Each act is taken from the SGG PDF when its text layer passes the gate, otherwise from the FAOLEX PDF
+  (`Source-status: secondary copy (FAOLEX, <url>)`). Gate: at least 250 characters a page, no scanned page without
+  text, at least 88% word-like tokens, at least 17% French function words and almost no tokens of the SGG OCR's
+  a->o damage ("lo", "portont", "esl"). A layer laid by the publisher over a scan is tagged `Text-source: publisher OCR`.
+  We do no OCR.
+- Date: the day in the official title (SGG listing, or FAOLEX title); for a FAOLEX copy of a law the SGG lists, the SGG
+  title's day; otherwise the President's "Fait à Cotonou, le …" at the end of the text. FAOLEX's `date_of_text` alone is
+  not used (it is often the Assembly's adoption day): such acts are held.
+- Codes ("portant Code …") go to `codes/<code>/`; a later law instituting the same code is a new version of that folder.
+- Appointment decrees and other individual acts are skipped.
+- At this push: 8 acts taken (8 lois); 2 acts held (scans, unreadable layers, no reliable date).

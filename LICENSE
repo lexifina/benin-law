@@ -1,4 +1,12 @@
 The texts are the official constitutional text of the Republic of Benin, published openly by the Assemblée nationale du Bénin (assemblee-nationale.bj) and the Cour constitutionnelle du Bénin (courconstitutionnelle.bj). A constitution and other official legislative texts are public acts of the State; neither site states a reuse restriction on them. Credit the publishers as the source of the texts.
 
+Laws, ordinances, decrees and orders (codes/, lois/, ordonnances/, decrets/, arretes/) are copied from the text layer
+of the official PDFs published by the Secrétariat général du Gouvernement du Bénin (https://sgg.gouv.bj; no reuse
+restriction stated) or, where that PDF is a scan or unreadable, from the copy of the national PDF in FAOLEX, the FAO
+Legal Database (https://faolex.fao.org; FAO's terms allow reproduction for non-commercial purposes with acknowledgement
+of FAO as the source). Official texts of a legislative, administrative or judicial nature are excluded from copyright
+protection (Bangui Agreement, Annex VII, article 6). Each act's README.md and commit
+trailers name the file it comes from.
+
 Lexifina's own contributions (the arrangement of the history, the commit messages, the tables and the
 tools) are dedicated to the public domain under CC0 1.0 Universal: https://creativecommons.org/publicdomain/zero/1.0/
