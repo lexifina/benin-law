@@ -1,0 +1,87 @@
+{
+ "corpus": "bj/national/acts",
+ "jurisdiction": "Bénin",
+ "generated_from": "runner state",
+ "acts": [
+  {
+   "id": "codes/code-d-ethique-et-de-deontologie-pour-la-recherche-en-sante",
+   "kind": "loi",
+   "number": "2010-40",
+   "date": "2010-12-08",
+   "title": "Loi n° 2010-40 du 8 décembre 2010 Portant code d'éthique et de déontologie pour la recherche en santé en République du Bénin",
+   "source": "https://sgg.gouv.bj/doc/loi-2010-40/download",
+   "text_layer": "born-digital",
+   "articles": 52
+  },
+  {
+   "id": "codes/code-de-l-eau",
+   "kind": "loi",
+   "number": "1987-16",
+   "date": "1987-09-21",
+   "title": "Loi n° 1987-16 du 21 septembre 1987 portant Code de l'Eau en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben1295.pdf",
+   "text_layer": "born-digital",
+   "articles": 73
+  },
+  {
+   "id": "codes/code-de-l-electricite",
+   "kind": "loi",
+   "number": "2006-16",
+   "date": "2007-03-27",
+   "title": "Loi n° 2006-16 du 27 mars 2007 portant code de l'électricité en République du Bénin",
+   "source": "https://sgg.gouv.bj/doc/loi-2006-16/download",
+   "text_layer": "born-digital",
+   "articles": 71
+  },
+  {
+   "id": "codes/code-de-l-hygiene-publique",
+   "kind": "loi",
+   "number": "1987-15",
+   "date": "1987-09-21",
+   "title": "Loi n° 1987-15 du 21 septembre 1987 portant Code de l'hygiène publique",
+   "source": "https://faolex.fao.org/docs/pdf/ben18701.pdf",
+   "text_layer": "born-digital",
+   "articles": 164
+  },
+  {
+   "id": "codes/code-de-securite-sociale",
+   "kind": "loi",
+   "number": "1998-19",
+   "date": "2003-03-21",
+   "title": "Loi n° 1998-19 du 21 mars 2003 portant code de sécurité sociale en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben234701.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 62
+  },
+  {
+   "id": "codes/code-des-personnes-et-de-la-famille",
+   "kind": "loi",
+   "number": "2002-07",
+   "date": "2004-08-24",
+   "title": "Loi n° 2002-07 du 24 août 2004 Portant Code des personnes et de la famille",
+   "source": "https://faolex.fao.org/docs/pdf/ben208188.pdf",
+   "text_layer": "born-digital",
+   "articles": 1028
+  },
+  {
+   "id": "codes/code-foncier-et-domanial",
+   "kind": "loi",
+   "number": "2013-01",
+   "date": "2013-08-14",
+   "title": "Loi n° 2013-01 du 14 août 2013 portant code foncier et domanial en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben141755.pdf",
+   "text_layer": "born-digital",
+   "articles": 543
+  },
+  {
+   "id": "codes/code-minier-et-fiscalites-minieres",
+   "kind": "loi",
+   "number": "2006-17",
+   "date": "2006-10-17",
+   "title": "Loi n° 2006-17 du 17 octobre 2006 portant code minier et fiscalités minières en République du Bénin",
+   "source": "https://sgg.gouv.bj/doc/loi-2006-17/download",
+   "text_layer": "born-digital",
+   "articles": 109
+  }
+ ]
+}
