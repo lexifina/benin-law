@@ -4,6 +4,406 @@
  "generated_from": "runner state",
  "acts": [
   {
+   "id": "arretes/1969/faolex-039632-relatif-aux-differentes-zones-de-navigation-de",
+   "kind": "arrete",
+   "number": "faolex-039632",
+   "date": "1969-06-13",
+   "title": "Arrêté n° faolex-039632 du 13 juin 1969 relatif aux différentes zones de navigation de pêche",
+   "source": "https://faolex.fao.org/docs/pdf/ben39632.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 4
+  },
+  {
+   "id": "arretes/1970/faolex-017486-portant-enlevement-des-acadjas-du-lac-aheme-des",
+   "kind": "arrete",
+   "number": "faolex-017486",
+   "date": "1970-09-16",
+   "title": "Arrêté n° faolex-017486 du 16 septembre 1970 portant enlèvement des acadjas du Lac Ahémé, des lagunes de Ouidah et de Grand-Popo",
+   "source": "https://faolex.fao.org/docs/pdf/ben17486.pdf",
+   "text_layer": "born-digital",
+   "articles": 4
+  },
+  {
+   "id": "arretes/1998/faolex-013604-arrete-no-39-mdr-dc-sg-cc-cp-du-2-fevrier-1998",
+   "kind": "arrete",
+   "number": "faolex-013604",
+   "date": "1998-02-02",
+   "title": "Arrêté nº 39/MDR/DC/SG/CC/CP du 2 février 1998, portant création, attributions, organisation et fonctionnement des Comités départementaux pour l'alimentation et la nutrition (C.D.A.N.)",
+   "source": "https://faolex.fao.org/docs/pdf/ben13604.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 5
+  },
+  {
+   "id": "arretes/1998/faolex-016682-portant-attribution-organisation-et",
+   "kind": "arrete",
+   "number": "faolex-016682",
+   "date": "1998-08-19",
+   "title": "Arrêté n° faolex-016682 du 19 août 1998 portant attribution, organisation et fonctionnement de la Direction de l'Aménagement du Territoire (DAT)",
+   "source": "https://faolex.fao.org/docs/pdf/ben16682.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 12
+  },
+  {
+   "id": "arretes/1998/faolex-016683-portant-attributions-organisation-et",
+   "kind": "arrete",
+   "number": "faolex-016683",
+   "date": "1998-09-07",
+   "title": "Arrêté n° faolex-016683 du 7 septembre 1998 portant attributions, organisation et fonctionnement de l'Office National de Stabilisation et de Soutien des Prix des Produits Agricoles (ONS)",
+   "source": "https://faolex.fao.org/docs/pdf/ben16683.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 25
+  },
+  {
+   "id": "arretes/1998/faolex-026968-portant-attributions-organisation-et",
+   "kind": "arrete",
+   "number": "faolex-026968",
+   "date": "1998-08-19",
+   "title": "Arrêté n° faolex-026968 du 19 août 1998 portant attributions, organisation et fonctionnement de la Direction del'habitat et de la construction",
+   "source": "https://faolex.fao.org/docs/pdf/ben26968.pdf",
+   "text_layer": "born-digital",
+   "articles": 18
+  },
+  {
+   "id": "arretes/1999/faolex-146432-portant-modalites-de-recouvrement-des-redevances",
+   "kind": "arrete",
+   "number": "faolex-146432",
+   "date": "1999-02-22",
+   "title": "Arrêté n° faolex-146432 du 22 février 1999 portant modalités de recouvrement des redevances proportionnelles et superficiaires sur des substances de carrières",
+   "source": "https://faolex.fao.org/docs/pdf/ben146432.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 11
+  },
+  {
+   "id": "arretes/1999/faolex-146439-portant-creation-attributions-et-fonctionnement",
+   "kind": "arrete",
+   "number": "faolex-146439",
+   "date": "1999-08-31",
+   "title": "Arrêté n° faolex-146439 du 31 août 1999 portant création, attributions et fonctionnement de la commission technique d'agrément des bureaux d'import-export de diamant et autres substances précieuses et semi-précieuses",
+   "source": "https://faolex.fao.org/docs/pdf/ben146439.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 8
+  },
+  {
+   "id": "arretes/2003/faolex-042834-portant-verification-des-bonnes-pratiques-de",
+   "kind": "arrete",
+   "number": "faolex-042834",
+   "date": "2003-04-17",
+   "title": "Arrêté n° faolex-042834 du 17 avril 2003 portant vérification des bonnes pratiques de laboratoire d'analyse des produits de la pêche",
+   "source": "https://faolex.fao.org/docs/pdf/ben42834.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 5
+  },
+  {
+   "id": "arretes/2003/faolex-042840-portant-definitions-des-conditions-d-hygiene-a",
+   "kind": "arrete",
+   "number": "faolex-042840",
+   "date": "2003-04-17",
+   "title": "Arrêté n° faolex-042840 du 17 avril 2003 portant définitions des conditions d'hygiène à bord des pirogues de pêche crevettière",
+   "source": "https://faolex.fao.org/docs/pdf/ben42840.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 3
+  },
+  {
+   "id": "arretes/2003/faolex-043990-portant-creation-organisation-et-fonctionnement",
+   "kind": "arrete",
+   "number": "faolex-043990",
+   "date": "2003-03-20",
+   "title": "Arrêté n° faolex-043990 du 20 mars 2003 portant création, organisation et fonctionnement du Fonds de garantie et de calamité",
+   "source": "https://faolex.fao.org/docs/pdf/ben43990.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 8
+  },
+  {
+   "id": "arretes/2003/faolex-050119-portant-creation-attributions-organisation-et",
+   "kind": "arrete",
+   "number": "faolex-050119",
+   "date": "2003-09-19",
+   "title": "Arrêté n° faolex-050119 du 19 septembre 2003 portant création,attributions, organisation et fonctionnement de la cellule environnementale du MCPPD",
+   "source": "https://faolex.fao.org/docs/pdf/ben50119.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 5
+  },
+  {
+   "id": "arretes/2004/faolex-146433-portant-attributions-organisation-et",
+   "kind": "arrete",
+   "number": "faolex-146433",
+   "date": "2004-06-03",
+   "title": "Arrêté n° faolex-146433 du 3 juin 2004 portant attributions, organisation et fonctionnement du centre régional pour la promotion agricole des départements d'OUEME et du PLATEAU",
+   "source": "https://faolex.fao.org/docs/pdf/ben146433.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 35
+  },
+  {
+   "id": "arretes/2004/faolex-146434-portant-attributions-organisation-et",
+   "kind": "arrete",
+   "number": "faolex-146434",
+   "date": "2004-06-03",
+   "title": "Arrêté n° faolex-146434 du 3 juin 2004 portant attributions, organisation et fonctionnement du centre régional pour la promotion agricole des départements du zou et des collines",
+   "source": "https://faolex.fao.org/docs/pdf/ben146434.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 35
+  },
+  {
+   "id": "arretes/2004/faolex-146435-portant-attributions-organisation-et",
+   "kind": "arrete",
+   "number": "faolex-146435",
+   "date": "2004-06-03",
+   "title": "Arrêté n° faolex-146435 du 3 juin 2004 portant attributions, organisation et fonctionnement du centre régional pour la promotion agricole des départements du MONO et du COUFFO",
+   "source": "https://faolex.fao.org/docs/pdf/ben146435.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 35
+  },
+  {
+   "id": "arretes/2004/faolex-146437-portant-attributions-organisation-et",
+   "kind": "arrete",
+   "number": "faolex-146437",
+   "date": "2004-06-03",
+   "title": "Arrêté n° faolex-146437 du 3 juin 2004 portant attributions, organisation et fonctionnement du centre régional pour la promotion agricole des départements de l'ATACORA et de la DONGA",
+   "source": "https://faolex.fao.org/docs/pdf/ben146437.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 35
+  },
+  {
+   "id": "arretes/2004/faolex-146438-portant-attributions-organisation-et",
+   "kind": "arrete",
+   "number": "faolex-146438",
+   "date": "2004-06-03",
+   "title": "Arrêté n° faolex-146438 du 3 juin 2004 portant attributions, organisation et fonctionnement du centre régional pour la promotion agricole des départements du BORGOU et de l’ALIBORI",
+   "source": "https://faolex.fao.org/docs/pdf/ben146438.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 33
+  },
+  {
+   "id": "arretes/2004/faolex-146441-portant-creation-composition-attributions-et",
+   "kind": "arrete",
+   "number": "faolex-146441",
+   "date": "2004-07-08",
+   "title": "Arrêté n° faolex-146441 du 8 juillet 2004 portant création, composition, attributions et fonctionnement de la Commission Technique Interministérielle chargée de l’étude des dossiers de demande d'ouverture et d'exploitation de dépôts d'hydrocarbures et des stations-service",
+   "source": "https://faolex.fao.org/docs/pdf/ben146441.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 11
+  },
+  {
+   "id": "arretes/2004/faolex-146442-portant-reglementation-de-l-orpaillage-en",
+   "kind": "arrete",
+   "number": "faolex-146442",
+   "date": "2004-08-19",
+   "title": "Arrêté n° faolex-146442 du 19 août 2004 portant réglementation de l'orpaillage en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben146442.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 13
+  },
+  {
+   "id": "arretes/2005/faolex-146448-portant-creation-organisation-attributions-et",
+   "kind": "arrete",
+   "number": "faolex-146448",
+   "date": "2005-01-20",
+   "title": "Arrêté n° faolex-146448 du 20 janvier 2005 portant création, organisation, attributions et fonctionnement un projet \"mise en place et renforcement des capacités des centres régionaux pour la promotion agricole\" (MPRC/CeRPA)",
+   "source": "https://faolex.fao.org/docs/pdf/ben146448.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 21
+  },
+  {
+   "id": "arretes/2005/faolex-146451-portant-attributions-organisation-et",
+   "kind": "arrete",
+   "number": "faolex-146451",
+   "date": "2005-11-29",
+   "title": "Arrêté n° faolex-146451 du 29 novembre 2005 portant attributions, organisation et fonctionnement de la direction du conseil agricole et de la formation opérationnelle (DICAF)",
+   "source": "https://faolex.fao.org/docs/pdf/ben146451.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 14
+  },
+  {
+   "id": "arretes/2007/faolex-080568-fixant-les-regles-d-organisation-et-les",
+   "kind": "arrete",
+   "number": "faolex-080568",
+   "date": "2007-07-30",
+   "title": "Arrêté n° faolex-080568 du 30 juillet 2007 fixant les règles d'organisation et les procédures de contrôle de la qualité, du conditionnement et de la traçabilité des produits agricoles d'origine végétale",
+   "source": "https://faolex.fao.org/docs/pdf/ben80568.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 51
+  },
+  {
+   "id": "arretes/2007/faolex-146455-portant-conditions-d-exportation-d-importation-et",
+   "kind": "arrete",
+   "number": "faolex-146455",
+   "date": "2007-10-11",
+   "title": "Arrêté n° faolex-146455 du 11 octobre 2007 portant conditions d'exportation, d'importation et de distribution des produits halieutiques en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben146455.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 18
+  },
+  {
+   "id": "arretes/2008/faolex-133978-fixant-les-regles-d-organisation-les-procedures",
+   "kind": "arrete",
+   "number": "faolex-133978",
+   "date": "2008-08-18",
+   "title": "Arrêté n° faolex-133978 du 18 août 2008 fixant les règles d’organisation, les procédures de contrôle de qualité, de salubrité et de traçabilité des produits halieutiques",
+   "source": "https://faolex.fao.org/docs/pdf/ben133978.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 25
+  },
+  {
+   "id": "arretes/2009/faolex-143624-determinant-les-types-modeles-et-modalites-de",
+   "kind": "arrete",
+   "number": "faolex-143624",
+   "date": "2009-07-29",
+   "title": "Arrêté interministériel n° 0040/MEPN/MDGLAAT/DC/SGM/DGFRN/SA du 29 juillet 2009 déterminant les types, modèles et modalités de délivrance et de contrôle des coupons de transport ou bois en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben143624.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 18
+  },
+  {
+   "id": "arretes/2009/faolex-143625-portant-conditions-d-agrement-et-modalites-d",
+   "kind": "arrete",
+   "number": "faolex-143625",
+   "date": "2009-07-29",
+   "title": "Arrêté n° faolex-143625 du 29 juillet 2009 portant conditions d’agrément et modalités d’organisation et de fonctionnement des Marchés Ruraux de Bois (MRB)",
+   "source": "https://faolex.fao.org/docs/pdf/ben143625.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 37
+  },
+  {
+   "id": "arretes/2009/faolex-146449-portant-attributions-organisation-et",
+   "kind": "arrete",
+   "number": "faolex-146449",
+   "date": "2009-11-29",
+   "title": "Arrêté n° faolex-146449 du 29 novembre 2009 portant attributions, organisation et fonctionnement de la direction des ressources humaines (DRH)",
+   "source": "https://faolex.fao.org/docs/pdf/ben146449.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 17
+  },
+  {
+   "id": "arretes/2009/faolex-146456-portant-creation-attributions-organisation-et",
+   "kind": "arrete",
+   "number": "faolex-146456",
+   "date": "2009-02-19",
+   "title": "Arrêté n° faolex-146456 du 19 février 2009 portant création, attributions, organisation et fonctionnement du cadre de concertation et d'échanges entre la Délégation à l'Aménagement du Territoire et les Services de la Planification et de l'Aménagement du Territoire des Préfectures",
+   "source": "https://faolex.fao.org/docs/pdf/ben146456.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 9
+  },
+  {
+   "id": "arretes/2011/faolex-141769-portant-creation-attributions-composition-et",
+   "kind": "arrete",
+   "number": "faolex-141769",
+   "date": "2011-10-24",
+   "title": "Arrêté n° faolex-141769 du 24 octobre 2011 portant création, attributions, composition et fonctionnement du comité de marque de certification pour les référentiels sur les produits agroalimentaires",
+   "source": "https://faolex.fao.org/docs/pdf/ben141769.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 9
+  },
+  {
+   "id": "arretes/2011/faolex-141770-portant-creation-attributions-composition-et",
+   "kind": "arrete",
+   "number": "faolex-141770",
+   "date": "2011-05-14",
+   "title": "Arrêté n° faolex-141770 du 14 mai 2011 portant création, attributions, composition et fonctionnement du comité de marque de certification pour les référentiels de service",
+   "source": "https://faolex.fao.org/docs/pdf/ben141770.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 8
+  },
+  {
+   "id": "arretes/2012/faolex-141768-portant-creation-attributions-composition-et",
+   "kind": "arrete",
+   "number": "faolex-141768",
+   "date": "2012-05-14",
+   "title": "Arrêté n° faolex-141768 du 14 mai 2012 portant création, attributions, composition et fonctionnement du comité de marque de certification pour les référentiels sur les produits d'origine animale",
+   "source": "https://faolex.fao.org/docs/pdf/ben141768.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 7
+  },
+  {
+   "id": "arretes/2012/faolex-225234-fixant-les-conditions-de-gestion-durable-de-la",
+   "kind": "arrete",
+   "number": "faolex-225234",
+   "date": "2012-11-16",
+   "title": "Arrêté n° faolex-225234 du 16 novembre 2012 fixant les conditions de gestion durable de la forêt sacrée en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben225234.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 52
+  },
+  {
+   "id": "arretes/2014/faolex-157150-portant-creation-composition-attributions-et",
+   "kind": "arrete",
+   "number": "faolex-157150",
+   "date": "2014-03-14",
+   "title": "Arrêté n° faolex-157150 du 14 mars 2014 portant création, composition, attributions et fonctionnement du comité interministériel permanent d'appui à la mise en œuvre de la Politique Nationale de l'Aide au Développement (PNAD 2011-2020)",
+   "source": "https://faolex.fao.org/docs/pdf/ben157150.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 13
+  },
+  {
+   "id": "arretes/2014/faolex-157151-portant-definition-du-cadre-institutionnel-d",
+   "kind": "arrete",
+   "number": "faolex-157151",
+   "date": "2014-03-14",
+   "title": "Arrêté n° faolex-157151 du 14 mars 2014 portant définition du cadre institutionnel d'application du décret n° 2011-893 du 30 décembre 2011 adoptant la Politique Nationale de l'Aide au Développement (PNAD 2010-2020)",
+   "source": "https://faolex.fao.org/docs/pdf/ben157151.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 40
+  },
+  {
+   "id": "arretes/2014/faolex-176531-n-031-muha-mef-mispc-ms-mdlaat-dc-sgm-dghc-dnsp",
+   "kind": "arrete",
+   "number": "faolex-176531",
+   "date": "2014-04-04",
+   "title": "ARRETE INTERMINISTERIEL Année 2014 n° 031 /MUHA/MEF//MISPC/MS/MDLAAT/DC/SGM/DGHC/DNSP/DGNSP/DCLR/SA 04 Avril 2014 portant modalités d’application du décret n° 2014-205 du 13 mars 2014 portant règlementation de la délivrance du permis de construire en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben176531.pdf",
+   "text_layer": "born-digital",
+   "articles": 29
+  },
+  {
+   "id": "arretes/2014/faolex-176642-n-036-muha-mdglaat-dc-sgm-dghc-dclr-sa-du-04",
+   "kind": "arrete",
+   "number": "faolex-176642",
+   "date": "2014-04-04",
+   "title": "Arrêté année 2014 n° 036/MUHA/MDGLAAT/DC/SGM/DGHC/DCLR/SA du 04 Avril 2014 portant création, composition, attributions et fonctionnement de la commission communale ou municipale du permis de construire en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben176642.pdf",
+   "text_layer": "born-digital",
+   "articles": 11
+  },
+  {
+   "id": "arretes/2014/faolex-176643-n-034-muha-mef-mispc-ms-mdglaat-dc-sgm-dghc-dnsp",
+   "kind": "arrete",
+   "number": "faolex-176643",
+   "date": "2014-04-04",
+   "title": "Arrêté interministériel Année 2014 n° 034/MUHA/MEF/MISPC/MS/MDGLAAT/DC/SGM/ DGHC/DNSP/DGNSP/DCLR/SA du 04 Avril 2014 portant création, composition, attributions et fonctionnement de la commission nationale du permis de construire en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben176643.pdf",
+   "text_layer": "born-digital",
+   "articles": 12
+  },
+  {
+   "id": "arretes/2014/faolex-176644-n-035-muha-mdglaat-dc-sgm-dghc-dclr-sa-du-04",
+   "kind": "arrete",
+   "number": "faolex-176644",
+   "date": "2014-04-04",
+   "title": "Arrêté Année 2014 n° 035/MUHA/MDGLAAT/DC/SGM/DGHC/DCLR/SA du 04 Avril 2014 portant création, composition, attributions et fonctionnement de la commission départementale du permis de construire en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben176644.pdf",
+   "text_layer": "born-digital",
+   "articles": 11
+  },
+  {
+   "id": "arretes/2015/faolex-176639-portant-definition-des-prescriptions-minimales-a",
+   "kind": "arrete",
+   "number": "faolex-176639",
+   "date": "2015-05-12",
+   "title": "Arrêté n° faolex-176639 du 12 mai 2015 portant définition des prescriptions minimales à observer en matière d’Operations de lotissement et des opérations foncières urbaines de remembrement en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben176639.pdf",
+   "text_layer": "born-digital",
+   "articles": 32
+  },
+  {
+   "id": "arretes/2015/faolex-176640-n-041-muha-mispc-mdglaat-ms-dc-sgm-dghc-dgdu-dnsp",
+   "kind": "arrete",
+   "number": "faolex-176640",
+   "date": "2015-05-26",
+   "title": "Arrêté interministériel année 2015 n° 041/MUHA/MISPC/MDGLAAT/MS/DC/SGM/DGHC/ DGDU/DNSP/DGNSP/DCLR/SA du 26 Mai 2015 portant modalités de délivrance du certificat d’habitabilité et de conformité en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben176640.pdf",
+   "text_layer": "born-digital",
+   "articles": 10
+  },
+  {
    "id": "codes/code-d-ethique-et-de-deontologie-pour-la-recherche-en-sante",
    "kind": "loi",
    "number": "2010-40",
@@ -132,6 +532,46 @@
    "source": "https://faolex.fao.org/docs/pdf/ben227830.pdf",
    "text_layer": "publisher-ocr",
    "articles": 4
+  },
+  {
+   "id": "decrets/1985/1985-291-portant-institution-de-la-journee-nationale-de-l",
+   "kind": "decret",
+   "number": "1985-291",
+   "date": "1985-07-23",
+   "title": "Décret n° 1985-291 du 23 juillet 1985 portant institution de la Journée Nationale de l’Arbre",
+   "source": "https://faolex.fao.org/docs/pdf/ben179136.pdf",
+   "text_layer": "born-digital",
+   "articles": 5
+  },
+  {
+   "id": "decrets/1985/1985-394-portant-attribution-composition-et-fonctionnement",
+   "kind": "decret",
+   "number": "1985-394",
+   "date": "1985-09-11",
+   "title": "Décret n° 1985-394 du 11 septembre 1985 Portant attribution, composition et fonctionnement du Comité National pour l'Alimentation et la Nutrition",
+   "source": "https://sgg.gouv.bj/doc/decret-1985-394/download",
+   "text_layer": "publisher-ocr",
+   "articles": 3
+  },
+  {
+   "id": "decrets/1986/1986-516-portant-definition-des-responsabilites-en-matiere",
+   "kind": "decret",
+   "number": "1986-516",
+   "date": "1986-12-15",
+   "title": "Décret n° 1986-516 du 15 décembre 1986 portant Définition des responsabilités en matière de gestion du littoral",
+   "source": "https://sgg.gouv.bj/doc/decret-1986-516/download",
+   "text_layer": "publisher-ocr",
+   "articles": 1
+  },
+  {
+   "id": "decrets/1987/1987-302-portant-creation-composition-et-fonctionnement-du",
+   "kind": "decret",
+   "number": "1987-302",
+   "date": "1987-09-28",
+   "title": "Décret n° 1987-302 du 28 septembre 1987 Portant création, composition et fonctionnement du Comité National des Semences",
+   "source": "https://sgg.gouv.bj/doc/decret-1987-302/download",
+   "text_layer": "publisher-ocr",
+   "articles": 2
   },
   {
    "id": "decrets/1990/1990-366-portant-modalites-d-application-de-la-loi-n87-014",
@@ -682,6 +1122,16 @@
    "source": "https://faolex.fao.org/docs/pdf/ben146467.pdf",
    "text_layer": "publisher-ocr",
    "articles": 2
+  },
+  {
+   "id": "decrets/2009/faolex-141759-portant-attributions-organisation-et",
+   "kind": "decret",
+   "number": "faolex-141759",
+   "date": "2009-12-31",
+   "title": "Décret du 31 Décembre 2009 portant attributions, organisation et fonctionnement de l'Agence Béninoise de Métrologie et du Contrôle de la Qualité (ABMCQ)",
+   "source": "https://faolex.fao.org/docs/pdf/ben141759.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 50
   },
   {
    "id": "decrets/2010/2010-153-portant-creation-attributions-organisation-et",
@@ -1242,6 +1692,26 @@
    "source": "https://sgg.gouv.bj/doc/decret-2016-690/download",
    "text_layer": "publisher-ocr",
    "articles": 4
+  },
+  {
+   "id": "decrets/2016/faolex-178968-portant-attributions-organisation-et",
+   "kind": "decret",
+   "number": "faolex-178968",
+   "date": "2016-07-20",
+   "title": "Décret n° faolex-178968 du 20 juillet 2016 portant attributions, organisation et fonctionnement du ministère de l’Agriculture, de l'Elevage et de la Pêche",
+   "source": "https://faolex.fao.org/docs/pdf/ben178968.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 86
+  },
+  {
+   "id": "decrets/2016/faolex-210863-portant-attributions-organisation-et",
+   "kind": "decret",
+   "number": "faolex-210863",
+   "date": "2016-07-20",
+   "title": "Décret n° faolex-210863 du 20 juillet 2016 portant attributions, organisation et fonctionnement du Ministère du Travail, de la Fonction Publique, et des Affaires sociales",
+   "source": "https://faolex.fao.org/docs/pdf/ben210863.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 105
   },
   {
    "id": "decrets/2017/2017-101-constatant-approbation-de-la-creation-des-agences",
