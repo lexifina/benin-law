@@ -26,12 +26,22 @@
   {
    "id": "codes/code-de-l-electricite",
    "kind": "loi",
-   "number": "2006-16",
-   "date": "2007-03-27",
-   "title": "Loi n° 2006-16 du 27 mars 2007 portant code de l'électricité en République du Bénin",
-   "source": "https://sgg.gouv.bj/doc/loi-2006-16/download",
+   "number": "2020-05",
+   "date": "2020-04-01",
+   "title": "Loi n° 2020-05 du 1er avril 2020 portant code de l'électricité en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben234919.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 93
+  },
+  {
+   "id": "codes/code-de-l-enfant",
+   "kind": "loi",
+   "number": "2015-08",
+   "date": "2015-12-08",
+   "title": "Loi n° 2015-08 du 8 décembre 2015 portant code de l’enfant en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben161458.pdf",
    "text_layer": "born-digital",
-   "articles": 71
+   "articles": 409
   },
   {
    "id": "codes/code-de-l-hygiene-publique",
@@ -44,6 +54,16 @@
    "articles": 164
   },
   {
+   "id": "codes/code-de-la-marine-marchande",
+   "kind": "ordonnance",
+   "number": "1968-38",
+   "date": "1968-06-11",
+   "title": "Ordonnance n° 1968-38 du 11 juin 1968 portant Code de la Marine Marchande de la République du Dahomey",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1968-38/download",
+   "text_layer": "publisher-ocr",
+   "articles": 1
+  },
+  {
    "id": "codes/code-de-securite-sociale",
    "kind": "loi",
    "number": "1998-19",
@@ -52,6 +72,16 @@
    "source": "https://faolex.fao.org/docs/pdf/ben234701.pdf",
    "text_layer": "publisher-ocr",
    "articles": 62
+  },
+  {
+   "id": "codes/code-des-investissements",
+   "kind": "loi",
+   "number": "2020-02",
+   "date": "2020-03-20",
+   "title": "Loi n° 2020-02 du 20 mars 2020 portant Code des investissements en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben197388.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 50
   },
   {
    "id": "codes/code-des-personnes-et-de-la-famille",
@@ -74,6 +104,16 @@
    "articles": 543
   },
   {
+   "id": "codes/code-maritime",
+   "kind": "loi",
+   "number": "2010-11",
+   "date": "2011-03-07",
+   "title": "Loi n° 2010-11 du 7 mars 2011 Portant code maritime en République du Bénin",
+   "source": "https://sgg.gouv.bj/doc/loi-2010-11/download",
+   "text_layer": "publisher-ocr",
+   "articles": 577
+  },
+  {
    "id": "codes/code-minier-et-fiscalites-minieres",
    "kind": "loi",
    "number": "2006-17",
@@ -82,6 +122,3036 @@
    "source": "https://sgg.gouv.bj/doc/loi-2006-17/download",
    "text_layer": "born-digital",
    "articles": 109
+  },
+  {
+   "id": "codes/constitution",
+   "kind": "loi",
+   "number": "2019-40",
+   "date": "2019-11-07",
+   "title": "Loi N. 2019-40 du 07 novembre 2019 portant révision de la loi N. 90-32 du 11 décembre 1990 portant Constitution de la République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben227830.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 4
+  },
+  {
+   "id": "decrets/1990/1990-366-portant-modalites-d-application-de-la-loi-n87-014",
+   "kind": "decret",
+   "number": "1990-366",
+   "date": "1990-12-04",
+   "title": "Décret n° 1990-366 du 4 décembre 1990 portant modalités d'application de la loi N°87-014 du 21 septembre 1987, sur la réglementation de la protection de la nature et de l'exercice de la chasse en République du Bénin",
+   "source": "https://sgg.gouv.bj/doc/decret-1990-366/download",
+   "text_layer": "publisher-ocr",
+   "articles": 3
+  },
+  {
+   "id": "decrets/1991/1991-13-portant-reglementation-de-l-importation-des",
+   "kind": "decret",
+   "number": "1991-13",
+   "date": "1991-01-24",
+   "title": "Décret n° 1991-13 du 24 janvier 1991 portant règlementation de l'importation des produits de nature dangereuse pour la santé humaine et la sécurité de l'Etat",
+   "source": "https://faolex.fao.org/docs/pdf/ben166788.pdf",
+   "text_layer": "born-digital",
+   "articles": 7
+  },
+  {
+   "id": "decrets/1992/1992-258-fixant-les-modalites-d-application-de-la-loi-n-91",
+   "kind": "decret",
+   "number": "1992-258",
+   "date": "1992-09-18",
+   "title": "Décret n° 1992-258 du 18 septembre 1992 fixant les modalités d'application de la Loi N° 91-004 du 11 Février 1991 portant réglementation phytosanitaire en République du Bénin",
+   "source": "https://sgg.gouv.bj/doc/decret-1992-258/download",
+   "text_layer": "publisher-ocr",
+   "articles": 16
+  },
+  {
+   "id": "decrets/1995/1995-47-portant-creation-attributions-organisation-et",
+   "kind": "decret",
+   "number": "1995-47",
+   "date": "1995-02-20",
+   "title": "Décret n° 1995-47 du 20 février 1995 portant création, attributions, organisation, et fonctionnement de l'Agence Béninoise pour l'Environnement",
+   "source": "https://sgg.gouv.bj/doc/decret-1995-47/download",
+   "text_layer": "publisher-ocr",
+   "articles": 12
+  },
+  {
+   "id": "decrets/1996/1996-271-portant-modalites-d-application-de-la-loi-n-93",
+   "kind": "decret",
+   "number": "1996-271",
+   "date": "1996-07-02",
+   "title": "Décret n° 1996-271 du 2 juillet 1996 Portant modalités d'application de la Loi N° 93-009 du 2 Juillet 1993 portant régime des Forêts en République du Bénin",
+   "source": "https://sgg.gouv.bj/doc/decret-1996-271/download",
+   "text_layer": "publisher-ocr",
+   "articles": 66
+  },
+  {
+   "id": "decrets/1996/1996-452-portant-modification-des-statuts-de-i-office",
+   "kind": "decret",
+   "number": "1996-452",
+   "date": "1996-10-17",
+   "title": "Décret n° 1996-452 du 17 octobre 1996 portant modification des statuts de I'Office National d'Appui à la Sécurité Alimentaire (ONASA)",
+   "source": "https://sgg.gouv.bj/doc/decret-1996-452/download",
+   "text_layer": "publisher-ocr",
+   "articles": 3
+  },
+  {
+   "id": "decrets/1996/1996-615-portant-attributions-organisation-et",
+   "kind": "decret",
+   "number": "1996-615",
+   "date": "1996-12-31",
+   "title": "Décret n° 1996-615 du 31 décembre 1996 portant attributions, organisation et fonctionnement du Ministère des Mines, de l'Energie et de l'Hydraulique",
+   "source": "https://sgg.gouv.bj/doc/decret-1996-615/download",
+   "text_layer": "publisher-ocr",
+   "articles": 27
+  },
+  {
+   "id": "decrets/1996/1996-73-portant-creation-attributions-et-fonctionnement",
+   "kind": "decret",
+   "number": "1996-73",
+   "date": "1996-04-02",
+   "title": "Décret n° 1996-73 du 2 avril 1996 portant Création, Attributions et Fonctionnement du Centre National de Gestion des Réserves de Faune (CENAGREF)",
+   "source": "https://sgg.gouv.bj/doc/decret-1996-73/download",
+   "text_layer": "publisher-ocr",
+   "articles": 12
+  },
+  {
+   "id": "decrets/1997/1997-193-portant-creation-composition-et-attributions-du",
+   "kind": "decret",
+   "number": "1997-193",
+   "date": "1997-04-24",
+   "title": "Décret n° 1997-193 du 24 avril 1997 portant création, composition et attributions du Comité National de lutte contre la désertification et de son Secrétariat permanent",
+   "source": "https://faolex.fao.org/docs/pdf/ben11316.pdf",
+   "text_layer": "born-digital",
+   "articles": 13
+  },
+  {
+   "id": "decrets/1997/1997-520-portant-institution-du-systeme-national-de",
+   "kind": "decret",
+   "number": "1997-520",
+   "date": "1997-10-17",
+   "title": "Décret n° 1997-520 du 17 octobre 1997 Portant institution du système national de normalisation et de gestion de la qualité et création du centre béninois de normalisation et de gestion de la qualité",
+   "source": "https://sgg.gouv.bj/doc/decret-1997-520/download",
+   "text_layer": "publisher-ocr",
+   "articles": 16
+  },
+  {
+   "id": "decrets/1997/1997-616-portant-application-de-la-loi-n87-015-du-21",
+   "kind": "decret",
+   "number": "1997-616",
+   "date": "1997-12-18",
+   "title": "Décret n° 1997-616 du 18 décembre 1997 portant application de la Loi n°87-015 du 21 septembre 1987 portant code d’Hygiène Publique",
+   "source": "https://sgg.gouv.bj/doc/decret-1997-616/download",
+   "text_layer": "publisher-ocr",
+   "articles": 22
+  },
+  {
+   "id": "decrets/1997/1997-63-portant-ratification-de-i-accord-sur-le",
+   "kind": "decret",
+   "number": "1997-63",
+   "date": "1997-02-28",
+   "title": "Décret n° 1997-63 du 28 février 1997 portant ratification de I'Accord sur le Développement Durable conclu entre la République du Bénin et le Royaume des Pays-Bas",
+   "source": "https://sgg.gouv.bj/doc/decret-1997-63/download",
+   "text_layer": "publisher-ocr",
+   "articles": 1
+  },
+  {
+   "id": "decrets/1997/1997-643-portant-reglementation-de-la-commercialisation",
+   "kind": "decret",
+   "number": "1997-643",
+   "date": "1997-12-31",
+   "title": "Décret n° 1997-643 du 31 décembre 1997 Portant réglementation de la commercialisation des substituts du lait maternel et des aliments pour nourrissons",
+   "source": "https://sgg.gouv.bj/doc/decret-1997-643/download",
+   "text_layer": "publisher-ocr",
+   "articles": 28
+  },
+  {
+   "id": "decrets/1998/1998-215-portant-assurance-qualite-des-produits-de-la",
+   "kind": "decret",
+   "number": "1998-215",
+   "date": "1998-05-11",
+   "title": "Décret n° 1998-215 du 11 mai 1998 Portant assurance qualité des produits de la pêche en République du Bénin",
+   "source": "https://sgg.gouv.bj/doc/decret-1998-215/download",
+   "text_layer": "publisher-ocr",
+   "articles": 27
+  },
+  {
+   "id": "decrets/1998/1998-487-portant-creation-attributions-et-fonctionnement",
+   "kind": "decret",
+   "number": "1998-487",
+   "date": "1998-10-15",
+   "title": "Décret n° 1998-487 du 15 octobre 1998 portant création, attributions et fonctionnement du Centre national de gestion des réserves de faune (CENAGREF)",
+   "source": "https://faolex.fao.org/docs/pdf/ben16259.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 17
+  },
+  {
+   "id": "decrets/1999/1999-537-portant-transfert-au-secteur-prive-de-la",
+   "kind": "decret",
+   "number": "1999-537",
+   "date": "1999-11-17",
+   "title": "Décret n° 1999-537 du 17 novembre 1999 portant transfert au secteur privé de la responsabilité de l’organisation des consultants pour l’approvisionnement en intrants agricoles",
+   "source": "https://faolex.fao.org/docs/pdf/ben227815.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 6
+  },
+  {
+   "id": "decrets/2000/2000-295-portant-creation-attributions-composition-et",
+   "kind": "decret",
+   "number": "2000-295",
+   "date": "2000-06-23",
+   "title": "Décret n° 2000-295 du 23 juin 2000 Portant création, attributions, composition et fonctionnement de la Commission Nationale pour le Développement et la Lutte contre la Pauvreté",
+   "source": "https://sgg.gouv.bj/doc/decret-2000-295/download",
+   "text_layer": "publisher-ocr",
+   "articles": 11
+  },
+  {
+   "id": "decrets/2000/2001-97-portant-creation-d-un-reseau-de-chambres-d",
+   "kind": "decret",
+   "number": "2001-97",
+   "date": "2000-11-09",
+   "title": "Décret n° 2001-97 du 9 novembre 2000 portant création d'un réseau de Chambres d'agriculture et approbation de ses statuts",
+   "source": "https://faolex.fao.org/docs/pdf/ben80851.pdf",
+   "text_layer": "born-digital",
+   "articles": 70
+  },
+  {
+   "id": "decrets/2001/2001-110-fixant-les-normes-de-qualite-de-l-air-en",
+   "kind": "decret",
+   "number": "2001-110",
+   "date": "2001-04-04",
+   "title": "Décret n° 2001-110 du 4 avril 2001 fixant les normes de qualité de l'air en République de Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben86033.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 34
+  },
+  {
+   "id": "decrets/2001/2001-294-portant-reglementation-du-bruit-en-republique-de",
+   "kind": "decret",
+   "number": "2001-294",
+   "date": "2001-08-08",
+   "title": "Décret n° 2001-294 du 8 août 2001 portant réglementation du bruit en République de Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben86058.pdf",
+   "text_layer": "born-digital",
+   "articles": 14
+  },
+  {
+   "id": "decrets/2001/2001-295-portant-creation-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2001-295",
+   "date": "2001-08-08",
+   "title": "Décret n° 2001-295 du 8 août 2001 portant création, attributions, organisation et fonctionnement des cellules environnementales en République de Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben86059.pdf",
+   "text_layer": "born-digital",
+   "articles": 13
+  },
+  {
+   "id": "decrets/2001/2001-364-portant-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2001-364",
+   "date": "2001-09-18",
+   "title": "Décret n° 2001-364 du 18 septembre 2001 portant attributions, organisation et fonctionnement du Ministère de l'Agriculture, de I'Elevage et de Ia pêche",
+   "source": "https://sgg.gouv.bj/doc/decret-2001-364/download",
+   "text_layer": "publisher-ocr",
+   "articles": 53
+  },
+  {
+   "id": "decrets/2001/2001-409-portant-composition-attributions-et",
+   "kind": "decret",
+   "number": "2001-409",
+   "date": "2001-10-15",
+   "title": "Décret n° 2001-409 du 15 octobre 2001 portant composition, attributions et fonctionnement de la Conférence administrative départementale",
+   "source": "https://sgg.gouv.bj/doc/decret-2001-409/download",
+   "text_layer": "publisher-ocr",
+   "articles": 4
+  },
+  {
+   "id": "decrets/2001/2001-411-portant-composition-attributions-et",
+   "kind": "decret",
+   "number": "2001-411",
+   "date": "2001-12-15",
+   "title": "Décret n° 2001-411 du 15 décembre 2001 Portant composition, attributions et fonctionnement du Conseil Départemental de Concertation et de Coordination et fixant le taux des indemnités de session et des frais de déplacement de ses membres",
+   "source": "https://sgg.gouv.bj/doc/decret-2001-411/download",
+   "text_layer": "publisher-ocr",
+   "articles": 8
+  },
+  {
+   "id": "decrets/2001/2001-509-portant-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2001-509",
+   "date": "2001-11-30",
+   "title": "Décret n° 2001-509 du 30 novembre 2001 Portant attributions, organisation et fonctionnement du Ministère de l'Environnement, de l'Habitat et de l'Urbanisme",
+   "source": "https://sgg.gouv.bj/doc/decret-2001-509/download",
+   "text_layer": "publisher-ocr",
+   "articles": 51
+  },
+  {
+   "id": "decrets/2001/2001-93-fixant-les-conditions-de-l-elaboration-de-l-audit",
+   "kind": "decret",
+   "number": "2001-93",
+   "date": "2001-02-20",
+   "title": "Décret n° 2001-93 du 20 février 2001 fixant les conditions de l'élaboration de l'audit environnemental en République de Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben86032.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 52
+  },
+  {
+   "id": "decrets/2001/2001-94-fixant-les-normes-de-qualite-de-l-eau-potable-en",
+   "kind": "decret",
+   "number": "2001-94",
+   "date": "2001-02-20",
+   "title": "Décret n° 2001-94 du 20 février 2001 fixant les normes de qualité de l'eau potable en République de Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben86060.pdf",
+   "text_layer": "born-digital",
+   "articles": 36
+  },
+  {
+   "id": "decrets/2002/2002-370-portant-creation-attributions-et-fonctionnement",
+   "kind": "decret",
+   "number": "2002-370",
+   "date": "2002-08-22",
+   "title": "Décret n° 2002-370 du 22 août 2002 portant création,attributions, et fonctionnement du Fonds national de lutte contre les épizooties (FNLE)",
+   "source": "https://faolex.fao.org/docs/pdf/ben45268.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 10
+  },
+  {
+   "id": "decrets/2002/2002-376-portant-organisation-et-fonctionnement-de-l",
+   "kind": "decret",
+   "number": "2002-376",
+   "date": "2002-08-22",
+   "title": "Décret n° 2002-376 du 22 août 2002 portant organisation et fonctionnement de l'administration départementale",
+   "source": "https://faolex.fao.org/docs/pdf/ben146271.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 71
+  },
+  {
+   "id": "decrets/2003/2003-114-portant-assurance-qualite-des-produits-de-la",
+   "kind": "decret",
+   "number": "2003-114",
+   "date": "2003-04-09",
+   "title": "Décret n° 2003-114 du 9 avril 2003 portant assurance qualité des produits de la pêche en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben42830.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 28
+  },
+  {
+   "id": "decrets/2003/2003-129-portant-creation-attributions-et-fonctionnement",
+   "kind": "decret",
+   "number": "2003-129",
+   "date": "2003-04-15",
+   "title": "Décret n° 2003-129 du 15 avril 2003 portant création, attributions et fonctionnement du comité national de coordination de la mise en œuvre de la convention de Stockholm sur les polluants organiques persistants (POPS)",
+   "source": "https://faolex.fao.org/docs/pdf/ben146300.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 19
+  },
+  {
+   "id": "decrets/2003/2003-203-portant-creation-de-la-societe-nationale-des-eaux",
+   "kind": "decret",
+   "number": "2003-203",
+   "date": "2003-06-12",
+   "title": "Décret n° 2003-203 du 12 juin 2003 Portant création de la Société Nationale des eaux du Bénin",
+   "source": "https://sgg.gouv.bj/doc/decret-2003-203/download",
+   "text_layer": "publisher-ocr",
+   "articles": 7
+  },
+  {
+   "id": "decrets/2003/2003-204-portant-approbation-de-statuts-de-la-societe",
+   "kind": "decret",
+   "number": "2003-204",
+   "date": "2003-06-12",
+   "title": "Décret n° 2003-204 du 12 juin 2003 portant approbation de statuts de la société nationale des eaux du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben62417.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 2
+  },
+  {
+   "id": "decrets/2003/2003-269-portant-ratification-de-la-convention-de",
+   "kind": "decret",
+   "number": "2003-269",
+   "date": "2003-07-31",
+   "title": "Décret n° 2003-269 du 31 juillet 2003 Portant ratification de la Convention de Rotterdam sur la procédure d'information et de consentement préalable et de connaissance de cause applicable à certains produits chimiques et pesticides dangereux faisant l'objet d'un commerce international, adoptée en septembre 1998",
+   "source": "https://sgg.gouv.bj/doc/decret-2003-269/download",
+   "text_layer": "publisher-ocr",
+   "articles": 1
+  },
+  {
+   "id": "decrets/2003/2003-330-portant-gestion-des-huiles-usagees-en-republique",
+   "kind": "decret",
+   "number": "2003-330",
+   "date": "2003-08-27",
+   "title": "Décret n° 2003-330 du 27 août 2003 portant gestion des huiles usagées en République du Bénin",
+   "source": "https://sgg.gouv.bj/doc/decret-2003-330/download",
+   "text_layer": "publisher-ocr",
+   "articles": 35
+  },
+  {
+   "id": "decrets/2003/2003-332-portant-gestion-des-dechets-solides-en-republique",
+   "kind": "decret",
+   "number": "2003-332",
+   "date": "2003-08-27",
+   "title": "Décret n° 2003-332 du 27 août 2003 portant gestion des déchets solides en République du Bénin",
+   "source": "https://sgg.gouv.bj/doc/decret-2003-332/download",
+   "text_layer": "publisher-ocr",
+   "articles": 56
+  },
+  {
+   "id": "decrets/2003/2003-559-portant-approbation-des-statuts-du-fonds-national",
+   "kind": "decret",
+   "number": "2003-559",
+   "date": "2003-12-24",
+   "title": "Décret n° 2003-559 du 24 décembre 2003 portant approbation des statuts du Fonds National pour I'Environnement",
+   "source": "https://sgg.gouv.bj/doc/decret-2003-559/download",
+   "text_layer": "publisher-ocr",
+   "articles": 2
+  },
+  {
+   "id": "decrets/2004/2004-151-portant-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2004-151",
+   "date": "2004-03-29",
+   "title": "Décret n° 2004-151 du 29 mars 2004 Portant attributions, organisation et fonctionnement du Ministère des Mines, de l'Energie et de l'Hydraulique",
+   "source": "https://sgg.gouv.bj/doc/decret-2004-151/download",
+   "text_layer": "publisher-ocr",
+   "articles": 43
+  },
+  {
+   "id": "decrets/2004/2004-301-portant-approbation-des-statuts-des-centres",
+   "kind": "decret",
+   "number": "2004-301",
+   "date": "2004-05-20",
+   "title": "Décret n° 2004-301 du 20 mai 2004 Portant approbation des Statuts des Centres Régionaux pour la Promotion Agricole (CeRPA)",
+   "source": "https://sgg.gouv.bj/doc/decret-2004-301/download",
+   "text_layer": "publisher-ocr",
+   "articles": 34
+  },
+  {
+   "id": "decrets/2004/2004-517-portant-approbation-des-statuts-du-fonds-national",
+   "kind": "decret",
+   "number": "2004-517",
+   "date": "2004-09-16",
+   "title": "Décret n° 2004-517 du 16 septembre 2004 portant approbation des statuts du fonds national de développement et de promotion touristiques",
+   "source": "https://faolex.fao.org/docs/pdf/ben161286.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 26
+  },
+  {
+   "id": "decrets/2005/2005-41-portant-homologation-de-l-accord-cadre-entre-l",
+   "kind": "decret",
+   "number": "2005-41",
+   "date": "2005-02-02",
+   "title": "Décret n° 2005-41 du 2 février 2005 Portant homologation de l' Accord Cadre entre l'Etat et l' Interprofession de la filière Coton",
+   "source": "https://faolex.fao.org/docs/pdf/ben228051.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 26
+  },
+  {
+   "id": "decrets/2005/2005-466-fixant-les-modalites-de-mise-en-uvre-de-l-audit",
+   "kind": "decret",
+   "number": "2005-466",
+   "date": "2005-07-28",
+   "title": "Décret n° 2005-466 du 28 juillet 2005 fixant les modalités de mise en œuvre de l'audit environnemental en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben146515.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 50
+  },
+  {
+   "id": "decrets/2005/2005-637-portant-reglement-zoosanitaire-des-maladies",
+   "kind": "decret",
+   "number": "2005-637",
+   "date": "2005-10-13",
+   "title": "Décret n° 2005-637 du 13 octobre 2005 portant règlement zoosanitaire des maladies animales à déclaration obligatoire en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben227241.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 89
+  },
+  {
+   "id": "decrets/2006/2006-114-portant-approbation-des-statuts-de-i-office",
+   "kind": "decret",
+   "number": "2006-114",
+   "date": "2006-03-20",
+   "title": "Décret n° 2006-114 du 20 mars 2006 Portant approbation des statuts de I'Office National de Soutien des Revenus Agricoles (ONS)",
+   "source": "https://sgg.gouv.bj/doc/decret-2006-114/download",
+   "text_layer": "publisher-ocr",
+   "articles": 1
+  },
+  {
+   "id": "decrets/2006/2006-233-portant-definition-du-cadre-institutionnel-de",
+   "kind": "decret",
+   "number": "2006-233",
+   "date": "2006-05-18",
+   "title": "Décret n° 2006-233 du 18 mai 2006 portant définition du cadre institutionnel de représentation des sociétés importatrices et distributrices d'intrants coton au sein de l'interprofession de la filière coton",
+   "source": "https://sgg.gouv.bj/doc/decret-2006-233/download",
+   "text_layer": "publisher-ocr",
+   "articles": 8
+  },
+  {
+   "id": "decrets/2006/2006-234-portant-definition-du-cadre-institutionnel-de",
+   "kind": "decret",
+   "number": "2006-234",
+   "date": "2006-05-18",
+   "title": "Décret n° 2006-234 du 18 mai 2006 portant définition du cadre institutionnel de représentation des producteurs de coton au sein de I'interprofession de la filière coton",
+   "source": "https://sgg.gouv.bj/doc/decret-2006-234/download",
+   "text_layer": "publisher-ocr",
+   "articles": 13
+  },
+  {
+   "id": "decrets/2006/2006-290-portant-conditions-d-importation-et-de",
+   "kind": "decret",
+   "number": "2006-290",
+   "date": "2006-06-22",
+   "title": "Décret n° 2006-290 du 22 juin 2006 Portant conditions d'importation et de distribution des intrants coton et conditions de commercialisation du coton-graine au titre de la campagne 2006 -2007",
+   "source": "https://sgg.gouv.bj/doc/decret-2006-290/download",
+   "text_layer": "publisher-ocr",
+   "articles": 8
+  },
+  {
+   "id": "decrets/2006/2006-457-portant-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2006-457",
+   "date": "2006-09-05",
+   "title": "Décret n° 2006-457 du 5 septembre 2006 portant attributions, organisation et fonctionnement du Ministère Délégué, Chargé des Transports, des Travaux Publics et de l'Urbanisme auprès du Président de la République",
+   "source": "https://sgg.gouv.bj/doc/decret-2006-457/download",
+   "text_layer": "publisher-ocr",
+   "articles": 63
+  },
+  {
+   "id": "decrets/2006/2006-582-portant-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2006-582",
+   "date": "2006-11-02",
+   "title": "Décret n° 2006-582 du 2 novembre 2006 Portant attributions, organisation et fonctionnement du Ministère de I'Agriculture, de l'Elevage et de la Pêche",
+   "source": "https://sgg.gouv.bj/doc/decret-2006-582/download",
+   "text_layer": "publisher-ocr",
+   "articles": 52
+  },
+  {
+   "id": "decrets/2007/2007-280-portant-creation-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2007-280",
+   "date": "2007-06-16",
+   "title": "Décret n° 2007-280 du 16 juin 2007 portant création, attributions, organisation et fonctionnement du comité interministériel de supervision de l'exécution du projet de protection de la côte à l'Est de l'Epi de Siafato à Cotonou",
+   "source": "https://faolex.fao.org/docs/pdf/ben80567.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 8
+  },
+  {
+   "id": "decrets/2008/2008-804-portant-reglement-d-application-du-code-minier-et",
+   "kind": "decret",
+   "number": "2008-804",
+   "date": "2008-12-31",
+   "title": "Décret n° 2008-804 du 31 décembre 2008 portant règlement d'application du code minier et fiscalité minière en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben232343.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 64
+  },
+  {
+   "id": "decrets/2009/2009-241-portant-creation-du-comite-charge-de-regler-les",
+   "kind": "decret",
+   "number": "2009-241",
+   "date": "2009-06-09",
+   "title": "Décret n° 2009-241 du 9 juin 2009 Portant création du Comité chargé de régler les problèmes récurrents de transhumance entre les éleveurs peulhs et les agriculteurs sur le territoire national",
+   "source": "https://sgg.gouv.bj/doc/decret-2009-241/download",
+   "text_layer": "publisher-ocr",
+   "articles": 8
+  },
+  {
+   "id": "decrets/2009/2009-245-portant-creation-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2009-245",
+   "date": "2009-06-09",
+   "title": "Décret n° 2009-245 du 9 juin 2009 portant création, attributions, organisation et fonctionnement du Conseil National de l'Alimentation et de la Nutrition",
+   "source": "https://sgg.gouv.bj/doc/decret-2009-245/download",
+   "text_layer": "publisher-ocr",
+   "articles": 13
+  },
+  {
+   "id": "decrets/2009/2009-52-portant-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2009-52",
+   "date": "2009-03-02",
+   "title": "Décret n° 2009-52 du 2 mars 2009 portant attributions, organisation et fonctionnement du Ministère Délégué auprès du Président de la République Chargé de l'Economie Maritime, des Transports Maritimes et Infrastructures Portuaires",
+   "source": "https://faolex.fao.org/docs/pdf/ben133942.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 57
+  },
+  {
+   "id": "decrets/2009/2009-99-modifiant-le-decret-n-2006-234-du-18-mai-2006",
+   "kind": "decret",
+   "number": "2009-99",
+   "date": "2009-04-03",
+   "title": "Décret n° 2009-99 du 3 avril 2009 modifiant le décret n° 2006-234 du 18 mai 2006 portant définition du cadre institutionnel de représentation des producteurs de coton au sein de l’interprofession de la filière coton",
+   "source": "https://faolex.fao.org/docs/pdf/ben146467.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 2
+  },
+  {
+   "id": "decrets/2010/2010-153-portant-creation-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2010-153",
+   "date": "2010-04-28",
+   "title": "Décret n° 2010-153 du 28 avril 2010 portant création, attributions, organisation et fonctionnement du Laboratoire Central de Contrôle de la Sécurité Sanitaire des Aliments",
+   "source": "https://sgg.gouv.bj/doc/decret-2010-153/download",
+   "text_layer": "publisher-ocr",
+   "articles": 44
+  },
+  {
+   "id": "decrets/2010/2010-477-portant-creation-attributions-organisations-et",
+   "kind": "decret",
+   "number": "2010-477",
+   "date": "2010-11-05",
+   "title": "Décret n° 2010-477 du 5 novembre 2010 portant création, attributions, organisations et fonctionnement de I'Agence Béninoise de normalisation et de Gestion de la Qualité (ABENOR)",
+   "source": "https://sgg.gouv.bj/doc/decret-2010-477/download",
+   "text_layer": "publisher-ocr",
+   "articles": 40
+  },
+  {
+   "id": "decrets/2011/2011-394-fixant-les-modalites-de-conservation-de",
+   "kind": "decret",
+   "number": "2011-394",
+   "date": "2011-05-28",
+   "title": "Décret n° 2011-394 du 28 mai 2011 fixant les modalités de conservation, de développement et de gestion durable de la faune et de ses habitats en République du Bénin",
+   "source": "https://sgg.gouv.bj/doc/decret-2011-394/download",
+   "text_layer": "publisher-ocr",
+   "articles": 92
+  },
+  {
+   "id": "decrets/2011/2011-573-portant-instauration-du-schema-directeur-d",
+   "kind": "decret",
+   "number": "2011-573",
+   "date": "2011-08-31",
+   "title": "Décret n° 2011-573 du 31 août 2011 portant instauration du schéma directeur d’aménagement et de gestion des eaux",
+   "source": "https://faolex.fao.org/docs/pdf/ben133981.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 15
+  },
+  {
+   "id": "decrets/2011/2011-574-portant-creation-attributions-composition",
+   "kind": "decret",
+   "number": "2011-574",
+   "date": "2011-08-31",
+   "title": "Décret n° 2011-574 du 31 août 2011 portant création, attributions, composition, organisation et fonctionnement du Conseil National de l'Eau",
+   "source": "https://sgg.gouv.bj/doc/decret-2011-574/download",
+   "text_layer": "publisher-ocr",
+   "articles": 19
+  },
+  {
+   "id": "decrets/2011/2011-621-portant-nomination-a-titre-exceptionnel-civil-et",
+   "kind": "decret",
+   "number": "2011-621",
+   "date": "2011-09-22",
+   "title": "Décret n° 2011-621 du 22 septembre 2011 Portant Nomination à titre Exceptionnel, Civil et Etranger dans l'Ordre National du Bénin de Monsieur Sven Maria Edward HUYSSEN, Représentant Résident de l'Agence Belge de Développement au Bénin",
+   "source": "https://sgg.gouv.bj/doc/decret-2011-621/download",
+   "text_layer": "publisher-ocr",
+   "articles": 2
+  },
+  {
+   "id": "decrets/2011/2011-623-fixant-la-procedure-de-determination-des-limites",
+   "kind": "decret",
+   "number": "2011-623",
+   "date": "2011-09-29",
+   "title": "Décret n° 2011-623 du 29 septembre 2011 fixant la procédure de détermination des limites des dépendances du domaine public de l'eau",
+   "source": "https://sgg.gouv.bj/doc/decret-2011-623/download",
+   "text_layer": "publisher-ocr",
+   "articles": 17
+  },
+  {
+   "id": "decrets/2011/2011-671-fixant-les-procedures-de-delimitation-des",
+   "kind": "decret",
+   "number": "2011-671",
+   "date": "2011-10-05",
+   "title": "Décret n° 2011-671 du 5 octobre 2011 fixant les procédures de délimitation des périmètres de protection",
+   "source": "https://sgg.gouv.bj/doc/decret-2011-671/download",
+   "text_layer": "publisher-ocr",
+   "articles": 20
+  },
+  {
+   "id": "decrets/2011/2011-834-portant-creation-composition-attributions-et",
+   "kind": "decret",
+   "number": "2011-834",
+   "date": "2011-12-30",
+   "title": "Décret n° 2011-834 du 30 décembre 2011 portant création, composition, attributions et fonctionnement de la plate-forme nationale de réduction des risques de catastrophe et d'adaptation au changement climatique en République du Bénin",
+   "source": "https://sgg.gouv.bj/doc/decret-2011-834/download",
+   "text_layer": "publisher-ocr",
+   "articles": 18
+  },
+  {
+   "id": "decrets/2012/2012-541-portant-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2012-541",
+   "date": "2012-12-17",
+   "title": "Décret n° 2012-541 du 17 décembre 2012 portant attributions, organisation et fonctionnement du ministère de l’agriculture, de l’élevage et de la pêche",
+   "source": "https://faolex.fao.org/docs/pdf/ben237565.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 93
+  },
+  {
+   "id": "decrets/2012/2012-544-portant-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2012-544",
+   "date": "2012-12-17",
+   "title": "Décret n° 2012-544 du 17 décembre 2012 portant attributions, organisation et fonctionnement du Ministère du Développement, de l'Analyse Economique et de la Prospective",
+   "source": "https://faolex.fao.org/docs/pdf/ben157152.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 87
+  },
+  {
+   "id": "decrets/2014/2014-100-portant-creation-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2014-100",
+   "date": "2014-01-31",
+   "title": "Décret n° 2014-100 du 31 janvier 2014 portant création, attributions, organisation et fonctionnement du Fonds National de Développement Agricole (FNDA)",
+   "source": "https://sgg.gouv.bj/doc/decret-2014-100/download",
+   "text_layer": "publisher-ocr",
+   "articles": 50
+  },
+  {
+   "id": "decrets/2014/2014-194-portant-modification-du-decret-n2009-542-du-20",
+   "kind": "decret",
+   "number": "2014-194",
+   "date": "2014-03-13",
+   "title": "Décret n° 2014-194 du 13 mars 2014 portant modification du décret n°2009-542 du 20 octobre 2009 portant création, attributions, organisation et Fonctionnement du Guichet Unique de Formalisation des Entreprises (GUFE)",
+   "source": "https://sgg.gouv.bj/doc/decret-2014-194/download",
+   "text_layer": "publisher-ocr",
+   "articles": 48
+  },
+  {
+   "id": "decrets/2014/2014-205-portant-reglementation-de-la-delivrance-du-permis",
+   "kind": "decret",
+   "number": "2014-205",
+   "date": "2014-03-13",
+   "title": "Décret n° 2014-205 du 13 mars 2014 portant réglementation de la délivrance du permis de construire en République du Bénin",
+   "source": "https://sgg.gouv.bj/doc/decret-2014-205/download",
+   "text_layer": "publisher-ocr",
+   "articles": 68
+  },
+  {
+   "id": "decrets/2014/2014-220-portant-modalites-de-creation-des-societes-a",
+   "kind": "decret",
+   "number": "2014-220",
+   "date": "2014-03-26",
+   "title": "Décret n° 2014-220 du 26 mars 2014 portant modalités de création des Sociétés à Responsabilité Limitée (SARL) en République du Bénin",
+   "source": "https://sgg.gouv.bj/doc/decret-2014-220/download",
+   "text_layer": "publisher-ocr",
+   "articles": 14
+  },
+  {
+   "id": "decrets/2014/2014-352-portant-regime-des-medicaments-veterinaires-en",
+   "kind": "decret",
+   "number": "2014-352",
+   "date": "2014-06-02",
+   "title": "Décret n° 2014-352 du 2 juin 2014 portant régime des médicaments vétérinaires en République du Bénin",
+   "source": "https://sgg.gouv.bj/doc/decret-2014-352/download",
+   "text_layer": "publisher-ocr",
+   "articles": 43
+  },
+  {
+   "id": "decrets/2014/2014-547-portant-creation-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2014-547",
+   "date": "2014-09-12",
+   "title": "Décret n° 2014-547 du 12 septembre 2014 portant création, attributions, organisation et fonctionnement de I'Agence de Promotion des lnvestissements et des Exportations du Bénin (APIEX)",
+   "source": "https://sgg.gouv.bj/doc/decret-2014-547/download",
+   "text_layer": "publisher-ocr",
+   "articles": 80
+  },
+  {
+   "id": "decrets/2014/2014-785-portant-creation-organisation-attributions-et",
+   "kind": "decret",
+   "number": "2014-785",
+   "date": "2014-12-31",
+   "title": "Décret n° 2014-785 du 31 décembre 2014 portant création, organisation, attributions et fonctionnement de l'Autorité Nationale Chargée de l'Action de l'Etat en Mer",
+   "source": "https://sgg.gouv.bj/doc/decret-2014-785/download",
+   "text_layer": "publisher-ocr",
+   "articles": 27
+  },
+  {
+   "id": "decrets/2014/2014-796-portant-conditions-de-deroulement-de-la-campagne",
+   "kind": "decret",
+   "number": "2014-796",
+   "date": "2014-12-31",
+   "title": "Décret n° 2014-796 du 31 décembre 2014 portant conditions de déroulement de la campagne de commercialisation 2014-2015 des amandes de karité",
+   "source": "https://sgg.gouv.bj/doc/decret-2014-796/download",
+   "text_layer": "publisher-ocr",
+   "articles": 10
+  },
+  {
+   "id": "decrets/2015/2015-07-portant-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2015-07",
+   "date": "2015-01-29",
+   "title": "Décret n° 2015-07 du 29 janvier 2015 portant attributions, organisation et fonctionnement du Conseil Consultatif Foncier (CCF)",
+   "source": "https://faolex.fao.org/docs/pdf/ben146311.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 17
+  },
+  {
+   "id": "decrets/2015/2015-08-portant-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2015-08",
+   "date": "2015-01-29",
+   "title": "Décret n° 2015-08 du 29 janvier 2015 portant attributions, organisation et fonctionnement du Fonds de dédommagement foncier (FDF)",
+   "source": "https://faolex.fao.org/docs/pdf/ben146314.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 40
+  },
+  {
+   "id": "decrets/2015/2015-09-fixant-les-modalites-d-exercice-du-droit-de",
+   "kind": "decret",
+   "number": "2015-09",
+   "date": "2015-01-29",
+   "title": "Décret n° 2015-09 du 29 janvier 2015 fixant les modalités d'exercice du droit de préemption et de location-vente des immeubles préemptés ou expropriés",
+   "source": "https://faolex.fao.org/docs/pdf/ben146316.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 22
+  },
+  {
+   "id": "decrets/2015/2015-10-portant-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2015-10",
+   "date": "2015-01-29",
+   "title": "Décret n° 2015-10 du 29 janvier 2015 portant attributions, organisation et fonctionnement de l'Agence Nationale du Domaine et du Foncier (ANDF)",
+   "source": "https://faolex.fao.org/docs/pdf/ben146320.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 70
+  },
+  {
+   "id": "decrets/2015/2015-12-fixant-les-modalites-et-les-conditions-d",
+   "kind": "decret",
+   "number": "2015-12",
+   "date": "2015-01-29",
+   "title": "Décret n° 2015-12 du 29 janvier 2015 fixant les modalités et les conditions d'attribution, de mise en valeur et de reprise des concessions domaniales privées en milieu rural en république du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben174781.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 27
+  },
+  {
+   "id": "decrets/2015/2015-13-portant-composition-et-fonctionnement-type-des",
+   "kind": "decret",
+   "number": "2015-13",
+   "date": "2015-01-29",
+   "title": "Décret n° 2015-13 du 29 janvier 2015 portant composition et fonctionnement type des commissions d'enquête de commodo et incommodo et d'indemnisation en matière d'expropriation pour cause d'utilité publique",
+   "source": "https://faolex.fao.org/docs/pdf/ben146321.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 35
+  },
+  {
+   "id": "decrets/2015/2015-14-portant-conditions-et-modalites-de-mise-en-valeur",
+   "kind": "decret",
+   "number": "2015-14",
+   "date": "2015-01-29",
+   "title": "Décret n° 2015-14 du 29 janvier 2015 portant conditions et modalités de mise en valeur des terres rurales",
+   "source": "https://faolex.fao.org/docs/pdf/ben146322.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 21
+  },
+  {
+   "id": "decrets/2015/2015-15-fixant-les-modalites-de-division-et-de-reunion",
+   "kind": "decret",
+   "number": "2015-15",
+   "date": "2015-01-29",
+   "title": "Décret n° 2015-15 du 29 janvier 2015 fixant les modalités de division et de réunion des titres de propriété foncière",
+   "source": "https://faolex.fao.org/docs/pdf/ben146324.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 20
+  },
+  {
+   "id": "decrets/2015/2015-17-portant-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2015-17",
+   "date": "2015-01-29",
+   "title": "Décret n° 2015-17 du 29 janvier 2015 portant attributions, organisation et fonctionnement de la Commission de Gestion Foncière de la Commune et de la Section Villageoise de Gestion Foncière",
+   "source": "https://faolex.fao.org/docs/pdf/ben146325.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 51
+  },
+  {
+   "id": "decrets/2015/2015-176-portant-definition-des-utilisations-domestiques",
+   "kind": "decret",
+   "number": "2015-176",
+   "date": "2015-04-13",
+   "title": "Décret n° 2015-176 du 13 avril 2015 portant définition des utilisations domestiques de l'eau en République du Bénin",
+   "source": "https://sgg.gouv.bj/doc/decret-2015-176/download",
+   "text_layer": "publisher-ocr",
+   "articles": 8
+  },
+  {
+   "id": "decrets/2015/2015-258-portant-amendement-du-decret-n2014-194-du-13-mars",
+   "kind": "decret",
+   "number": "2015-258",
+   "date": "2015-05-15",
+   "title": "Décret n° 2015-258 du 15 mai 2015 portant amendement du décret n°2014-194 du 13 mars 2014 modifiant le décret n°2009-542 du 20 octobre 2009 portant création attributions organisation et fonctionnement du Guichet Unique de Formalisation des Entreprise (GUFE)",
+   "source": "https://sgg.gouv.bj/doc/decret-2015-258/download",
+   "text_layer": "publisher-ocr",
+   "articles": 2
+  },
+  {
+   "id": "decrets/2015/2015-259-portant-fixation-du-cadre-applicable-a-la",
+   "kind": "decret",
+   "number": "2015-259",
+   "date": "2015-05-15",
+   "title": "Décret n° 2015-259 du 15 mai 2015 portant fixation du cadre applicable à la dématérialisation de la liasse documentaire du pré-dédouanement en République du Bénin",
+   "source": "https://sgg.gouv.bj/doc/decret-2015-259/download",
+   "text_layer": "publisher-ocr",
+   "articles": 8
+  },
+  {
+   "id": "decrets/2015/2015-29-fixant-les-modalites-d-acquisition-des-terres",
+   "kind": "decret",
+   "number": "2015-29",
+   "date": "2015-01-29",
+   "title": "Décret n° 2015-29 du 29 janvier 2015 fixant les modalités d'acquisition des terres rurales en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben146329.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 24
+  },
+  {
+   "id": "decrets/2015/2015-292-portant-determination-des-bassins-et-sous-bassins",
+   "kind": "decret",
+   "number": "2015-292",
+   "date": "2015-06-03",
+   "title": "Décret n° 2015-292 du 3 juin 2015 portant détermination des bassins et sous bassins hydrographiques et fixation de leurs limites en République du Bénin",
+   "source": "https://sgg.gouv.bj/doc/decret-2015-292/download",
+   "text_layer": "publisher-ocr",
+   "articles": 4
+  },
+  {
+   "id": "decrets/2015/2015-326-portant-fixation-des-conditions-d-exercice-des",
+   "kind": "decret",
+   "number": "2015-326",
+   "date": "2015-06-03",
+   "title": "Décret n° 2015-326 du 3 juin 2015 portant fixation des conditions d'exercice des activités d'exploitation des ouvrages d'eau potable au Bénin",
+   "source": "https://sgg.gouv.bj/doc/decret-2015-326/download",
+   "text_layer": "publisher-ocr",
+   "articles": 11
+  },
+  {
+   "id": "decrets/2015/2015-549-portant-adoption-de-la-strategie-nationale-de",
+   "kind": "decret",
+   "number": "2015-549",
+   "date": "2015-11-06",
+   "title": "Décret n° 2015-549 du 6 novembre 2015 portant adoption de la stratégie nationale de conservation et de gestion des réserves de faune",
+   "source": "https://sgg.gouv.bj/doc/decret-2015-549/download",
+   "text_layer": "publisher-ocr",
+   "articles": 6
+  },
+  {
+   "id": "decrets/2015/2015-553-portant-adoption-du-schema-directeur-d",
+   "kind": "decret",
+   "number": "2015-553",
+   "date": "2015-11-06",
+   "title": "Décret n° 2015-553 du 6 novembre 2015 portant adoption du Schéma Directeur d'Aménagement et de Gestion des Eaux du bassin de l'Ouémé",
+   "source": "https://sgg.gouv.bj/doc/decret-2015-553/download",
+   "text_layer": "publisher-ocr",
+   "articles": 3
+  },
+  {
+   "id": "decrets/2015/2015-578-portant-procedure-d-autorisation-ou-de",
+   "kind": "decret",
+   "number": "2015-578",
+   "date": "2015-11-18",
+   "title": "Décret n° 2015-578 du 18 novembre 2015 portant procédure d'autorisation ou de déclaration des installations, ouvrages, travaux et activités relatifs à l'eau",
+   "source": "https://sgg.gouv.bj/doc/decret-2015-578/download",
+   "text_layer": "publisher-ocr",
+   "articles": 42
+  },
+  {
+   "id": "decrets/2015/2015-579-portant-modalites-de-repartition-des-amendes",
+   "kind": "decret",
+   "number": "2015-579",
+   "date": "2015-11-18",
+   "title": "Décret n° 2015-579 du 18 novembre 2015 portant modalités de répartition des amendes prévues dans la loi n° 2010-44 du 24 novembre 2010 portant gestion de l'eau en République du Bénin",
+   "source": "https://sgg.gouv.bj/doc/decret-2015-579/download",
+   "text_layer": "publisher-ocr",
+   "articles": 3
+  },
+  {
+   "id": "decrets/2015/2015-580-portant-determination-de-la-nomenclature-des",
+   "kind": "decret",
+   "number": "2015-580",
+   "date": "2015-11-18",
+   "title": "Décret n° 2015-580 du 18 novembre 2015 portant détermination de la nomenclature des installations, ouvrages, travaux et activités soumis à autorisation ou à déclaration",
+   "source": "https://sgg.gouv.bj/doc/decret-2015-580/download",
+   "text_layer": "publisher-ocr",
+   "articles": 1
+  },
+  {
+   "id": "decrets/2015/2015-675-portant-creation-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2015-675",
+   "date": "2015-12-31",
+   "title": "Décret n° 2015-675 du 31 décembre 2015 portant création, attributions, organisation et fonctionnement de l'Agence du Bassin de l'Ouémé (ABO)",
+   "source": "https://sgg.gouv.bj/doc/decret-2015-675/download",
+   "text_layer": "publisher-ocr",
+   "articles": 33
+  },
+  {
+   "id": "decrets/2015/2015-676-portant-creation-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2015-676",
+   "date": "2015-12-31",
+   "title": "Décret n° 2015-676 du 31 décembre 2015 portant création, attributions, organisation et fonctionnement du Fonds National de l'Eau (FNEau)",
+   "source": "https://sgg.gouv.bj/doc/decret-2015-676/download",
+   "text_layer": "publisher-ocr",
+   "articles": 41
+  },
+  {
+   "id": "decrets/2016/2016-167-portant-modification-du-decret-n2014-547-du-12",
+   "kind": "decret",
+   "number": "2016-167",
+   "date": "2016-03-25",
+   "title": "Décret n° 2016-167 du 25 mars 2016 portant modification du décret n°2014-547 du 12 septembre 2014 portant création, attributions, organisation et fonctionnement de I'Agence de Promotion des lnvestissements et des Exportations du Bénin (APIEX)",
+   "source": "https://sgg.gouv.bj/doc/decret-2016-167/download",
+   "text_layer": "publisher-ocr",
+   "articles": 83
+  },
+  {
+   "id": "decrets/2016/2016-272-portant-mise-en-place-de-la-commission-nationale",
+   "kind": "decret",
+   "number": "2016-272",
+   "date": "2016-05-03",
+   "title": "Décret n° 2016-272 du 3 mai 2016 portant mise en place de la commission nationale technique chargée des réformes politiques et institutionnelles",
+   "source": "https://sgg.gouv.bj/doc/decret-2016-272/download",
+   "text_layer": "publisher-ocr",
+   "articles": 7
+  },
+  {
+   "id": "decrets/2016/2016-292-fixant-la-structure-type-des-ministeres",
+   "kind": "decret",
+   "number": "2016-292",
+   "date": "2016-05-17",
+   "title": "Décret n° 2016-292 du 17 mai 2016 Fixant la structure type des ministères",
+   "source": "https://sgg.gouv.bj/doc/decret-2016-292/download",
+   "text_layer": "publisher-ocr",
+   "articles": 60
+  },
+  {
+   "id": "decrets/2016/2016-305-portant-creation-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2016-305",
+   "date": "2016-05-26",
+   "title": "Décret n° 2016-305 du 26 mai 2016 portant création, attributions, organisation et fonctionnement du Comité de pilotage pour la mise en œuvre de la zone franche du savoir et de l'innovation",
+   "source": "https://sgg.gouv.bj/doc/decret-2016-305/download",
+   "text_layer": "publisher-ocr",
+   "articles": 4
+  },
+  {
+   "id": "decrets/2016/2016-351-portant-creation-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2016-351",
+   "date": "2016-06-15",
+   "title": "Décret n° 2016-351 du 15 juin 2016 portant création, attributions, organisation et fonctionnement du Bureau d'Etudes et d'Appui au Secteur Agricole (B2A)",
+   "source": "https://sgg.gouv.bj/doc/decret-2016-351/download",
+   "text_layer": "publisher-ocr",
+   "articles": 12
+  },
+  {
+   "id": "decrets/2016/2016-388-portant-approbation-de-la-creation-de-la",
+   "kind": "decret",
+   "number": "2016-388",
+   "date": "2016-06-30",
+   "title": "Décret n° 2016-388 du 30 juin 2016 portant approbation de la Création de la Communauté des Communes des Lagunes Côtières (CCLC)",
+   "source": "https://sgg.gouv.bj/doc/decret-2016-388/download",
+   "text_layer": "publisher-ocr",
+   "articles": 2
+  },
+  {
+   "id": "decrets/2016/2016-429-portant-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2016-429",
+   "date": "2016-07-20",
+   "title": "Décret n° 2016-429 du 20 juillet 2016 portant attributions, organisation et fonctionnement du Ministère de l'industrie, du Commerce et de l'Artisanat",
+   "source": "https://sgg.gouv.bj/doc/decret-2016-429/download",
+   "text_layer": "publisher-ocr",
+   "articles": 99
+  },
+  {
+   "id": "decrets/2016/2016-499-portant-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2016-499",
+   "date": "2016-08-11",
+   "title": "Décret n° 2016-499 du 11 août 2016 portant attributions, organisation et fonctionnement du Secrétariat Général de la Présidence de la République du Bénin",
+   "source": "https://sgg.gouv.bj/doc/decret-2016-499/download",
+   "text_layer": "publisher-ocr",
+   "articles": 46
+  },
+  {
+   "id": "decrets/2016/2016-501-portant-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2016-501",
+   "date": "2016-08-11",
+   "title": "Décret n° 2016-501 du 11 août 2016 portant attributions, organisation et fonctionnement du Ministère du Cadre de Vie et du Développement Durable",
+   "source": "https://sgg.gouv.bj/doc/decret-2016-501/download",
+   "text_layer": "publisher-ocr",
+   "articles": 87
+  },
+  {
+   "id": "decrets/2016/2016-502-portant-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2016-502",
+   "date": "2016-08-11",
+   "title": "Décret n° 2016-502 du 11 août 2016 portant attributions, organisation et fonctionnement du Ministère du Plan et du Développement",
+   "source": "https://sgg.gouv.bj/doc/decret-2016-502/download",
+   "text_layer": "publisher-ocr",
+   "articles": 89
+  },
+  {
+   "id": "decrets/2016/2016-527-portant-approbation-des-statuts-de-l-agence-des",
+   "kind": "decret",
+   "number": "2016-527",
+   "date": "2016-08-24",
+   "title": "Décret n° 2016-527 du 24 août 2016 Portant approbation des statuts de l'Agence des Grands Pojets Urbains",
+   "source": "https://sgg.gouv.bj/doc/decret-2016-527/download",
+   "text_layer": "publisher-ocr",
+   "articles": 45
+  },
+  {
+   "id": "decrets/2016/2016-591-portant-condition-de-deroulement-de-la-campagne",
+   "kind": "decret",
+   "number": "2016-591",
+   "date": "2016-09-16",
+   "title": "Décret n° 2016-591 du 16 septembre 2016 Portant Condition de déroulement de la Campagne de Commercialisation 2016-2017 des amandes de Karité",
+   "source": "https://sgg.gouv.bj/doc/decret-2016-591/download",
+   "text_layer": "publisher-ocr",
+   "articles": 7
+  },
+  {
+   "id": "decrets/2016/2016-608-portant-approbation-des-statuts-de-l-agence-du",
+   "kind": "decret",
+   "number": "2016-608",
+   "date": "2016-09-28",
+   "title": "Décret n° 2016-608 du 28 septembre 2016 Portant approbation des statuts de l'Agence du Cadre de Vie pour le Développement du Territoire",
+   "source": "https://sgg.gouv.bj/doc/decret-2016-608/download",
+   "text_layer": "publisher-ocr",
+   "articles": 3
+  },
+  {
+   "id": "decrets/2016/2016-681-portant-cadre-institutionnel-du-developpement",
+   "kind": "decret",
+   "number": "2016-681",
+   "date": "2016-11-07",
+   "title": "Décret n° 2016-681 du 7 novembre 2016 portant cadre institutionnel du développement agricole",
+   "source": "https://sgg.gouv.bj/doc/decret-2016-681/download",
+   "text_layer": "publisher-ocr",
+   "articles": 26
+  },
+  {
+   "id": "decrets/2016/2016-690-portant-mise-en-place-du-comite-charge-d",
+   "kind": "decret",
+   "number": "2016-690",
+   "date": "2016-11-04",
+   "title": "Décret n° 2016-690 du 4 novembre 2016 portant mise en place du comité chargé d'élaboration du document du projet d'installation d'un laboratoire de recherche et d'innovation de référence pour les médicaments à base de plantes au Bénin",
+   "source": "https://sgg.gouv.bj/doc/decret-2016-690/download",
+   "text_layer": "publisher-ocr",
+   "articles": 4
+  },
+  {
+   "id": "decrets/2017/2017-101-constatant-approbation-de-la-creation-des-agences",
+   "kind": "decret",
+   "number": "2017-101",
+   "date": "2017-02-27",
+   "title": "Décret n° 2017-101 du 27 février 2017 constatant approbation de la création des Agences Territoriales de Développement Agricole",
+   "source": "https://sgg.gouv.bj/doc/decret-2017-101/download",
+   "text_layer": "publisher-ocr",
+   "articles": 7
+  },
+  {
+   "id": "decrets/2017/2017-106-portant-creation-de-comite-charge-de-mobilisation",
+   "kind": "decret",
+   "number": "2017-106",
+   "date": "2017-02-27",
+   "title": "Décret n° 2017-106 du 27 février 2017 portant création de comité chargé de mobilisation des financements et de coordination des relations avec les différents partenaires techniques et financiers pour la mise en oeuvre du Programme d'Action du Gouvernement",
+   "source": "https://sgg.gouv.bj/doc/decret-2017-106/download",
+   "text_layer": "publisher-ocr",
+   "articles": 4
+  },
+  {
+   "id": "decrets/2017/2017-125-portant-creation-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2017-125",
+   "date": "2017-02-27",
+   "title": "Décret n° 2017-125 du 27 février 2017 portant création, attributions, organisation et fonctionnement de l'Université Nationale d'Agriculture (UNA)",
+   "source": "https://sgg.gouv.bj/doc/decret-2017-125/download",
+   "text_layer": "publisher-ocr",
+   "articles": 33
+  },
+  {
+   "id": "decrets/2017/2017-128-constatant-approbation-de-la-creation-du-fonds",
+   "kind": "decret",
+   "number": "2017-128",
+   "date": "2017-02-27",
+   "title": "Décret n° 2017-128 du 27 février 2017 constatant approbation de la création du Fonds National pour l'Environnement et Ie Climat (FNEC)",
+   "source": "https://sgg.gouv.bj/doc/decret-2017-128/download",
+   "text_layer": "publisher-ocr",
+   "articles": 8
+  },
+  {
+   "id": "decrets/2017/2017-174-portant-retrait-du-decret-n2012-288-du-23-aout",
+   "kind": "decret",
+   "number": "2017-174",
+   "date": "2017-03-21",
+   "title": "Décret n° 2017-174 du 21 mars 2017 portant retrait du décret n°2012-288 du 23 août 2012 abrogeant le décret n°2011 -106 du 22 mars 201 I portant institution d'un Programme de Vérification des Importations (PVl) de Nouvelle Génération en République du Bénin",
+   "source": "https://sgg.gouv.bj/doc/decret-2017-174/download",
+   "text_layer": "publisher-ocr",
+   "articles": 1
+  },
+  {
+   "id": "decrets/2017/2017-176-portant-approbation-de-la-nomenclature-des",
+   "kind": "decret",
+   "number": "2017-176",
+   "date": "2017-03-24",
+   "title": "Décret n° 2017-176 du 24 mars 2017 portant approbation de la nomenclature des métiers de l'artisanat au Bénin",
+   "source": "https://sgg.gouv.bj/doc/decret-2017-176/download",
+   "text_layer": "publisher-ocr",
+   "articles": 3
+  },
+  {
+   "id": "decrets/2017/2017-202-portant-creation-attributions-composition-et",
+   "kind": "decret",
+   "number": "2017-202",
+   "date": "2017-03-29",
+   "title": "Décret n° 2017-202 du 29 mars 2017 portant création, attributions, composition et fonctionnement du Comité de Pilotage de la Construction de l'Institut National de Contrôle de Qualité, de Recherche et d'Innovation pour les médicaments à base de plantes",
+   "source": "https://sgg.gouv.bj/doc/decret-2017-202/download",
+   "text_layer": "publisher-ocr",
+   "articles": 5
+  },
+  {
+   "id": "decrets/2017/2017-203-portant-creation-attributions-composition",
+   "kind": "decret",
+   "number": "2017-203",
+   "date": "2017-03-29",
+   "title": "Décret n° 2017-203 du 29 mars 2017 portant création, attributions, composition, organisation et fonctionnement du cadre institutionnel d'élaboration d'un plan national de développement",
+   "source": "https://sgg.gouv.bj/doc/decret-2017-203/download",
+   "text_layer": "publisher-ocr",
+   "articles": 8
+  },
+  {
+   "id": "decrets/2017/2017-205-portant-creation-et-mise-en-place-de-i-unite",
+   "kind": "decret",
+   "number": "2017-205",
+   "date": "2017-03-29",
+   "title": "Décret n° 2017-205 du 29 mars 2017 portant création et mise en place de I'Unité Présidentielle de Suivi des Projets pour la mise en oeuvre du Programme d'Actions du Gouvernement",
+   "source": "https://sgg.gouv.bj/doc/decret-2017-205/download",
+   "text_layer": "publisher-ocr",
+   "articles": 6
+  },
+  {
+   "id": "decrets/2017/2017-304-portant-creation-attributions-fonctionnement-du",
+   "kind": "decret",
+   "number": "2017-304",
+   "date": "2017-06-21",
+   "title": "Décret n° 2017-304 du 21 juin 2017 portant création, attributions, fonctionnement du Fonds Développement Agricole",
+   "source": "https://faolex.fao.org/docs/pdf/ben182955.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 36
+  },
+  {
+   "id": "decrets/2017/2017-31-portant-creation-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2017-31",
+   "date": "2017-01-23",
+   "title": "Décret n° 2017-31 du 23 janvier 2017 portant création, attributions, organisation et fonctionnement de l'Agence Nationale de Normalisation, de Métrologie et du Contrôle Qualité (ANM)",
+   "source": "https://faolex.fao.org/docs/pdf/ben168829.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 46
+  },
+  {
+   "id": "decrets/2017/2017-331-portant-definition-de-la-categorisation-des-aires",
+   "kind": "decret",
+   "number": "2017-331",
+   "date": "2017-07-06",
+   "title": "Décret n° 2017-331 du 6 juillet 2017 portant définition de la catégorisation des Aires Protégées de la République du Bénin suivant la nomenclature de l'Union Mondiale pour la Conservation de la Nature (UICN)",
+   "source": "https://sgg.gouv.bj/doc/decret-2017-331/download",
+   "text_layer": "publisher-ocr",
+   "articles": 7
+  },
+  {
+   "id": "decrets/2017/2017-332-portant-organisation-des-procedures-de-l",
+   "kind": "decret",
+   "number": "2017-332",
+   "date": "2017-07-06",
+   "title": "Décret n° 2017-332 du 6 juillet 2017 portant organisation des procédures de l'évaluation environnementale en République du Bénin",
+   "source": "https://sgg.gouv.bj/doc/decret-2017-332/download",
+   "text_layer": "publisher-ocr",
+   "articles": 142
+  },
+  {
+   "id": "decrets/2017/2017-343-portant-instauration-d-un-prelevement",
+   "kind": "decret",
+   "number": "2017-343",
+   "date": "2017-07-06",
+   "title": "Décret n° 2017-343 du 6 juillet 2017 portant instauration d'un prélèvement supplémentaire sur les exportations de noix de cajou en République du Bénin",
+   "source": "https://sgg.gouv.bj/doc/decret-2017-343/download",
+   "text_layer": "publisher-ocr",
+   "articles": 4
+  },
+  {
+   "id": "decrets/2017/2017-37-portant-creation-de-comite-technique-charge-de",
+   "kind": "decret",
+   "number": "2017-37",
+   "date": "2017-01-25",
+   "title": "Décret n° 2017-37 du 25 janvier 2017 portant création de comité technique chargé de conduire le processus des réformes du secteur de l’eau",
+   "source": "https://faolex.fao.org/docs/pdf/ben168739.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 6
+  },
+  {
+   "id": "decrets/2017/2017-387-portant-creation-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2017-387",
+   "date": "2017-08-04",
+   "title": "Décret n° 2017-387 du 4 août 2017 portant création, attributions, organisation et fonctionnement du Fonds de Développement de l'Artisanat (FDA)",
+   "source": "https://sgg.gouv.bj/doc/decret-2017-387/download",
+   "text_layer": "publisher-ocr",
+   "articles": 38
+  },
+  {
+   "id": "decrets/2017/2017-39-constatant-approbation-de-la-creation-de-l-agence",
+   "kind": "decret",
+   "number": "2017-39",
+   "date": "2017-01-25",
+   "title": "Décret n° 2017-039 du 25 janvier 2017 constatant approbation de la création de l'Agence Nationale d'Approvisionnement en Eau Potable en Milieu Rural (ANAEPMR)",
+   "source": "https://faolex.fao.org/docs/pdf/ben168874.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 7
+  },
+  {
+   "id": "decrets/2017/2017-440-constatant-approbation-de-la-creation-de-l-agence",
+   "kind": "decret",
+   "number": "2017-440",
+   "date": "2017-08-31",
+   "title": "Décret n° 2017-440 du 31 août 2017 constatant approbation de la création de l'Agence de Développement de Sèmè City (ADSC)",
+   "source": "https://sgg.gouv.bj/doc/decret-2017-440/download",
+   "text_layer": "publisher-ocr",
+   "articles": 29
+  },
+  {
+   "id": "decrets/2017/2017-523-portant-modification-du-decret-n2014-785-du-31",
+   "kind": "decret",
+   "number": "2017-523",
+   "date": "2017-11-15",
+   "title": "Décret n° 2017-523 du 15 novembre 2017 portant modification du décret n°2014-785 du 31 décembre 2014 portant création, organisation, attributions et fonctionnement de l'Autorité nationale chargée de l'Action de l’État en Mer",
+   "source": "https://sgg.gouv.bj/doc/decret-2017-523/download",
+   "text_layer": "publisher-ocr",
+   "articles": 2
+  },
+  {
+   "id": "decrets/2018/2018-105-portant-creation-composition-attributions",
+   "kind": "decret",
+   "number": "2018-105",
+   "date": "2018-03-30",
+   "title": "Décret n° 2018-105 du 30 mars 2018 portant création, composition, attributions, organisation et fonctionnement des organes de pilotage, de suivi et d'exécution du Programme de Renforcement des Structures Centrales de Gouvernance (PRSCG)",
+   "source": "https://sgg.gouv.bj/doc/decret-2018-105/download",
+   "text_layer": "publisher-ocr",
+   "articles": 15
+  },
+  {
+   "id": "decrets/2018/2018-123-portant-approbation-des-statuts-de-l-agence",
+   "kind": "decret",
+   "number": "2018-123",
+   "date": "2018-04-17",
+   "title": "Décret n° 2018-123 du 17 avril 2018 portant approbation des statuts de l'Agence Territoriale de Développement Agricole de l'Alibori Sud - Borgou Nord - 2KP",
+   "source": "https://sgg.gouv.bj/doc/decret-2018-123/download",
+   "text_layer": "publisher-ocr",
+   "articles": 39
+  },
+  {
+   "id": "decrets/2018/2018-124-portant-approbation-des-statuts-de-l-agence",
+   "kind": "decret",
+   "number": "2018-124",
+   "date": "2018-04-17",
+   "title": "Décret n° 2018-124 du 17 avril 2018 portant approbation des statuts de l'Agence Territoriale de Développement Agricole de l'Atacora Ouest",
+   "source": "https://sgg.gouv.bj/doc/decret-2018-124/download",
+   "text_layer": "publisher-ocr",
+   "articles": 37
+  },
+  {
+   "id": "decrets/2018/2018-125-portant-approbation-des-statuts-de-l-agence",
+   "kind": "decret",
+   "number": "2018-125",
+   "date": "2018-04-17",
+   "title": "Décret n° 2018-125 du 17 avril 2018 portant approbation des statuts de l'Agence Territoriale de Développement Agricole du Borgou Sud - Donga - Collines",
+   "source": "https://sgg.gouv.bj/doc/decret-2018-125/download",
+   "text_layer": "publisher-ocr",
+   "articles": 40
+  },
+  {
+   "id": "decrets/2018/2018-126-portant-approbation-des-statuts-de-l-agence",
+   "kind": "decret",
+   "number": "2018-126",
+   "date": "2018-04-17",
+   "title": "Décret n° 2018-126 du 17 avril 2018 portant approbation des statuts de l'Agence Territoriale de Développement Agricole d u Zou-Couffo",
+   "source": "https://sgg.gouv.bj/doc/decret-2018-126/download",
+   "text_layer": "publisher-ocr",
+   "articles": 39
+  },
+  {
+   "id": "decrets/2018/2018-127-portant-approbation-des-statuts-de-l-agence",
+   "kind": "decret",
+   "number": "2018-127",
+   "date": "2018-04-17",
+   "title": "Décret n° 2018-127 du 17 avril 2018 portant approbation des statuts de l'Agence Territoriale de Développement Agricole du Plateau",
+   "source": "https://sgg.gouv.bj/doc/decret-2018-127/download",
+   "text_layer": "publisher-ocr",
+   "articles": 36
+  },
+  {
+   "id": "decrets/2018/2018-128-portant-approbation-des-statuts-de-l-agence",
+   "kind": "decret",
+   "number": "2018-128",
+   "date": "2018-04-17",
+   "title": "Décret n° 2018-128 du 17 avril 2018 portant approbation des statuts de l'Agence Territoriale de Développement Agricole de l'Ouémé - Atlantique - Littoral - Mono",
+   "source": "https://sgg.gouv.bj/doc/decret-2018-128/download",
+   "text_layer": "publisher-ocr",
+   "articles": 38
+  },
+  {
+   "id": "decrets/2018/2018-129-portant-approbation-des-statuts-de-l-agence",
+   "kind": "decret",
+   "number": "2018-129",
+   "date": "2018-04-17",
+   "title": "Décret n° 2018-129 du 17 avril 2018 portant approbation des statuts de l'Agence Territoriale de Développement Agricole de la Vallée du Niger",
+   "source": "https://sgg.gouv.bj/doc/decret-2018-129/download",
+   "text_layer": "publisher-ocr",
+   "articles": 40
+  },
+  {
+   "id": "decrets/2018/2018-130-portant-attributions-composition-organisation-et",
+   "kind": "decret",
+   "number": "2018-130",
+   "date": "2018-04-18",
+   "title": "Décret n° 2018-130 du 18 avril 2018 portant attributions, composition, organisation et fonctionnement des comités de bassin hydrographique",
+   "source": "https://sgg.gouv.bj/doc/decret-2018-130/download",
+   "text_layer": "publisher-ocr",
+   "articles": 7
+  },
+  {
+   "id": "decrets/2018/2018-138-modifiant-le-decret-n-2012-133-du-07-juin-2012",
+   "kind": "decret",
+   "number": "2018-138",
+   "date": "2018-04-25",
+   "title": "Décret n° 2018-138 du 25 avril 2018 modifiant le décret n° 2012-133 du 07 juin 2012, portant création, attributions, organisation et fonctionnement du Comité Interministériel de Pilotage de la Politique Nationale de Décentralisation et de Déconcentration (PONADEC)",
+   "source": "https://sgg.gouv.bj/doc/decret-2018-138/download",
+   "text_layer": "publisher-ocr",
+   "articles": 4
+  },
+  {
+   "id": "decrets/2018/2018-15-portant-dissolution-de-l-agence-nationale-pour-le",
+   "kind": "decret",
+   "number": "2018-15",
+   "date": "2018-01-17",
+   "title": "Décret n° 2018-15 du 17 janvier 2018 portant dissolution de l’Agence nationale pour le développement des Energies renouvelables (ANADER)",
+   "source": "https://faolex.fao.org/docs/pdf/ben182963.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 2
+  },
+  {
+   "id": "decrets/2018/2018-172-fixant-les-modalites-d-application-des-reglements",
+   "kind": "decret",
+   "number": "2018-172",
+   "date": "2018-05-16",
+   "title": "Décret n° 2018-172 du 16 mai 2018 fixant les modalités d'application des règlements communautaires sur l'homologation des pesticides en République du Bénin",
+   "source": "https://sgg.gouv.bj/doc/decret-2018-172/download",
+   "text_layer": "publisher-ocr",
+   "articles": 30
+  },
+  {
+   "id": "decrets/2018/2018-176-fixant-les-modalites-de-gestion-et-de-controle-de",
+   "kind": "decret",
+   "number": "2018-176",
+   "date": "2018-05-16",
+   "title": "Décret n° 2018-176 du 16 mai 2018 fixant les modalités de gestion et de contrôle de qualité des engrais en République du Bénin",
+   "source": "https://sgg.gouv.bj/doc/decret-2018-176/download",
+   "text_layer": "publisher-ocr",
+   "articles": 23
+  },
+  {
+   "id": "decrets/2018/2018-22-portant-ratification-de-l-amendement-de-kigali-au",
+   "kind": "decret",
+   "number": "2018-22",
+   "date": "2018-01-26",
+   "title": "Décret n° 2018-22 du 26 janvier 2018 portant ratification de l’Amendement de Kigali au protocole de Montréal relatif aux substances appauvrissant la couche d'ozone, signe à Kigali au Rwanda, le 15 octobre 2016",
+   "source": "https://faolex.fao.org/docs/pdf/ben182964.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 8
+  },
+  {
+   "id": "decrets/2018/2018-28-fixant-les-modalites-de-fonctionnement-des",
+   "kind": "decret",
+   "number": "2018-28",
+   "date": "2018-01-31",
+   "title": "Décret n° 2018-28 du 31 janvier 2018 fixant les modalités de fonctionnement des commissions ad hoc d'appel d'offres chargées des procédures de passation des contrats de partenariat public-privé en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben182965.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 22
+  },
+  {
+   "id": "decrets/2018/2018-334-fixant-les-conditions-et-modalites-d-exercice-de",
+   "kind": "decret",
+   "number": "2018-334",
+   "date": "2018-07-25",
+   "title": "Décret n° 2018-334 du 25 juillet 2018 fixant les conditions et modalités d'exercice de l'aquaculture en République du Bénin",
+   "source": "https://sgg.gouv.bj/doc/decret-2018-334/download",
+   "text_layer": "publisher-ocr",
+   "articles": 35
+  },
+  {
+   "id": "decrets/2018/2018-335-fixant-les-conditions-et-modalites-d-exercice-de",
+   "kind": "decret",
+   "number": "2018-335",
+   "date": "2018-07-25",
+   "title": "Décret n° 2018-335 du 25 juillet 2018 fixant les conditions et modalités d'exercice de la pêche en République du Bénin",
+   "source": "https://sgg.gouv.bj/doc/decret-2018-335/download",
+   "text_layer": "publisher-ocr",
+   "articles": 37
+  },
+  {
+   "id": "decrets/2018/2018-35-portant-modification-du-decret-n-2017-440-du-31",
+   "kind": "decret",
+   "number": "2018-35",
+   "date": "2018-01-31",
+   "title": "Décret n° 2018-35 du 31 janvier 2018 portant modification du décret n° 2017-440 du 31 août 2017 constatant approbation de la création de l'Agence de développement de Sèmè City",
+   "source": "https://faolex.fao.org/docs/pdf/ben182961.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 2
+  },
+  {
+   "id": "decrets/2018/2018-36-portant-modification-des-statuts-de-l-agence-de",
+   "kind": "decret",
+   "number": "2018-36",
+   "date": "2018-01-31",
+   "title": "Décret n° 2018-36 du 31 janvier 2018 portant modification des statuts de l'Agence de Promotion des Investissements et des Exportations (APIEx)",
+   "source": "https://faolex.fao.org/docs/pdf/ben182966.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 38
+  },
+  {
+   "id": "decrets/2018/2018-39-fixant-conditions-specifiques-du-controle-et-de",
+   "kind": "decret",
+   "number": "2018-39",
+   "date": "2018-01-31",
+   "title": "Décret n° 2018-39 du 31 janvier 2018 fixant conditions spécifiques du contrôle et de la régulation des procédures de passation et gestion des contrats du partenariat public-privé en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben182969.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 20
+  },
+  {
+   "id": "decrets/2018/2018-50-portant-creation-et-mise-en-place-de-l-unite",
+   "kind": "decret",
+   "number": "2018-50",
+   "date": "2018-02-15",
+   "title": "Décret n° 2018-50 du 15 février 2018 portant création et mise en place de l’Unité Chargée de la Politique de développement des Energies Renouvelables (UC/PDER)",
+   "source": "https://faolex.fao.org/docs/pdf/ben182970.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 6
+  },
+  {
+   "id": "decrets/2018/2018-542-portant-approbation-des-statuts-de-la-societe-de",
+   "kind": "decret",
+   "number": "2018-542",
+   "date": "2018-11-28",
+   "title": "Décret n° 2018-542 du 28 novembre 2018 portant approbation des statuts de la Société de Gestion des Déchets et de la Salubrité Urbaine dans le Grand Nokoué",
+   "source": "https://sgg.gouv.bj/doc/decret-2018-542/download",
+   "text_layer": "publisher-ocr",
+   "articles": 42
+  },
+  {
+   "id": "decrets/2018/2018-548-portant-approbation-des-statuts-du-centre",
+   "kind": "decret",
+   "number": "2018-548",
+   "date": "2018-12-12",
+   "title": "Décret n° 2018-548 du 12 décembre 2018 portant approbation des statuts du Centre National de Gestion des Réserves de Faune",
+   "source": "https://sgg.gouv.bj/doc/decret-2018-548/download",
+   "text_layer": "publisher-ocr",
+   "articles": 39
+  },
+  {
+   "id": "decrets/2018/2018-549-fixant-les-criteres-d-agrement-des-laboratoires",
+   "kind": "decret",
+   "number": "2018-549",
+   "date": "2018-12-12",
+   "title": "Décret n° 2018-549 du 12 décembre 2018 fixant les critères d'agrément des laboratoires pour le contrôle de la qualité des sachets en plastique biodégradables",
+   "source": "https://sgg.gouv.bj/doc/decret-2018-549/download",
+   "text_layer": "publisher-ocr",
+   "articles": 18
+  },
+  {
+   "id": "decrets/2018/2018-553-portant-creation-organisation-et-attributions-du",
+   "kind": "decret",
+   "number": "2018-553",
+   "date": "2018-12-12",
+   "title": "Décret n° 2018-553 du 12 décembre 2018 portant création, organisation et attributions du Comité interministériel pour l'Accompagnement et le Financement de l'Entrepreneuriat de Croissance au Bénin",
+   "source": "https://sgg.gouv.bj/doc/decret-2018-553/download",
+   "text_layer": "publisher-ocr",
+   "articles": 8
+  },
+  {
+   "id": "decrets/2018/2018-72-portant-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2018-72",
+   "date": "2018-03-12",
+   "title": "Décret n° 2018-72 du 12 mars 2018 portant attributions, organisation et fonctionnement du Ministère de l'Energie",
+   "source": "https://faolex.fao.org/docs/pdf/ben179143.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 88
+  },
+  {
+   "id": "decrets/2019/2019-08-portant-approbation-des-statuts-de-l-agence",
+   "kind": "decret",
+   "number": "2019-08",
+   "date": "2019-01-09",
+   "title": "Décret n° 2019-08 du 9 janvier 2019 portant approbation des statuts de l’Agence Nationale de Protection Sociale",
+   "source": "https://faolex.fao.org/docs/pdf/ben190582.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 37
+  },
+  {
+   "id": "decrets/2019/2019-123-portant-approbation-des-statuts-de-l-agence",
+   "kind": "decret",
+   "number": "2019-123",
+   "date": "2019-04-10",
+   "title": "Décret n° 2019-123 du 10 avril 2019 portant approbation des statuts de l'Agence Nationale de Mécanisation Agricole",
+   "source": "https://sgg.gouv.bj/doc/decret-2019-123/download",
+   "text_layer": "publisher-ocr",
+   "articles": 35
+  },
+  {
+   "id": "decrets/2019/2019-134-portant-creation-et-modalites-de-fonctionnement",
+   "kind": "decret",
+   "number": "2019-134",
+   "date": "2019-05-08",
+   "title": "Décret n° 2019-134 du 8 mai 2019 portant création et modalités de fonctionnement de la commission ad hoc d'appel d'offres chargée de la sélection des opérateurs régionaux pour la gestion par affermage du service public de production, de transport et de distribution d'eau potable en milieu rural",
+   "source": "https://sgg.gouv.bj/doc/decret-2019-134/download",
+   "text_layer": "publisher-ocr",
+   "articles": 7
+  },
+  {
+   "id": "decrets/2019/2019-156-portant-nouvelles-mesures-d-attribution-des-bois",
+   "kind": "decret",
+   "number": "2019-156",
+   "date": "2019-06-05",
+   "title": "Décret n° 2019-156 du 5 juin 2019 portant nouvelles mesures d'attribution des bois de l'Office National du Bois aux industriels, artisans locaux et exportateurs de bois en République du Bénin",
+   "source": "https://sgg.gouv.bj/doc/decret-2019-156/download",
+   "text_layer": "publisher-ocr",
+   "articles": 7
+  },
+  {
+   "id": "decrets/2019/2019-201-portant-fixation-de-la-redevance-de-reboisement",
+   "kind": "decret",
+   "number": "2019-201",
+   "date": "2019-07-22",
+   "title": "Décret n° 2019-201 du 22 juillet 2019 portant fixation de la redevance de reboisement instaurée à l'exportation de tout bois",
+   "source": "https://sgg.gouv.bj/doc/decret-2019-201/download",
+   "text_layer": "publisher-ocr",
+   "articles": 4
+  },
+  {
+   "id": "decrets/2019/2019-202-portant-approbation-des-statuts-de-l-institut",
+   "kind": "decret",
+   "number": "2019-202",
+   "date": "2019-07-24",
+   "title": "Décret n° 2019-202 du 24 juillet 2019 portant approbation des statuts de l'Institut National des Recherches Agricoles du Bénin",
+   "source": "https://sgg.gouv.bj/doc/decret-2019-202/download",
+   "text_layer": "publisher-ocr",
+   "articles": 47
+  },
+  {
+   "id": "decrets/2019/2019-27-fixant-les-conditions-d-octroi-de-l-autorisation",
+   "kind": "decret",
+   "number": "2019-27",
+   "date": "2019-01-21",
+   "title": "Décret n° 2019-27 du 21 janvier 2019 fixant les conditions d'octroi de l’autorisation spéciale relative aux sachets en plastique non biodégradables en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben184785.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 12
+  },
+  {
+   "id": "decrets/2019/2019-41-portant-approbation-des-statuts-de-l-institut",
+   "kind": "decret",
+   "number": "2019-41",
+   "date": "2019-01-30",
+   "title": "Décret n° 2019-41 du 30 janvier 2019 portant approbation des statuts de l'Institut Géographique National",
+   "source": "https://faolex.fao.org/docs/pdf/ben184786.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 42
+  },
+  {
+   "id": "decrets/2019/2019-430-fixant-la-structure-type-des-ministeres",
+   "kind": "decret",
+   "number": "2019-430",
+   "date": "2019-10-02",
+   "title": "Décret n° 2019-430 du 2 octobre 2019 fixant la structure-type des ministères",
+   "source": "https://sgg.gouv.bj/doc/decret-2019-430/download",
+   "text_layer": "publisher-ocr",
+   "articles": 79
+  },
+  {
+   "id": "decrets/2019/2019-49-portant-creation-attributions-et-composition-du",
+   "kind": "decret",
+   "number": "2019-49",
+   "date": "2019-02-07",
+   "title": "Décret n° 2019-49 du 7 février 2019 portant création, attributions et composition du Comité de relecture des textes législatifs et réglementaires relatifs à l'exercice des activités de pêche maritime et continentale",
+   "source": "https://faolex.fao.org/docs/pdf/ben184787.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 5
+  },
+  {
+   "id": "decrets/2019/2019-547-portant-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2019-547",
+   "date": "2019-12-11",
+   "title": "Décret n° 2019-547 du 11 décembre 2019 portant attributions, organisation et fonctionnement du Ministère du Cadre de Vie et du Développement Durable",
+   "source": "https://sgg.gouv.bj/doc/decret-2019-547/download",
+   "text_layer": "publisher-ocr",
+   "articles": 9
+  },
+  {
+   "id": "decrets/2019/2019-570-portant-conditions-de-deroulement-de-la-campagne",
+   "kind": "decret",
+   "number": "2019-570",
+   "date": "2019-12-24",
+   "title": "Décret n° 2019-570 du 24 décembre 2019 portant conditions de déroulement de la campagne de commercialisation 2019-2020 du soja",
+   "source": "https://sgg.gouv.bj/doc/decret-2019-570/download",
+   "text_layer": "publisher-ocr",
+   "articles": 9
+  },
+  {
+   "id": "decrets/2019/2019-97-portant-approbation-des-statuts-du-fonds-national",
+   "kind": "decret",
+   "number": "2019-97",
+   "date": "2019-03-27",
+   "title": "Décret n° 2019-97 du 27 mars 2019 portant approbation des statuts du Fonds National de la Microfinance",
+   "source": "https://faolex.fao.org/docs/pdf/ben191856.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 40
+  },
+  {
+   "id": "decrets/2020/2020-27-portant-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2020-27",
+   "date": "2020-01-15",
+   "title": "Décret n° 2020-27 du 15 janvier 2020 portant attributions, organisation et fonctionnement du Ministère de l’Agriculture, de l’Elevage et de la Pêche",
+   "source": "https://faolex.fao.org/docs/pdf/ben193858.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 17
+  },
+  {
+   "id": "decrets/2020/2020-428-portant-organisation-et-fonctionnement-du",
+   "kind": "decret",
+   "number": "2020-428",
+   "date": "2020-09-09",
+   "title": "Décret n° 2020-428 du 9 septembre 2020 portant organisation et fonctionnement du Ministère de l’Eau et des Mines",
+   "source": "https://sgg.gouv.bj/doc/decret-2020-428/download",
+   "text_layer": "publisher-ocr",
+   "articles": 13
+  },
+  {
+   "id": "decrets/2020/2020-475-portant-modification-de-l-article-13-du-decret",
+   "kind": "decret",
+   "number": "2020-475",
+   "date": "2020-09-30",
+   "title": "Décret n° 2020-475 du 30 septembre 2020 portant modification de l’article 13 du décret n°2010-478 du 05 novembre 2010 portant création, attributions, organisation et fonctionnement de l’Agence béninoise pour l’Environnement",
+   "source": "https://sgg.gouv.bj/doc/decret-2020-475/download",
+   "text_layer": "publisher-ocr",
+   "articles": 3
+  },
+  {
+   "id": "decrets/2020/2020-574-modifiant-les-articles-5-6-et-7-du-decret-n-2020",
+   "kind": "decret",
+   "number": "2020-574",
+   "date": "2020-12-02",
+   "title": "Décret n° 2020-574 du 2 décembre 2020 modifiant les articles 5, 6, et 7 du décret n° 2020-500 du 14 Octobre 2020 portant création, attributions, organisation et fonctionnement des comités de gestion et de sécurisation du pâturage en République du Bénin",
+   "source": "https://sgg.gouv.bj/doc/decret-2020-574/download",
+   "text_layer": "publisher-ocr",
+   "articles": 2
+  },
+  {
+   "id": "decrets/2021/2021-191-portant-creation-du-fonds-national-pour-l",
+   "kind": "decret",
+   "number": "2021-191",
+   "date": "2021-05-05",
+   "title": "Décret n° 2021-191 du 5 mai 2021 portant création du Fonds national pour l'Environnement et le Climat et approbation de ses statuts",
+   "source": "https://sgg.gouv.bj/doc/decret-2021-191/download",
+   "text_layer": "publisher-ocr",
+   "articles": 46
+  },
+  {
+   "id": "decrets/2021/2021-376-portant-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2021-376",
+   "date": "2021-07-14",
+   "title": "Décret n° 2021-376 du 14 juillet 2021 portant attributions, organisation et fonctionnement du conseil national d'orientation et de suivi du secteur agricole",
+   "source": "https://faolex.fao.org/docs/pdf/ben217412.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 20
+  },
+  {
+   "id": "decrets/2021/2021-401-fixant-la-structure-type-des-ministeres",
+   "kind": "decret",
+   "number": "2021-401",
+   "date": "2021-07-28",
+   "title": "Décret n° 2021-401 du 28 juillet 2021 fixant la structure-type des ministères",
+   "source": "https://sgg.gouv.bj/doc/decret-2021-401/download",
+   "text_layer": "publisher-ocr",
+   "articles": 79
+  },
+  {
+   "id": "decrets/2021/2021-438-portant-creation-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2021-438",
+   "date": "2021-09-01",
+   "title": "Décret n° 2021-438 du 1er septembre 2021 portant création, attributions, organisation et fonctionnement de la Brigade de surveillance et de contrôle des plans et cours d'eau en République du Bénin",
+   "source": "https://sgg.gouv.bj/doc/decret-2021-438/download",
+   "text_layer": "publisher-ocr",
+   "articles": 14
+  },
+  {
+   "id": "decrets/2021/2021-457-portant-attribution-organisation-et",
+   "kind": "decret",
+   "number": "2021-457",
+   "date": "2021-09-15",
+   "title": "Décret n° 2021-457 du 15 septembre 2021 portant attribution, organisation et fonctionnement de la Direction générale des Eaux Forêts et Chasse",
+   "source": "https://sgg.gouv.bj/doc/decret-2021-457/download",
+   "text_layer": "publisher-ocr",
+   "articles": 56
+  },
+  {
+   "id": "decrets/2021/2021-54-portant-creation-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2021-54",
+   "date": "2021-02-10",
+   "title": "Décret n° 2021-54 du 10 février 2021 portant création, attributions, organisation et fonctionnement du cadre de mise en œuvre de la Politique holistique de Protection sociale en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben203541.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 19
+  },
+  {
+   "id": "decrets/2021/2021-543-portant-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2021-543",
+   "date": "2021-10-27",
+   "title": "Décret n° 2021-543 du 27 octobre 2021 portant attributions, organisation et fonctionnement du Ministère de l'Eau et des Mines",
+   "source": "https://sgg.gouv.bj/doc/decret-2021-543/download",
+   "text_layer": "publisher-ocr",
+   "articles": 11
+  },
+  {
+   "id": "decrets/2021/2021-55-portant-approbation-des-statuts-de-l-agence",
+   "kind": "decret",
+   "number": "2021-55",
+   "date": "2021-02-10",
+   "title": "Décret n° 2021-55 du 10 février 2021 portant approbation des statuts de l'Agence béninoise de Gestion intégrée des Espaces frontaliers",
+   "source": "https://faolex.fao.org/docs/pdf/ben203542.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 49
+  },
+  {
+   "id": "decrets/2021/2021-563-portant-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2021-563",
+   "date": "2021-11-03",
+   "title": "Décret n° 2021-563 du 3 novembre 2021 portant attributions, organisation et fonctionnement du Ministère de I'Agriculture, de l'Elevage et de la Pêche",
+   "source": "https://sgg.gouv.bj/doc/decret-2021-563/download",
+   "text_layer": "publisher-ocr",
+   "articles": 16
+  },
+  {
+   "id": "decrets/2021/2021-565-portant-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2021-565",
+   "date": "2021-11-03",
+   "title": "Décret n° 2021-565 du 3 novembre 2021 portant attributions, organisation et fonctionnement du Ministère des Affaires Étrangères et de la Coopération",
+   "source": "https://sgg.gouv.bj/doc/decret-2021-565/download",
+   "text_layer": "publisher-ocr",
+   "articles": 13
+  },
+  {
+   "id": "decrets/2021/2021-666-portant-approbation-des-statuts-de-l-agence",
+   "kind": "decret",
+   "number": "2021-666",
+   "date": "2021-12-15",
+   "title": "Décret n° 2021-666 du 15 décembre 2021 portant approbation des statuts de l'Agence béninoise de Sécurité sanitaire des Aliments",
+   "source": "https://sgg.gouv.bj/doc/decret-2021-666/download",
+   "text_layer": "publisher-ocr",
+   "articles": 50
+  },
+  {
+   "id": "decrets/2021/2021-68-portant-attributions-composition-organisation-et",
+   "kind": "decret",
+   "number": "2021-68",
+   "date": "2021-02-17",
+   "title": "Décret n° 2021-68 du 17 février 2021 portant attributions, composition, organisation et fonctionnement du Comité Interministériel de Promotion des investissements",
+   "source": "https://faolex.fao.org/docs/pdf/ben203543.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 10
+  },
+  {
+   "id": "decrets/2021/2021-90-portant-creation-d-un-fonds-de-developpement",
+   "kind": "decret",
+   "number": "2021-90",
+   "date": "2021-03-10",
+   "title": "Décret n° 2021-90 du 10 mars 2021 portant création d'un Fonds de développement pétrolier",
+   "source": "https://faolex.fao.org/docs/pdf/ben203544.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 7
+  },
+  {
+   "id": "decrets/2022/2022-170-portant-approbation-des-statuts-de-l-agence",
+   "kind": "decret",
+   "number": "2022-170",
+   "date": "2022-03-09",
+   "title": "Décret n° 2022-170 du 9 mars 2022 portant approbation des statuts de l'Agence territoriale de Développement agricole de la Vallée du Niger",
+   "source": "https://sgg.gouv.bj/doc/decret-2022-170/download",
+   "text_layer": "publisher-ocr",
+   "articles": 48
+  },
+  {
+   "id": "decrets/2022/2022-171-portant-approbation-des-statuts-de-l-agence",
+   "kind": "decret",
+   "number": "2022-171",
+   "date": "2022-03-09",
+   "title": "Décret n° 2022-171 du 9 mars 2022 portant approbation des statuts de l'Agence territoriale de Développement agricole de l'Alibori Sud - Nord - 2KP",
+   "source": "https://sgg.gouv.bj/doc/decret-2022-171/download",
+   "text_layer": "publisher-ocr",
+   "articles": 49
+  },
+  {
+   "id": "decrets/2022/2022-176-portant-approbation-des-statuts-de-l-agence",
+   "kind": "decret",
+   "number": "2022-176",
+   "date": "2022-03-09",
+   "title": "Décret n° 2022-176 du 9 mars 2022 portant approbation des statuts de l'Agence territoriale de Développement agricole de l'Ouémé - Atlantique - Littoral - Mono",
+   "source": "https://sgg.gouv.bj/doc/decret-2022-176/download",
+   "text_layer": "publisher-ocr",
+   "articles": 45
+  },
+  {
+   "id": "decrets/2022/2022-177-portant-approbation-des-statuts-du-fonds-national",
+   "kind": "decret",
+   "number": "2022-177",
+   "date": "2022-03-09",
+   "title": "Décret n° 2022-177 du 9 mars 2022 portant approbation des statuts du Fonds national de Développement agricole",
+   "source": "https://sgg.gouv.bj/doc/decret-2022-177/download",
+   "text_layer": "publisher-ocr",
+   "articles": 45
+  },
+  {
+   "id": "decrets/2022/2022-178-portant-approbation-des-statuts-de-l-agence-pour",
+   "kind": "decret",
+   "number": "2022-178",
+   "date": "2022-03-09",
+   "title": "Décret n° 2022-178 du 9 mars 2022 portant approbation des statuts de l'Agence pour le Développement intégré de la zone économique du lac Ahémé et ses chenaux",
+   "source": "https://sgg.gouv.bj/doc/decret-2022-178/download",
+   "text_layer": "publisher-ocr",
+   "articles": 48
+  },
+  {
+   "id": "decrets/2022/2022-184-portant-composition-attributions-organisations",
+   "kind": "decret",
+   "number": "2022-184",
+   "date": "2022-03-16",
+   "title": "Décret n° 2022-184 du 16 mars 2022 portant composition, attributions, organisations, organisation et fonctionnement du Conseil national de Lutte contre le VIH/SIDA, la Tuberculose, le Paludisme, les Hépatites, les Infections sexuellement transmissibles et les Épidémies",
+   "source": "https://sgg.gouv.bj/doc/decret-2022-184/download",
+   "text_layer": "publisher-ocr",
+   "articles": 57
+  },
+  {
+   "id": "decrets/2022/2022-218-portant-creation-attributions-et-composition-du",
+   "kind": "decret",
+   "number": "2022-218",
+   "date": "2022-04-06",
+   "title": "Décret n° 2022-218 du 6 avril 2022 portant création, attributions et composition du Comité d'orientation pour le développement de l'élevage",
+   "source": "https://sgg.gouv.bj/doc/decret-2022-218/download",
+   "text_layer": "publisher-ocr",
+   "articles": 6
+  },
+  {
+   "id": "decrets/2022/2022-273-portant-conditions-d-acces-aux-formations-et",
+   "kind": "decret",
+   "number": "2022-273",
+   "date": "2022-05-04",
+   "title": "Décret n° 2022-273 du 4 mai 2022 portant conditions d'accès aux formations et stages professionnels des conservateurs des Eaux, Forêts et Chasse et modalités d'organisation",
+   "source": "https://sgg.gouv.bj/doc/decret-2022-273/download",
+   "text_layer": "publisher-ocr",
+   "articles": 16
+  },
+  {
+   "id": "decrets/2022/2022-274-portant-creation-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2022-274",
+   "date": "2022-05-04",
+   "title": "Décret n° 2022-274 du 4 mai 2022 portant création, attributions, organisation et fonctionnement du Conseil béninois du Développement durable",
+   "source": "https://sgg.gouv.bj/doc/decret-2022-274/download",
+   "text_layer": "publisher-ocr",
+   "articles": 18
+  },
+  {
+   "id": "decrets/2022/2022-356-portant-mise-en-place-du-comite-de",
+   "kind": "decret",
+   "number": "2022-356",
+   "date": "2022-06-22",
+   "title": "Décret n° 2022-356 du 22 juin 2022 portant mise en place du Comité de restructuration de la Société nationale des Eaux du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben217439.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 6
+  },
+  {
+   "id": "decrets/2022/2022-390-portant-organisation-des-procedures-de-l",
+   "kind": "decret",
+   "number": "2022-390",
+   "date": "2022-07-13",
+   "title": "Décret n° 2022-390 du 13 juillet 2022 portant organisation des procédures de l’évaluation environnementale et sociale en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben217263.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 135
+  },
+  {
+   "id": "decrets/2022/2022-417-portant-regime-special-de-l-evaluation",
+   "kind": "decret",
+   "number": "2022-417",
+   "date": "2022-07-20",
+   "title": "Décret n° 2022-417 du 20 juillet 2022 portant régime spécial de l'évaluation environnementale et sociale applicable dans la Zone Économique spéciale de Glo-Djigbé",
+   "source": "https://faolex.fao.org/docs/pdf/ben217411.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 6
+  },
+  {
+   "id": "decrets/2022/2022-419-portant-fixation-de-nouvelles-redevances-l",
+   "kind": "decret",
+   "number": "2022-419",
+   "date": "2022-07-20",
+   "title": "Décret n° 2022-419 du 20 juillet 2022 portant fixation de nouvelles redevances l'exportation du soja et du riz paddy, en soutien aux prix des intrants agricoles",
+   "source": "https://faolex.fao.org/docs/pdf/ben217364.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 4
+  },
+  {
+   "id": "decrets/2022/2022-451-portant-fusion-par-absorption-du-laboratoire",
+   "kind": "decret",
+   "number": "2022-451",
+   "date": "2022-07-27",
+   "title": "Décret n° 2022-451 du 27 juillet 2022 portant fusion par absorption du Laboratoire central de Contrôle de la Sécurité sanitaire des aliments par Agence béninoise de Sécurité sanitaire des aliments",
+   "source": "https://faolex.fao.org/docs/pdf/ben216019.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 3
+  },
+  {
+   "id": "decrets/2022/2022-458-portant-approbation-des-statuts-du-centre",
+   "kind": "decret",
+   "number": "2022-458",
+   "date": "2022-07-27",
+   "title": "Décret n.2022-458 du 27 juillet 2022 portant approbation des statuts du Centre national de Gestion des Réserves de Faune",
+   "source": "https://faolex.fao.org/docs/pdf/ben217494.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 49
+  },
+  {
+   "id": "decrets/2022/2022-63-portant-approbation-des-statuts-de-l-agence",
+   "kind": "decret",
+   "number": "2022-63",
+   "date": "2022-02-02",
+   "title": "Décret n° 2022-63 du 2 février 2022 portant approbation des statuts de l'Agence béninoise pour l'Environnement",
+   "source": "https://faolex.fao.org/docs/pdf/ben217429.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 46
+  },
+  {
+   "id": "decrets/2022/2022-64-portant-mesures-conjoncturelles-de-soutien-aux",
+   "kind": "decret",
+   "number": "2022-64",
+   "date": "2022-02-02",
+   "title": "Décret n.2022-064 du 02 février 2022 portant mesures conjoncturelles de soutien aux filières et de maîtrise des prix de certains produits agricoles",
+   "source": "https://faolex.fao.org/docs/pdf/ben217386.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 6
+  },
+  {
+   "id": "decrets/2022/2022-687-portant-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2022-687",
+   "date": "2022-11-30",
+   "title": "Décret n. 2022-687 du 30 novembre 2022 portant attributions, organisation et fonctionnement du Ministére du Cadre de Vie et du Développement Durable",
+   "source": "https://faolex.fao.org/docs/pdf/ben221772.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 15
+  },
+  {
+   "id": "decrets/2022/2022-698-fixant-les-modalites-d-enregistrement-des-projets",
+   "kind": "decret",
+   "number": "2022-698",
+   "date": "2022-12-07",
+   "title": "Décret n° 2022-698 du 7 décembre 2022 fixant les modalités d'enregistrement des projets carbone en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben216480.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 11
+  },
+  {
+   "id": "decrets/2022/2022-699-portant-creation-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2022-699",
+   "date": "2022-12-07",
+   "title": "Décret n° 2022-699 du 7 décembre 2022 portant création, attributions, organisation et fonctionnement de l’Autorité d'enregistrement des projets carbone en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben216484.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 11
+  },
+  {
+   "id": "decrets/2022/2022-93-portant-creation-du-laboratoire-d-etude-et-de",
+   "kind": "decret",
+   "number": "2022-93",
+   "date": "2022-02-09",
+   "title": "Décret n. 2022-093 du 09 février 2022 portant création du Laboratoire d'étude et de surveillance environnementales et approbation de ses statuts",
+   "source": "https://faolex.fao.org/docs/pdf/ben217457.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 53
+  },
+  {
+   "id": "decrets/2023/2023-127-portant-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2023-127",
+   "date": "2023-04-05",
+   "title": "Décret n° 2023-127 du 5 avril 2023 portant attributions, organisation et fonctionnement du Ministère des Petites et Moyennes Entreprises et de la Promotion de l' Emploi",
+   "source": "https://faolex.fao.org/docs/pdf/ben217361.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 12
+  },
+  {
+   "id": "decrets/2023/2023-24-portant-conditions-de-mise-en-oeuvre-du-programme",
+   "kind": "decret",
+   "number": "2023-24",
+   "date": "2023-01-25",
+   "title": "Décret n° 2023-24 du 25 janvier 2023 portant conditions de mise en oeuvre du programme de vérification de la conformité aux normes de produits importés ou manufacturés localement en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben217367.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 8
+  },
+  {
+   "id": "decrets/2023/2023-280-portant-reglementation-de-la-securite-nucleaire",
+   "kind": "decret",
+   "number": "2023-280",
+   "date": "2023-05-24",
+   "title": "Décret n° 2023-280 du 24 mai 2023 portant réglementation de la sécurité nucléaire des installations et des activités impliquant des matières radioactives",
+   "source": "https://faolex.fao.org/docs/pdf/ben220723.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 77
+  },
+  {
+   "id": "decrets/2023/2023-281-portant-reglementation-de-la-securite-du",
+   "kind": "decret",
+   "number": "2023-281",
+   "date": "2023-05-24",
+   "title": "Décret n° 2023-281 du 24 mai 2023 portant réglementation de la sécurité du transport de matières radioactives",
+   "source": "https://faolex.fao.org/docs/pdf/ben220710.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 29
+  },
+  {
+   "id": "decrets/2023/2023-303-portant-modalites-d-exercice-de-la-veille",
+   "kind": "decret",
+   "number": "2023-303",
+   "date": "2023-06-07",
+   "title": "Décret n° 2023-303 du 7 juin 2023 portant modalités d'exercice de la veille pastorale",
+   "source": "https://faolex.fao.org/docs/pdf/ben223007.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 17
+  },
+  {
+   "id": "decrets/2023/2023-341-portant-autorisations-requises-pour-certaines",
+   "kind": "decret",
+   "number": "2023-341",
+   "date": "2023-07-05",
+   "title": "Décret n° 2023-341 du 5 juillet 2023 portant autorisations requises pour certaines techniques de pêche et d'aquaculture dans la zone littorale",
+   "source": "https://faolex.fao.org/docs/pdf/ben223312.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 16
+  },
+  {
+   "id": "decrets/2023/2023-342-portant-conditions-d-autorisation-et-normes-de",
+   "kind": "decret",
+   "number": "2023-342",
+   "date": "2023-07-05",
+   "title": "Décret n° 2023-342 du 5 juillet 2023 portant conditions d'autorisation et normes de rejet dans la zone littorale",
+   "source": "https://faolex.fao.org/docs/pdf/ben223317.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 22
+  },
+  {
+   "id": "decrets/2023/2023-344-portant-mise-en-conformite-des-documents-d",
+   "kind": "decret",
+   "number": "2023-344",
+   "date": "2023-07-05",
+   "title": "Décret n° 2023-344 du 5 juillet 2023 portant mise en conformité des documents d'urbanisme avec les dispositions de la loi sur la zone littorale",
+   "source": "https://faolex.fao.org/docs/pdf/ben223322.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 6
+  },
+  {
+   "id": "decrets/2023/2023-345-portant-creation-de-la-cellule-nationale-de",
+   "kind": "decret",
+   "number": "2023-345",
+   "date": "2023-07-05",
+   "title": "Décret n° 2023-345 du 5 juillet 2023 portant création de la Cellule nationale de Protection de Gestion du Littoral et de ses démembrements et approbation de ses statuts",
+   "source": "https://faolex.fao.org/docs/pdf/ben223323.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 49
+  },
+  {
+   "id": "decrets/2023/2023-347-portant-interdiction-d-enlevement-de-capture-et",
+   "kind": "decret",
+   "number": "2023-347",
+   "date": "2023-07-05",
+   "title": "Décret n° 2023-347 du 5 juillet 2023 portant interdiction d'enlèvement, de capture et de détention des espèces animales protégées dans la zone littorale",
+   "source": "https://faolex.fao.org/docs/pdf/ben223324.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 14
+  },
+  {
+   "id": "decrets/2023/2023-348-portant-interdiction-de-certains-engins-et",
+   "kind": "decret",
+   "number": "2023-348",
+   "date": "2023-07-05",
+   "title": "Décret n° 2023-348 du 5 juillet 2023 portant interdiction de certains engins et techniques de pêches dans la zone littorale",
+   "source": "https://faolex.fao.org/docs/pdf/ben223325.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 8
+  },
+  {
+   "id": "decrets/2023/2023-349-fixant-les-modalites-d-application-des-directives",
+   "kind": "decret",
+   "number": "2023-349",
+   "date": "2023-07-05",
+   "title": "Décret n° 2023-349 du 5 juillet 2023 fixant les modalités d'application des directives d'aménagement et de mise en valeur de la zone littorale",
+   "source": "https://faolex.fao.org/docs/pdf/ben223326.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 11
+  },
+  {
+   "id": "decrets/2023/2023-350-fixant-regles-de-gestion-et-de-valorisation-des",
+   "kind": "decret",
+   "number": "2023-350",
+   "date": "2023-07-05",
+   "title": "Décret n° 2023-350 du 5 juillet 2023 fixant règles de gestion et de valorisation des déchets issus des activités d'élevage dans la zone littorale",
+   "source": "https://faolex.fao.org/docs/pdf/ben223333.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 13
+  },
+  {
+   "id": "decrets/2023/2023-425-portant-creation-de-l-agence-nationale-de-l",
+   "kind": "decret",
+   "number": "2023-425",
+   "date": "2023-07-26",
+   "title": "Décret n° 2023-425 du 26 juillet 2023 portant création de l'agence nationale de l'Alimentation et de la Nutrition et approbation de ses statuts",
+   "source": "https://faolex.fao.org/docs/pdf/ben223334.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 52
+  },
+  {
+   "id": "decrets/2024/2024-1016-du-17-juillet-2024-portant-creation-du-fonds-d",
+   "kind": "decret",
+   "number": "2024-1016",
+   "date": "2024-07-17",
+   "title": "Décret n° 2024-1016 du 17 juillet 2024 portant création du fonds d'Investissement et de Garantie des Petites et Moyennes Entreprises et approbation de ses statuts",
+   "source": "https://faolex.fao.org/docs/pdf/ben236695.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 64
+  },
+  {
+   "id": "decrets/2024/2024-1020-du-17-juillet-2024-portant-creation-de-l-agence",
+   "kind": "decret",
+   "number": "2024-1020",
+   "date": "2024-07-17",
+   "title": "Décret n° 2024-1020 du 17 juillet 2024 portant création de l'Agence béninoise de Protection civile et approbation de ses statuts",
+   "source": "https://faolex.fao.org/docs/pdf/ben236696.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 48
+  },
+  {
+   "id": "decrets/2024/2024-1029-du-24-juillet-2024-portant-conditions-et",
+   "kind": "decret",
+   "number": "2024-1029",
+   "date": "2024-07-24",
+   "title": "Décret n° 2024-1029 du 24 juillet 2024 portant conditions et procédures de délivrance du certificat d'urbanisme",
+   "source": "https://faolex.fao.org/docs/pdf/ben236676.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 27
+  },
+  {
+   "id": "decrets/2024/2024-1030-du-24-juillet-2024-portant-regles-d-urbanisme-et",
+   "kind": "decret",
+   "number": "2024-1030",
+   "date": "2024-07-24",
+   "title": "Décret n° 2024-1030 du 24 juillet 2024 portant règles d'urbanisme et de mise en valeur des zones de flancs de montages et de collines",
+   "source": "https://faolex.fao.org/docs/pdf/ben236677.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 22
+  },
+  {
+   "id": "decrets/2024/2024-1031-du-24-juillet-2024-portant-organisation-et",
+   "kind": "decret",
+   "number": "2024-1031",
+   "date": "2024-07-24",
+   "title": "Décret n° 2024-1031 du 24 juillet 2024 portant organisation et fonctionnement des organes consultatifs et d'instruction en matière d'urbanisme",
+   "source": "https://faolex.fao.org/docs/pdf/ben236679.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 32
+  },
+  {
+   "id": "decrets/2024/2024-1032-du-24-juillet-2024-portant-reglementation-de-l",
+   "kind": "decret",
+   "number": "2024-1032",
+   "date": "2024-07-24",
+   "title": "Décret n° 2024-1032 du 24 juillet 2024 portant règlementation de l'aménagement urbain",
+   "source": "https://faolex.fao.org/docs/pdf/ben236680.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 106
+  },
+  {
+   "id": "decrets/2024/2024-1033-du-24-juillet-2024-portant-procedures-d",
+   "kind": "decret",
+   "number": "2024-1033",
+   "date": "2024-07-24",
+   "title": "Décret n° 2024-1033 du 24 juillet 2024 portant procédures d'élaboration, d'approbation, de modification et de révision des documents d'urbanisme",
+   "source": "https://faolex.fao.org/docs/pdf/ben236683.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 39
+  },
+  {
+   "id": "decrets/2024/2024-1034-du-24-juillet-2024-portant-reglement-national-d",
+   "kind": "decret",
+   "number": "2024-1034",
+   "date": "2024-07-24",
+   "title": "Décret n° 2024-1034 du 24 juillet 2024 portant reglement national d'urbanisme",
+   "source": "https://faolex.fao.org/docs/pdf/ben233686.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 27
+  },
+  {
+   "id": "decrets/2024/2024-1051-du-24-juillet-2024-portant-approbation-du",
+   "kind": "decret",
+   "number": "2024-1051",
+   "date": "2024-07-24",
+   "title": "Décret n° 2024-1051 du 24 juillet 2024 portant approbation du règlement d'urbanisme de la zone littorale et balnéaire en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben236684.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 6
+  },
+  {
+   "id": "decrets/2024/2024-1056-du-24-juillet-2024-portant-approbation-des",
+   "kind": "decret",
+   "number": "2024-1056",
+   "date": "2024-07-24",
+   "title": "Décret n° 2024-1056 du 24 juillet 2024 portant approbation des statuts de l'Université nationale d'Agriculture",
+   "source": "https://faolex.fao.org/docs/pdf/ben236694.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 138
+  },
+  {
+   "id": "decrets/2024/2024-1067-du-31-juillet-2024-portant-creation-de-l-agence",
+   "kind": "decret",
+   "number": "2024-1067",
+   "date": "2024-07-31",
+   "title": "Décret n° 2024-1067 du 31 juillet 2024 portant création de l'Agence béninoise pour la Recherche et l'Innovation et approbation de ses statuts",
+   "source": "https://faolex.fao.org/docs/pdf/ben236426.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 62
+  },
+  {
+   "id": "decrets/2024/2024-1112-du-18-septembre-2024-fixant-la-procedure",
+   "kind": "decret",
+   "number": "2024-1112",
+   "date": "2024-09-18",
+   "title": "Décret n° 2024-1112 du 18 septembre 2024 fixant la procédure simplifiée de passation du partenariat public-privé en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben236674.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 7
+  },
+  {
+   "id": "decrets/2024/2024-1114-du-25-septembre-2024-portant-modification-de-l",
+   "kind": "decret",
+   "number": "2024-1114",
+   "date": "2024-09-25",
+   "title": "Décret n° 2024-1114 du 25 septembre 2024 portant modification de l'article 5 des statuts de l'Agence nationale de l'Alimentation et de la Nutrition",
+   "source": "https://faolex.fao.org/docs/pdf/ben236660.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 3
+  },
+  {
+   "id": "decrets/2024/2024-1115-du-25-septembre-2024-portant-modification-de-l",
+   "kind": "decret",
+   "number": "2024-1115",
+   "date": "2024-09-25",
+   "title": "Décret n° 2024-1115 du 25 septembre 2024 portant modification de l'article 5 des statuts de l'Agence béninoise de la Sécurité sanitaire des Aliments",
+   "source": "https://faolex.fao.org/docs/pdf/ben236662.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 3
+  },
+  {
+   "id": "decrets/2024/2024-1116-du-25-septembre-2024-portant-abrogation-du-decret",
+   "kind": "decret",
+   "number": "2024-1116",
+   "date": "2024-09-25",
+   "title": "Décret n° 2024-1116 du 25 septembre 2024 portant abrogation du décret n° 2009-245 du 09 juin 2009 portant création, attributions, organisation et fonctionnement du Conseil national de l'Alimentation et de la Nutrition",
+   "source": "https://faolex.fao.org/docs/pdf/ben236673.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 2
+  },
+  {
+   "id": "decrets/2024/2024-1244-du-16-octobre-2024-portant-approbation-du-schema",
+   "kind": "decret",
+   "number": "2024-1244",
+   "date": "2024-10-16",
+   "title": "Décret n° 2024-1244 du 16 octobre 2024 portant approbation du Schéma directeur d'Aménagement du Littoral",
+   "source": "https://faolex.fao.org/docs/pdf/ben236347.pdf",
+   "text_layer": "born-digital",
+   "articles": 3
+  },
+  {
+   "id": "decrets/2024/2024-1279-du-23-octobre-2024-portant-creation-attributions",
+   "kind": "decret",
+   "number": "2024-1279",
+   "date": "2024-10-23",
+   "title": "Décret n° 2024-1279 du 23 octobre 2024 portant création, attributions, organisation et fonctionnement du Comité national des indications géographiques",
+   "source": "https://faolex.fao.org/docs/pdf/ben236343.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 15
+  },
+  {
+   "id": "decrets/2024/2024-1293-du-6-novembre-2024-portant-conditions-d",
+   "kind": "decret",
+   "number": "2024-1293",
+   "date": "2024-11-06",
+   "title": "Décret n° 2024-1293 du 6 novembre 2024 portant conditions d'installation, d'ouverture et d'exploitation des industries pharmaceutiques",
+   "source": "https://faolex.fao.org/docs/pdf/ben236337.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 54
+  },
+  {
+   "id": "decrets/2024/2024-1299-du-6-novembre-2024-portant-modalites-d",
+   "kind": "decret",
+   "number": "2024-1299",
+   "date": "2024-11-06",
+   "title": "Décret n° 2024-1299 du 6 novembre 2024 portant modalités d'homologation des compléments nutritionnels, des aliments destinés aux nourrissons et aux enfants en âge et des produits diététiques et de régime",
+   "source": "https://faolex.fao.org/docs/pdf/ben236338.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 30
+  },
+  {
+   "id": "decrets/2024/2024-1302-du-6-novembre-2024-fixant-les-modalites-du",
+   "kind": "decret",
+   "number": "2024-1302",
+   "date": "2024-11-06",
+   "title": "Décret n° 2024-1302 du 6 novembre 2024 fixant les modalités du contrôle sanitaire aux frontières",
+   "source": "https://faolex.fao.org/docs/pdf/ben236658.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 7
+  },
+  {
+   "id": "decrets/2024/2024-1391-du-11-septembre-2024-fixant-les-regles-de",
+   "kind": "decret",
+   "number": "2024-1391",
+   "date": "2024-09-11",
+   "title": "Décret n° 2024-1391 du 11 septembre 2024 fixant les règles de répartition des ressources en eau",
+   "source": "https://faolex.fao.org/docs/pdf/ben236425.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 11
+  },
+  {
+   "id": "decrets/2024/2024-1399-du-11-decembre-2024-fixant-les-conditions-de",
+   "kind": "decret",
+   "number": "2024-1399",
+   "date": "2024-12-11",
+   "title": "Décret n° 2024-1399 du 11 décembre 2024 fixant les conditions de déclaration ou d'autorisation des installations, ouvrages, travaux et activités relatifs aux ressources en eau",
+   "source": "https://faolex.fao.org/docs/pdf/ben236323.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 48
+  },
+  {
+   "id": "decrets/2024/2024-1473-du-24-decembre-2024-portant-conditions-d",
+   "kind": "decret",
+   "number": "2024-1473",
+   "date": "2024-12-24",
+   "title": "Décret n° 2024-1473 du 24 décembre 2024 portant conditions d'introduction et de mise sur marché d'additifs alimentaires sur le territoire national",
+   "source": "https://faolex.fao.org/docs/pdf/ben236320.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 13
+  },
+  {
+   "id": "decrets/2024/2024-1475-du-24-decembre-2024-fixant-les-conditions-et",
+   "kind": "decret",
+   "number": "2024-1475",
+   "date": "2024-12-24",
+   "title": "Décret n° 2024-1475 du 24 décembre 2024 fixant les conditions et modalités d'identification, de classement ou de déclassement et de gestion des terres agricoles et des terres à vocation agricole",
+   "source": "https://faolex.fao.org/docs/pdf/ben236254.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 11
+  },
+  {
+   "id": "decrets/2024/2024-1476-du-24-decembre-2024-fixant-les-modalites-d",
+   "kind": "decret",
+   "number": "2024-1476",
+   "date": "2024-12-24",
+   "title": "Décret n° 2024-1476 du 24 décembre 2024 fixant les modalités d'organisation de la Conférence agricole annuelle",
+   "source": "https://faolex.fao.org/docs/pdf/ben236656.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 13
+  },
+  {
+   "id": "decrets/2024/2024-189-portant-creation-du-centre-national-des-produits",
+   "kind": "decret",
+   "number": "2024-189",
+   "date": "2024-10-30",
+   "title": "Décret n° 2024-189 du 30 octobre 2024 portant création du Centre national des produits biologiques à usage vétérinaire et approbation de ses statuts",
+   "source": "https://faolex.fao.org/docs/pdf/ben236342.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 51
+  },
+  {
+   "id": "decrets/2024/2024-777-portant-reglementation-des-etablissements-de",
+   "kind": "decret",
+   "number": "2024-777",
+   "date": "2024-02-07",
+   "title": "Décret n° 2024-777 du 7 février 2024 portant réglementation des établissements de restauration et assimilés en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben229876.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 49
+  },
+  {
+   "id": "decrets/2024/2024-854-fixant-le-cadre-general-de-gestion-des",
+   "kind": "decret",
+   "number": "2024-854",
+   "date": "2024-03-27",
+   "title": "Décret n° 2024-854 du 27 mars 2024 fixant le cadre général de gestion des investissements publics",
+   "source": "https://faolex.fao.org/docs/pdf/ben229877.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 61
+  },
+  {
+   "id": "decrets/2024/2024-859-portant-approbation-du-plan-national-de",
+   "kind": "decret",
+   "number": "2024-859",
+   "date": "2024-03-27",
+   "title": "Décret n° 2024-859 du 27 mars 2024 portant approbation du Plan national de Contingence de la République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben229812.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 3
+  },
+  {
+   "id": "decrets/2024/2024-873-portant-creation-de-la-societe-beninoise-des",
+   "kind": "decret",
+   "number": "2024-873",
+   "date": "2024-04-11",
+   "title": "Décret n° 2024-873 du 11 avril 2024 portant création de la Société béninoise des Infrastructures de l'Eau S.A. et approbation de ses statuts",
+   "source": "https://faolex.fao.org/docs/pdf/ben229802.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 44
+  },
+  {
+   "id": "decrets/2024/2024-896-portant-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2024-896",
+   "date": "2024-04-17",
+   "title": "Décret n° 2024-896 du 17 avril 2024 portant attributions, organisation et fonctionnement du Ministére de l'Energie, de l'Eau et des Mines",
+   "source": "https://faolex.fao.org/docs/pdf/ben229855.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 12
+  },
+  {
+   "id": "decrets/2024/2024-897-portant-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2024-897",
+   "date": "2024-04-17",
+   "title": "Décret n° 2024-897 du 17 avril 2024 portant attributions, organisation et fonctionnement du Comite interministériel de Pilotage de la Politique nationale de Décentralisation et de Déconcentration",
+   "source": "https://faolex.fao.org/docs/pdf/ben229832.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 12
+  },
+  {
+   "id": "decrets/2024/2024-917-portant-creation-d-un-registre-des-beneficiaires",
+   "kind": "decret",
+   "number": "2024-917",
+   "date": "2024-04-24",
+   "title": "Décret n° 2024-917 du 24 avril 2024 portant création d'un registre des bénéficiaires effectifs auprès de l’Agence nationale du Domaine et du Foncier",
+   "source": "https://faolex.fao.org/docs/pdf/ben229619.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 18
+  },
+  {
+   "id": "decrets/2024/2024-954-portant-modalites-d-exercice-de-la-veille",
+   "kind": "decret",
+   "number": "2024-954",
+   "date": "2024-04-08",
+   "title": "Décret n° 2024-954 du 8 avril 2024 portant modalités d’exercice de la veille pastorale",
+   "source": "https://faolex.fao.org/docs/pdf/ben234639.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 32
+  },
+  {
+   "id": "decrets/2025/2025-129-portant-creation-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2025-129",
+   "date": "2025-03-12",
+   "title": "Décret n° 2025-129 du 12 mars 2025 portant création, attributions, organisation et fonctionnement du Cadre national de Concertation l'Artisanat au Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben236646.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 8
+  },
+  {
+   "id": "decrets/2025/2025-134-portant-reglementation-de-la-surete-du-transport",
+   "kind": "decret",
+   "number": "2025-134",
+   "date": "2025-03-19",
+   "title": "Décret n° 2025-134 du 19 mars 2025 portant réglementation de la sûreté du transport des matières radioactives",
+   "source": "https://faolex.fao.org/docs/pdf/ben236480.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 71
+  },
+  {
+   "id": "decrets/2025/2025-136-portant-attributions-composition-organisation-et",
+   "kind": "decret",
+   "number": "2025-136",
+   "date": "2025-03-19",
+   "title": "Décret n° 2025-136 du 19 mars 2025 portant attributions, composition, organisation et fonctionnement de la Commission béninoise de l'énergie atomique",
+   "source": "https://faolex.fao.org/docs/pdf/ben236645.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 17
+  },
+  {
+   "id": "decrets/2025/2025-15-portant-attributions-organisation-et",
+   "kind": "decret",
+   "number": "2025-15",
+   "date": "2025-01-22",
+   "title": "Décret n° 2025-15 du 22 janvier 2025 portant attributions, organisation et fonctionnement du Conseil national de la biosécurité",
+   "source": "https://faolex.fao.org/docs/pdf/ben236249.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 39
+  },
+  {
+   "id": "decrets/2025/2025-160-portant-creation-de-l-agence-nationale-du-paysage",
+   "kind": "decret",
+   "number": "2025-160",
+   "date": "2025-04-09",
+   "title": "Décret n° 2025-160 du 9 avril 2025 portant création de l'Agence nationale du Paysage et approbation de ses statuts",
+   "source": "https://faolex.fao.org/docs/pdf/ben236477.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 50
+  },
+  {
+   "id": "decrets/2025/2025-176-portant-modalites-de-mise-en-uvre-du-numero",
+   "kind": "decret",
+   "number": "2025-176",
+   "date": "2025-04-09",
+   "title": "Décret n° 2025-176 du 9 avril 2025 portant modalités de mise en œuvre du numéro unique parcellaire, de confirmation cadastrale des droits fonciers et de mise à jour du cadastre national",
+   "source": "https://faolex.fao.org/docs/pdf/ben236248.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 42
+  },
+  {
+   "id": "decrets/2025/2025-230-portant-attributions-composition-organisation-et",
+   "kind": "decret",
+   "number": "2025-230",
+   "date": "2025-05-07",
+   "title": "Décret n° 2025-230 du 7 mai 2025 portant attributions, composition, organisation et fonctionnement du Conseil national de l'eau",
+   "source": "https://faolex.fao.org/docs/pdf/ben236464.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 23
+  },
+  {
+   "id": "decrets/2025/2025-76-portant-attributions-composition-organisation-et",
+   "kind": "decret",
+   "number": "2025-76",
+   "date": "2025-02-19",
+   "title": "Décret n° 2025-76 du 19 février 2025 portant attributions, composition, organisation et fonctionnement du Conseil scientifique de la Convention sur le commerce international des espèces de faune et de la flore sauvages menacées d'extinction",
+   "source": "https://faolex.fao.org/docs/pdf/ben236652.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 18
+  },
+  {
+   "id": "lois/1984/1984-09-sur-le-controle-des-denrees-alimentaires",
+   "kind": "loi",
+   "number": "1984-09",
+   "date": "1984-03-15",
+   "title": "Loi n° 1984-09 du 15 mars 1984 sur le contrôle des denrées alimentaires",
+   "source": "https://faolex.fao.org/docs/pdf/ben86098.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 20
+  },
+  {
+   "id": "lois/1987/1987-09-relative-a-la-repression-des-infractions-en",
+   "kind": "loi",
+   "number": "1987-09",
+   "date": "1987-09-21",
+   "title": "Loi n° 1987-09 du 21 septembre 1987 relative à la répression des infractions en matière d'usage, de commerce, de détention et d'emploi de substances vénéneuses République Populaire du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben166786.pdf",
+   "text_layer": "born-digital",
+   "articles": 20
+  },
+  {
+   "id": "lois/1989/1989-04-portant-institution-de-la-commission-beninoise",
+   "kind": "loi",
+   "number": "1989-04",
+   "date": "1989-05-12",
+   "title": "Loi n° 1989-04 du 12 mai 1989 portant institution de la Commission Béninoise des Droits de l'Homme",
+   "source": "https://faolex.fao.org/docs/pdf/ben206451.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 13
+  },
+  {
+   "id": "lois/1993/1993-07-portant-amendement-de-la-loi-n-90-005-du-15",
+   "kind": "loi",
+   "number": "1993-07",
+   "date": "1993-03-29",
+   "title": "Loi n° 1993-07 du 29 mars 1993 portant amendement de la loi N° 90 -005 du 15 Février 1990 fixant les conditions d’exercice des activités de commerce en republique du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben228135.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 2
+  },
+  {
+   "id": "lois/1993/1993-20-portant-autorisation-de-ratification-de-la",
+   "kind": "loi",
+   "number": "1993-20",
+   "date": "1993-12-02",
+   "title": "Loi n° 1993-20 du 2 décembre 1993 portant autorisation de ratification de la Convention-cadre des Nations-Unies sur les Changements Climatiques signée le 13 Juin 1992 à Rio de Janeiro",
+   "source": "https://faolex.fao.org/docs/pdf/ben182946.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 0
+  },
+  {
+   "id": "lois/1998/1998-15-portant-statut-general-des-gens-de-mer-en",
+   "kind": "loi",
+   "number": "1998-15",
+   "date": "1998-05-12",
+   "title": "Loi n° 1998-15 du 12 mai 1998 portant Statut Général des Gens de Mer en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben234925.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 114
+  },
+  {
+   "id": "lois/1999/1997-28-portant-organisation-de-l-administration",
+   "kind": "loi",
+   "number": "1997-28",
+   "date": "1999-01-15",
+   "title": "Loi n° 1997-28 du 15 janvier 1999 portant organisation de l'administration territoriale en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben143644.pdf",
+   "text_layer": "born-digital",
+   "articles": 49
+  },
+  {
+   "id": "lois/2000/1998-17-portant-institution-organisation-et",
+   "kind": "loi",
+   "number": "1998-17",
+   "date": "2000-07-07",
+   "title": "Loi n° 1998-17 du 7 juillet 2000 portant institution, organisation et fonctionnement de l’Ordre national des médecins vétérinaires",
+   "source": "https://faolex.fao.org/docs/pdf/ben234917.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 56
+  },
+  {
+   "id": "lois/2001/2001-33-portant-autorisation-d-adhesion-du-benin-au",
+   "kind": "loi",
+   "number": "2001-33",
+   "date": "2001-11-22",
+   "title": "Loi n° 2001-33 du 22 novembre 2001 portant autorisation d'adhésion du Bénin au Protocole de Kyoto à la Convention-Cadre des Nations-Unies sur les changements climatiques adopté à kyoto, au Japon, le Il décembre 1997",
+   "source": "https://sgg.gouv.bj/doc/loi-2001-33/download",
+   "text_layer": "publisher-ocr",
+   "articles": 2
+  },
+  {
+   "id": "lois/2004/2002-16-portant-regime-de-la-faune-en-republique-du-benin",
+   "kind": "loi",
+   "number": "2002-16",
+   "date": "2004-10-18",
+   "title": "Loi n° 2002-16 du 18 octobre 2004 portant régime de la faune en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben166784.pdf",
+   "text_layer": "born-digital",
+   "articles": 170
+  },
+  {
+   "id": "lois/2005/2004-23-portant-regime-juridique-et-fiscal-harmonise",
+   "kind": "loi",
+   "number": "2004-23",
+   "date": "2005-03-25",
+   "title": "Loi n° 2004-23 du 25 mars 2005 portant régime juridique et fiscal harmonisé applicable au projet du Gazoduc de l'Afrique de l'Ouest en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben65712.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 50
+  },
+  {
+   "id": "lois/2006/2006-12-portant-reglementation-de-la-production-de-la",
+   "kind": "loi",
+   "number": "2006-12",
+   "date": "2006-08-07",
+   "title": "Loi n° 2006-12 du 7 août 2006 portant réglementation de la production, de la commercialisation et de la consommation des cigarettes et autres produits du tabac en République du Bénin",
+   "source": "https://sgg.gouv.bj/doc/loi-2006-12/download",
+   "text_layer": "born-digital",
+   "articles": 20
+  },
+  {
+   "id": "lois/2007/2007-03-portant-regime-foncier-rural-en-republique-du",
+   "kind": "loi",
+   "number": "2007-03",
+   "date": "2007-10-16",
+   "title": "Loi n° 2007-03 du 16 octobre 2007 portant régime foncier rural en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben80722.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 103
+  },
+  {
+   "id": "lois/2007/2007-20-portant-protection-du-patrimoine-culturel-et-du",
+   "kind": "loi",
+   "number": "2007-20",
+   "date": "2007-08-23",
+   "title": "Loi n° 2007-20 du 23 août 2007 portant protection du patrimoine culturel et du patrimoine naturel à caractère culturel en République du Bénin",
+   "source": "https://sgg.gouv.bj/doc/loi-2007-20/download",
+   "text_layer": "publisher-ocr",
+   "articles": 89
+  },
+  {
+   "id": "lois/2007/2007-21-portant-protection-du-consommateur-en-republique",
+   "kind": "loi",
+   "number": "2007-21",
+   "date": "2007-10-16",
+   "title": "Loi n° 2007-21 du 16 octobre 2007 portant protection du consommateur en République du Bénin",
+   "source": "https://sgg.gouv.bj/doc/loi-2007-21/download",
+   "text_layer": "publisher-ocr",
+   "articles": 53
+  },
+  {
+   "id": "lois/2009/2009-25-portant-autorisation-de-ratification-de-la-charte",
+   "kind": "loi",
+   "number": "2009-25",
+   "date": "2009-08-03",
+   "title": "Loi n° 2009-25 du 3 août 2009 portant autorisation de ratification de la Charte de l'eau du Bassin du Niger signée le 30 avril 2008 à Niamey (Niger) par les Etats membres de l'Autorité du Bassin du Niger (ABN)",
+   "source": "https://sgg.gouv.bj/doc/loi-2009-25/download",
+   "text_layer": "publisher-ocr",
+   "articles": 2
+  },
+  {
+   "id": "lois/2010/2010-14-portant-autorisation-de-l-adhesion-de-la",
+   "kind": "loi",
+   "number": "2010-14",
+   "date": "2010-05-12",
+   "title": "Loi n° 2010-14 du 12 mai 2010 Portant autorisation de l'adhésion de la République du Bénin à l'Accord International sur les Bois Tropicaux, adopté à Genève le 27 janvier 2006",
+   "source": "https://sgg.gouv.bj/doc/loi-2010-14/download",
+   "text_layer": "publisher-ocr",
+   "articles": 2
+  },
+  {
+   "id": "lois/2010/2010-44-portant-gestion-de-l-eau-en-republique-du-benin",
+   "kind": "loi",
+   "number": "2010-44",
+   "date": "2010-11-24",
+   "title": "Loi n° 2010-44 du 24 novembre 2010 Portant gestion de l'eau en République du Bénin",
+   "source": "https://sgg.gouv.bj/doc/loi-2010-44/download",
+   "text_layer": "publisher-ocr",
+   "articles": 77
+  },
+  {
+   "id": "lois/2011/2011-19-portant-autorisation-d-adhesion-de-la-republique",
+   "kind": "loi",
+   "number": "2011-19",
+   "date": "2011-09-05",
+   "title": "Loi n° 2011-19 du 5 septembre 2011 portant autorisation d'adhésion de la République du Bénin à la Convention des Nations-Unies sur le droit relatif aux utilisations des cours d'eau internationaux à des fins autres que la navigation; adoptée à New-York le 21 mai 1997",
+   "source": "https://sgg.gouv.bj/doc/loi-2011-19/download",
+   "text_layer": "publisher-ocr",
+   "articles": 0
+  },
+  {
+   "id": "lois/2011/2011-20-portant-lutte-contre-la-corruption-et-autres",
+   "kind": "loi",
+   "number": "2011-20",
+   "date": "2011-10-12",
+   "title": "Loi n° 2011-20 du 12 octobre 2011 portant lutte contre la corruption et autres infractions connexes en République du Bénin",
+   "source": "https://sgg.gouv.bj/doc/loi-2011-20/download",
+   "text_layer": "publisher-ocr",
+   "articles": 143
+  },
+  {
+   "id": "lois/2012/2012-02-portant-autorisation-de-ratification-de-la-charte",
+   "kind": "loi",
+   "number": "2012-02",
+   "date": "2012-01-19",
+   "title": "Loi n° 2012-02 du 19 janvier 2012 portant autorisation de ratification de la Charte africaine des transports maritime, adoptée à Durban (Afrique du Sud), le 16 octobre 2009",
+   "source": "https://sgg.gouv.bj/doc/loi-2012-02/download",
+   "text_layer": "publisher-ocr",
+   "articles": 0
+  },
+  {
+   "id": "lois/2012/2012-20-portant-autorisation-d-adhesion-a-l-accord-de-la",
+   "kind": "loi",
+   "number": "2012-20",
+   "date": "2012-05-07",
+   "title": "Loi n° 2012-20 du 7 mai 2012 portant autorisation d'adhésion à l’Accord de la convention des Nations-Unies sur le droit de la mer, adoptée le 10 décembre 1982 relative à la conservation et la gestion des stocks de poissons dont les déplacements s'effectuent tant à l’intérieur qu'au-delà de zones économiques exclusives (stocks chevauchants) et des stocks des poissons migrateurs adoptée, le 04 août 1995, à New York",
+   "source": "https://faolex.fao.org/docs/pdf/ben182974.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 2
+  },
+  {
+   "id": "lois/2013/2012-36-portant-creation-de-la-commission-beninoise-des",
+   "kind": "loi",
+   "number": "2012-36",
+   "date": "2013-02-15",
+   "title": "Loi n° 2012-36 du 15 février 2013 portant création de la Commission béninoise des droits de l’Homme",
+   "source": "https://faolex.fao.org/docs/pdf/ben233568.pdf",
+   "text_layer": "born-digital",
+   "articles": 37
+  },
+  {
+   "id": "lois/2013/2013-05-portant-creation-organisation-attributions-et",
+   "kind": "loi",
+   "number": "2013-05",
+   "date": "2013-05-27",
+   "title": "Loi n° 2013-05 du 27 mai 2013 portant création, organisation, attributions et fonctionnement des unités administratives locales en République du Bénin",
+   "source": "https://sgg.gouv.bj/doc/loi-2013-05/download",
+   "text_layer": "publisher-ocr",
+   "articles": 116
+  },
+  {
+   "id": "lois/2016/2016-06-portant-loi-cadre-sur-l-amenagement-du-territoire",
+   "kind": "loi",
+   "number": "2016-06",
+   "date": "2016-05-26",
+   "title": "Loi n° 2016-06 du 26 mai 2016 portant loi-cadre sur l’aménagement du territoire",
+   "source": "https://faolex.fao.org/docs/pdf/ben224305.pdf",
+   "text_layer": "born-digital",
+   "articles": 56
+  },
+  {
+   "id": "lois/2016/2016-24-portant-cadre-juridique-du-partenariat-public",
+   "kind": "loi",
+   "number": "2016-24",
+   "date": "2016-10-24",
+   "title": "Loi n° 2016-24 du 24 octobre 2016 portant cadre juridique du partenariat public-privé en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben161461.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 77
+  },
+  {
+   "id": "lois/2017/2017-02-relative-au-credit-bail-en-republique-du-benin",
+   "kind": "loi",
+   "number": "2017-02",
+   "date": "2017-05-03",
+   "title": "Loi n° 2017-02 du 3 mai 2017 relative au crédit-bail en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben234979.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 59
+  },
+  {
+   "id": "lois/2017/2017-15-modifiant-et-completant-la-loi-n-2013-01-du-14",
+   "kind": "loi",
+   "number": "2017-15",
+   "date": "2017-08-10",
+   "title": "Loi n° 2017-15 du 10 août 2017 modifiant et complétant la loi n° 2013-01 du 14 août 2013 portant code foncier et domanial en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben174252.pdf",
+   "text_layer": "born-digital",
+   "articles": 4
+  },
+  {
+   "id": "lois/2018/2018-18-sur-les-changements-climatiques-en-republique-du",
+   "kind": "loi",
+   "number": "2018-18",
+   "date": "2018-08-06",
+   "title": "Loi n° 2018-18 du 6 août 2018 sur les changements climatiques en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben184788.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 86
+  },
+  {
+   "id": "lois/2020/2020-03-portant-promotion-et-developpement-des-micros",
+   "kind": "loi",
+   "number": "2020-03",
+   "date": "2020-03-20",
+   "title": "Loi n° 2020-03 du 20 mars 2020 portant promotion et développement des micros, petites et moyennes entreprises en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben197389.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 38
+  },
+  {
+   "id": "lois/2023/2022-36-portant-gestion-des-produits-chimiques-et-de",
+   "kind": "loi",
+   "number": "2022-36",
+   "date": "2023-07-10",
+   "title": "Loi n° 2022-36 du 10 juillet 2023 portant gestion des produits chimiques et de leurs déchets en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben234876.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 78
+  },
+  {
+   "id": "lois/2024/2024-17-modifiant-et-completant-la-loi-n-2022-16-du-19",
+   "kind": "loi",
+   "number": "2024-17",
+   "date": "2024-05-23",
+   "title": "Loi n° 2024-17 du 23 mai 2024 modifiant et complétant la loi n° 2022-16 du 19 octobre 2022 portant création, organisation et fonctionnement de la Cour spéciale des affaires foncières",
+   "source": "https://faolex.fao.org/docs/pdf/ben229775.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 7
+  },
+  {
+   "id": "lois/2024/2024-26-portant-loi-organique-sur-le-conseil-economique",
+   "kind": "loi",
+   "number": "2024-26",
+   "date": "2024-07-17",
+   "title": "Loi n° 2024-26 du 17 juillet 2024 portant loi organique sur le Conseil économique et social",
+   "source": "https://faolex.fao.org/docs/pdf/ben234889.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 22
+  },
+  {
+   "id": "lois/2024/2024-30-portant-cadre-juridique-du-partenariat-public",
+   "kind": "loi",
+   "number": "2024-30",
+   "date": "2024-07-23",
+   "title": "Loi n° 2024-30 du 23 juillet 2024 portant cadre juridique du partenariat public-privé en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben236653.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 74
+  },
+  {
+   "id": "lois/2025/2025-02-portant-organisation-de-la-concurrence-en",
+   "kind": "loi",
+   "number": "2025-02",
+   "date": "2025-02-05",
+   "title": "Loi n° 2025-02 du 5 février 2025 portant organisation de la concurrence en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben236463.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 114
+  },
+  {
+   "id": "lois/2025/2025-05-portant-loi-cadre-sur-la-construction-et-l",
+   "kind": "loi",
+   "number": "2025-05",
+   "date": "2025-04-03",
+   "title": "Loi n° 2025-05 du 3 avril 2025 portant loi-cadre sur la construction et l'habitation",
+   "source": "https://faolex.fao.org/docs/pdf/ben236437.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 106
+  },
+  {
+   "id": "lois/2025/2025-09-portant-cadre-juridique-de-la-chefferie",
+   "kind": "loi",
+   "number": "2025-09",
+   "date": "2025-04-03",
+   "title": "Loi n° 2025-09 du 3 avril 2025 portant cadre juridique de la chefferie traditionnelle en république du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben236438.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 47
+  },
+  {
+   "id": "lois/2026/2026-15-portant-loi-sur-l-environnement-en-republique-du",
+   "kind": "loi",
+   "number": "2026-15",
+   "date": "2026-07-23",
+   "title": "Loi n° 2026-15 du 23 juillet 2026 portant loi sur l'environnement en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben247950.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 138
+  },
+  {
+   "id": "lois/204/2024-09-loi-n-2024-09-du-20-fevrier-204-portant-loi-cadre",
+   "kind": "loi",
+   "number": "2024-09",
+   "date": "0204-02-20",
+   "title": "Loi n° 2024-09 du 20 février 204 portant loi-cadre sur la planification du développement et sur l'évaluation des politiques publiques en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben237537.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 54
   }
  ]
 }
