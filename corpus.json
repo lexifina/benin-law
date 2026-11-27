@@ -404,6 +404,16 @@
    "articles": 10
   },
   {
+   "id": "arretes/2018/2018-02-fixant-les-modalites-de-gestion-des-stocks-a-la",
+   "kind": "arrete",
+   "number": "2018-02",
+   "date": "2018-04-25",
+   "title": "Arrêté n° 2018-02 du 25 avril 2018 fixant les modalités de gestion des stocks à la Présidence de la République",
+   "source": "https://sgg.gouv.bj/doc/arrete-2018-002/download",
+   "text_layer": "publisher-ocr",
+   "articles": 4
+  },
+  {
    "id": "codes/code-d-ethique-et-de-deontologie-pour-la-recherche-en-sante",
    "kind": "loi",
    "number": "2010-40",
@@ -3284,6 +3294,26 @@
    "articles": 18
   },
   {
+   "id": "lois/1960/1960-24-fixant-la-liste-des-taxes-regionales-le-mode-d",
+   "kind": "loi",
+   "number": "1960-24",
+   "date": "1960-07-13",
+   "title": "Loi n° 1960-24 du 13 juillet 1960 fixant la liste des taxes régionales, le mode d'assiette et de perception et leur taux",
+   "source": "https://faolex.fao.org/docs/pdf/ben17510.pdf",
+   "text_layer": "born-digital",
+   "articles": 13
+  },
+  {
+   "id": "lois/1962/1963-05-portant-loi-sur-le-recrutement",
+   "kind": "loi",
+   "number": "1963-05",
+   "date": "1962-06-26",
+   "title": "Loi n° 1963-05 du 26 juin 1962 Portant loi sur le recrutement",
+   "source": "https://sgg.gouv.bj/doc/loi-1963-5/download",
+   "text_layer": "publisher-ocr",
+   "articles": 9
+  },
+  {
    "id": "lois/1984/1984-09-sur-le-controle-des-denrees-alimentaires",
    "kind": "loi",
    "number": "1984-09",
@@ -3292,6 +3322,36 @@
    "source": "https://faolex.fao.org/docs/pdf/ben86098.pdf",
    "text_layer": "publisher-ocr",
    "articles": 20
+  },
+  {
+   "id": "lois/1986/1986-04-portant-modification-de-la-loi-n81-003-du-23-mars",
+   "kind": "loi",
+   "number": "1986-04",
+   "date": "1986-02-26",
+   "title": "Loi n° 1986-04 du 26 février 1986 Portant modification de la Loi N°81-003 du 23 Mars 1981 relative au Conseil National de la Comptabilité",
+   "source": "https://sgg.gouv.bj/doc/loi-1986-004/download",
+   "text_layer": "publisher-ocr",
+   "articles": 4
+  },
+  {
+   "id": "lois/1986/1986-05-relative-au-contentieux-des-infractions-au",
+   "kind": "loi",
+   "number": "1986-05",
+   "date": "1986-02-26",
+   "title": "Loi n° 1986-05 du 26 février 1986 Relative au Contentieux des Infractions au Contrôle des Changes",
+   "source": "https://sgg.gouv.bj/doc/loi-1986-005/download",
+   "text_layer": "publisher-ocr",
+   "articles": 7
+  },
+  {
+   "id": "lois/1986/1986-09-portant-institution-d-une-cour-criminelle-d",
+   "kind": "loi",
+   "number": "1986-09",
+   "date": "1986-02-26",
+   "title": "Loi n° 1986-09 du 26 février 1986 Portant institution d'une Cour Criminelle d'Exception",
+   "source": "https://sgg.gouv.bj/doc/loi-1986-009/download",
+   "text_layer": "publisher-ocr",
+   "articles": 1
   },
   {
    "id": "lois/1987/1987-09-relative-a-la-repression-des-infractions-en",
@@ -3304,6 +3364,46 @@
    "articles": 20
   },
   {
+   "id": "lois/1987/1987-11-abrogeant-l-article-264-nouveau-du-code-penal-et",
+   "kind": "loi",
+   "number": "1987-11",
+   "date": "1987-09-21",
+   "title": "Loi n° 1987-11 du 21 septembre 1987 abrogeant l'article 264 (nouveau) du Code Pénal et portant répression de certaines pratiques rétrogrades",
+   "source": "https://sgg.gouv.bj/doc/loi-1987-011/download",
+   "text_layer": "publisher-ocr",
+   "articles": 2
+  },
+  {
+   "id": "lois/1987/1987-14-portant-reglementation-de-la-protection-de-la",
+   "kind": "loi",
+   "number": "1987-14",
+   "date": "1987-09-21",
+   "title": "Loi n° 1987-14 du 21 septembre 1987 portant réglementation de la protection de la nature et de l'exercice de la chasse en République Populaire du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben4577.pdf",
+   "text_layer": "born-digital",
+   "articles": 60
+  },
+  {
+   "id": "lois/1987/1987-20-portant-creation-de-l-ordre-du-merite-agricole",
+   "kind": "loi",
+   "number": "1987-20",
+   "date": "1987-09-21",
+   "title": "Loi n° 1987-20 du 21 septembre 1987 portant création de l'Ordre du Mérite Agricole",
+   "source": "https://sgg.gouv.bj/doc/loi-1987-020/download",
+   "text_layer": "publisher-ocr",
+   "articles": 4
+  },
+  {
+   "id": "lois/1987/1987-21-portant-modification-de-l-article-28-de-la-loi",
+   "kind": "loi",
+   "number": "1987-21",
+   "date": "1987-09-21",
+   "title": "Loi n° 1987-21 du 21 septembre 1987 portant modification de l'article 28 de la Loi N°83-005 du 17 mai 1983 portant Statut de la Magistrature Béninoise",
+   "source": "https://sgg.gouv.bj/doc/loi-1987-021/download",
+   "text_layer": "publisher-ocr",
+   "articles": 0
+  },
+  {
    "id": "lois/1989/1989-04-portant-institution-de-la-commission-beninoise",
    "kind": "loi",
    "number": "1989-04",
@@ -3312,6 +3412,136 @@
    "source": "https://faolex.fao.org/docs/pdf/ben206451.pdf",
    "text_layer": "publisher-ocr",
    "articles": 13
+  },
+  {
+   "id": "lois/1989/1989-11-portant-creation-d-un-privilege-au-profit-de-la",
+   "kind": "loi",
+   "number": "1989-11",
+   "date": "1989-05-12",
+   "title": "Loi n° 1989-11 du 12 mai 1989 portant création d'un privilège au profit de la caisse nationale de crédit agricole - liquidation et organisation de la procédure en matière de recouvrement de ses créances sur le secteur privé",
+   "source": "https://sgg.gouv.bj/doc/loi-1989-011/download",
+   "text_layer": "publisher-ocr",
+   "articles": 1
+  },
+  {
+   "id": "lois/1989/1989-13-rendant-executoire-en-republique-populaire-du",
+   "kind": "loi",
+   "number": "1989-13",
+   "date": "1989-05-12",
+   "title": "Loi n° 1989-13 du 12 mai 1989 rendant exécutoire en République Populaire du Bénin la nomenclature tarifaire et statistique de la Communauté Economique de l'Afrique de l'Ouest (NTS/CEAO) et la Décision Globale N\" 12/87/CM du 10 Septembre 1987 fixant les taux de la Taxe de Coopération Régionale (TCR) applicables aux produits industriels déjà bénéficiaires de ce régime à l’importation en République Populaire du Bénin",
+   "source": "https://sgg.gouv.bj/doc/loi-1989-013/download",
+   "text_layer": "publisher-ocr",
+   "articles": 0
+  },
+  {
+   "id": "lois/1989/1989-18-portant-amendement-et-approbation-de-la-decision",
+   "kind": "loi",
+   "number": "1989-18",
+   "date": "1989-05-12",
+   "title": "Loi n° 1989-18 du 12 mai 1989 portant amendement et approbation de la Décision-Loi N°89-004/ANR/CP du 06 avril 1989, portant modification des dispositions des articles 3 et 38 de l'ordonnance N°73-3 du 17 janvier 1973 portant création et organisation de l'office béninois de sécurité sociale",
+   "source": "https://sgg.gouv.bj/doc/loi-1989-018/download",
+   "text_layer": "publisher-ocr",
+   "articles": 0
+  },
+  {
+   "id": "lois/1989/1989-19-portant-amendement-et-approbation-de-la-decision",
+   "kind": "loi",
+   "number": "1989-19",
+   "date": "1989-05-12",
+   "title": "Loi n° 1989-19 du 12 mai 1989 portant amendement et approbation de la Décision-Loi N°89-005/ANR/CP du 06 avril 1989 modifiant les dispositions des articles 1er, 3, 6, 8, 11 et 20 de la Loi n)86-14 DU 26 SEPTEMBRE 1986 portant Code des Pensions Civiles et Militaires de Retraite",
+   "source": "https://sgg.gouv.bj/doc/loi-1989-019/download",
+   "text_layer": "publisher-ocr",
+   "articles": 2
+  },
+  {
+   "id": "lois/1990/1990-03-portant-remise-en-vigueur-de-la-loi-n64-028-du-09",
+   "kind": "loi",
+   "number": "1990-03",
+   "date": "1990-05-15",
+   "title": "Loi n° 1990-03 du 15 mai 1990 portant remise en vigueur de la Loi N°64-028 du 09 décembre 1964 portant organisation judiciaire",
+   "source": "https://sgg.gouv.bj/doc/loi-1990-003/download",
+   "text_layer": "publisher-ocr",
+   "articles": 0
+  },
+  {
+   "id": "lois/1990/1990-06-portant-abrogation-de-la-loi-organique-n81-009-du",
+   "kind": "loi",
+   "number": "1990-06",
+   "date": "1990-05-15",
+   "title": "Loi n° 1990-06 du 15 mai 1990 portant abrogation de la Loi Organique N°81-009 du 10 Octobre 1981 portant création, organisation, attribution et fonctionnement des organes Locaux du pouvoir d'Etat et de leurs Organes Exécutifs, de la Loi-- N°81-001 du 13 Mars 1981 relative aux élections des Organes Locaux du Pouvoir d'Etat ainsi que du décret N°74-26 du 13 Février 1974, fixant les attributions et prérogatives des Préfets de Province et des Chefs de District et déterminant les services directement placés sous leur autorité",
+   "source": "https://sgg.gouv.bj/doc/loi-1990-006/download",
+   "text_layer": "publisher-ocr",
+   "articles": 0
+  },
+  {
+   "id": "lois/1990/1990-07-portant-dissolution-des-organes-locaux-de-pouvoir",
+   "kind": "loi",
+   "number": "1990-07",
+   "date": "1990-05-15",
+   "title": "Loi n° 1990-07 du 15 mai 1990 portant dissolution des Organes Locaux de Pouvoir d'Etat et de leurs Organes Exécutifs",
+   "source": "https://sgg.gouv.bj/doc/loi-1990-007/download",
+   "text_layer": "publisher-ocr",
+   "articles": 1
+  },
+  {
+   "id": "lois/1990/1990-12-portant-remise-en-vigueur-et-modification-des",
+   "kind": "loi",
+   "number": "1990-12",
+   "date": "1990-06-01",
+   "title": "Loi n° 1990-12 du 1er juin 1990 portant remise en vigueur et modification des Ordonnances N°21/PR du 26 Avril 1966 et 70-16 du 14 Mars 1970 définissant la composition, l’organisation, les attributions et le fonctionnement de la Cour Suprême",
+   "source": "https://sgg.gouv.bj/doc/loi-1990-012/download",
+   "text_layer": "publisher-ocr",
+   "articles": 0
+  },
+  {
+   "id": "lois/1991/1991-01-portant-additif-a-la-loi-organique-n90-027-du-12",
+   "kind": "loi",
+   "number": "1991-01",
+   "date": "1991-01-21",
+   "title": "Loi organique n° 1991-01 du 21 janvier 1991 Portant additif à la loi Organique N°90-027 du 12 Octobre 1990 Portant Organisation du Haut Conseil de la République",
+   "source": "https://sgg.gouv.bj/doc/loi-1991-001/download",
+   "text_layer": "publisher-ocr",
+   "articles": 2
+  },
+  {
+   "id": "lois/1991/1991-04-portant-reglementation-phytosanitaire-en",
+   "kind": "loi",
+   "number": "1991-04",
+   "date": "1991-08-26",
+   "title": "Loi n° 1991-04 du 26 août 1991 portant réglementation phytosanitaire en République du Bénin",
+   "source": "https://faolex.fao.org/docs/pdf/ben2349.pdf",
+   "text_layer": "born-digital",
+   "articles": 44
+  },
+  {
+   "id": "lois/1991/1991-08-portant-charte-des-sports-en-republique-du-benin",
+   "kind": "loi",
+   "number": "1991-08",
+   "date": "1991-02-25",
+   "title": "Loi n° 1991-08 du 25 février 1991 Portant Charte des Sports en République du Bénin",
+   "source": "https://sgg.gouv.bj/doc/loi-1991-008/download",
+   "text_layer": "publisher-ocr",
+   "articles": 12
+  },
+  {
+   "id": "lois/1991/1991-14-portant-loi-de-finances-pour-la-gestion-1991",
+   "kind": "loi",
+   "number": "1991-14",
+   "date": "1991-04-12",
+   "title": "Loi n° 1991-14 du 12 avril 1991 Portant Loi de Finances pour la Gestion 1991",
+   "source": "https://sgg.gouv.bj/doc/loi-1991-014/download",
+   "text_layer": "publisher-ocr",
+   "articles": 5
+  },
+  {
+   "id": "lois/1991/1991-15-portant-programme-national-d-investissement-pour",
+   "kind": "loi",
+   "number": "1991-15",
+   "date": "1991-04-12",
+   "title": "Loi n° 1991-15 du 12 avril 1991 portant Programme National d'Investissement pour l'année 1991",
+   "source": "https://sgg.gouv.bj/doc/loi-91-015/download",
+   "text_layer": "publisher-ocr",
+   "articles": 6
   },
   {
    "id": "lois/1991/1997-35-autorisant-l-adhesion-de-la-republique-du-benin-a",
@@ -3324,6 +3554,96 @@
    "articles": 2
   },
   {
+   "id": "lois/1992/1992-14-portant-autorisation-de-ratification-de-la",
+   "kind": "loi",
+   "number": "1992-14",
+   "date": "1992-07-13",
+   "title": "Loi n° 1992-14 du 13 juillet 1992 Portant autorisation de ratification de la Résolution du Conseil des Gouverneurs du Fonds Monétaire International (FNI) relative au troisième amendement au statut du fonds",
+   "source": "https://sgg.gouv.bj/doc/loi-1992-014/download",
+   "text_layer": "publisher-ocr",
+   "articles": 2
+  },
+  {
+   "id": "lois/1992/1992-29-fixant-les-regles-applicables-aux-organismes-d",
+   "kind": "loi",
+   "number": "1992-29",
+   "date": "1992-08-26",
+   "title": "Loi n° 1992-29 du 26 août 1992 fixant les règles applicables aux Organismes d'assurances et de capitalisation, aux opérations d'assurances, et à la profession d'assurance",
+   "source": "https://sgg.gouv.bj/doc/loi-92-029/download",
+   "text_layer": "publisher-ocr",
+   "articles": 0
+  },
+  {
+   "id": "lois/1992/1992-33-portant-autorisation-de-perception-des-impots-et",
+   "kind": "loi",
+   "number": "1992-33",
+   "date": "1992-12-30",
+   "title": "Loi n° 1992-33 du 30 décembre 1992 Portant autorisation de perception des impôts et taxes et d'exécution des dépenses de l'Etat par douzième provisoire pour la gestion 1993",
+   "source": "https://sgg.gouv.bj/doc/loi-1992-033/download",
+   "text_layer": "publisher-ocr",
+   "articles": 2
+  },
+  {
+   "id": "lois/1992/1992-34-portant-modification-de-la-loi-n-81-014-du-10",
+   "kind": "loi",
+   "number": "1992-34",
+   "date": "1992-12-30",
+   "title": "Loi n° 1992-34 du 30 décembre 1992 portant modification de la Loi n° 81-014 du 10 octobre 1981 portant Statut Général des Personnels Militaires des Forces Armées Béninoises",
+   "source": "https://sgg.gouv.bj/doc/loi-92-034/download",
+   "text_layer": "publisher-ocr",
+   "articles": 0
+  },
+  {
+   "id": "lois/1992/1993-01-portant-loi-de-finances-pour-la-gestion-1993",
+   "kind": "loi",
+   "number": "1993-01",
+   "date": "1992-02-01",
+   "title": "Loi n° 1993-01 du 1er février 1992 Portant Loi de Finances pour la Gestion 1993",
+   "source": "https://sgg.gouv.bj/doc/loi-1993-001/download",
+   "text_layer": "publisher-ocr",
+   "articles": 0
+  },
+  {
+   "id": "lois/1993/1993-02-portant-programme-national-d-investissement-pour",
+   "kind": "loi",
+   "number": "1993-02",
+   "date": "1993-02-01",
+   "title": "Loi n° 1993-02 du 1er février 1993 portant programme National d'Investissement pour l'année 1993",
+   "source": "https://sgg.gouv.bj/doc/loi-93-002/download",
+   "text_layer": "publisher-ocr",
+   "articles": 0
+  },
+  {
+   "id": "lois/1993/1993-03-portant-autorisation-de-ratification-de-l-accord",
+   "kind": "loi",
+   "number": "1993-03",
+   "date": "1993-03-22",
+   "title": "Loi n° 1993-03 du 22 mars 1993 portant autorisation de ratification de l'Accord de Prêt N° F/BEN/AI-MIN/92/26 signé le 8 Octobre 1992 entre la République du Bénin et le Fonds Africain de Développement relatif au financement du Projet d'Appui Institutionnel aux Ministères des Finances, du Plan et de la Restructuration Economique pour un montant de 1 .365.OOO.OOO Frs",
+   "source": "https://sgg.gouv.bj/doc/loi-93-003/download",
+   "text_layer": "publisher-ocr",
+   "articles": 0
+  },
+  {
+   "id": "lois/1993/1993-04-portant-autorisation-de-ratification-de-l-accord",
+   "kind": "loi",
+   "number": "1993-04",
+   "date": "1993-03-22",
+   "title": "Loi n° 1993-04 du 22 mars 1993 portant autorisation de ratification de l'Accord de Prêt n° F BEN/SAN/91/24 signé le 9 Mai 1991 entre la République du Bénin et le Fonds Africain de Développement pour un montant de 3.502.925.000 francs CFA",
+   "source": "https://sgg.gouv.bj/doc/loi-93-004/download",
+   "text_layer": "publisher-ocr",
+   "articles": 0
+  },
+  {
+   "id": "lois/1993/1993-06-portant-autorisation-de-ratification-de-l-accord",
+   "kind": "loi",
+   "number": "1993-06",
+   "date": "1993-03-29",
+   "title": "Loi n° 1993-06 du 29 mars 1993 portant autorisation de ratification de l'Accord de crédit N° F/BEN/ROD/92/27 signé le 08 Octobre 1992 entre la République du Bénin et le Fonds Africain de Développement (FAD) relatif au financement du Projet Aménagement des Voies d'accès et de la traversée de la Ville de COTONOU pour un montant de 13.000.000 UC/FAD soit environ 4.550.000.000 Francs CFA",
+   "source": "https://sgg.gouv.bj/doc/loi-93-006/download",
+   "text_layer": "publisher-ocr",
+   "articles": 0
+  },
+  {
    "id": "lois/1993/1993-07-portant-amendement-de-la-loi-n-90-005-du-15",
    "kind": "loi",
    "number": "1993-07",
@@ -3334,12 +3654,102 @@
    "articles": 2
   },
   {
+   "id": "lois/1993/1993-08-portant-autorisation-de-ratification-de-l-accord",
+   "kind": "loi",
+   "number": "1993-08",
+   "date": "1993-03-29",
+   "title": "Loi n° 1993-08 du 29 mars 1993 portant autorisation de ratification de l'Accord de Prêt signé le 11 Novembre 1992 entre la République du Bénin et la Banque Islamique de Développement (BID) dans le cadre du financement du projet de construction et d'équipement des Centres de Santé dans les zones rurales en République du Bénin pour un montant de 4.620.000 DI soit environ 1,775 milliard de Francs CFA",
+   "source": "https://sgg.gouv.bj/doc/loi-93-008/download",
+   "text_layer": "publisher-ocr",
+   "articles": 0
+  },
+  {
+   "id": "lois/1993/1993-09-portant-regime-des-forets-en-republique-du-benin",
+   "kind": "loi",
+   "number": "1993-09",
+   "date": "1993-07-02",
+   "title": "Loi n° 1993-09 du 2 juillet 1993 Portant régime des Forêts en République du Bénin",
+   "source": "https://sgg.gouv.bj/doc/loi-1993-009/download",
+   "text_layer": "publisher-ocr",
+   "articles": 82
+  },
+  {
+   "id": "lois/1993/1993-10-statut-special-des-personnels-de-la-police",
+   "kind": "loi",
+   "number": "1993-10",
+   "date": "1993-08-04",
+   "title": "Loi n° 1993-10 du 4 août 1993 Statut spécial des personnels de la Police Nationale",
+   "source": "https://sgg.gouv.bj/doc/loi-1993-010/download",
+   "text_layer": "publisher-ocr",
+   "articles": 61
+  },
+  {
+   "id": "lois/1993/1993-12-portant-extension-de-la-loi-n-90-028-du-09",
+   "kind": "loi",
+   "number": "1993-12",
+   "date": "1993-08-03",
+   "title": "Loi n° 1993-12 du 3 août 1993 portant extension de la Loi N° 90-028 du 09 Octobre 1990 portant amnistie aux faits visés dans l'Ordonnance N° 72-57 du 02 Décembre 1972",
+   "source": "https://sgg.gouv.bj/doc/loi-93-012/download",
+   "text_layer": "publisher-ocr",
+   "articles": 0
+  },
+  {
+   "id": "lois/1993/1993-14-portant-autorisation-de-ratification-de-l-accord",
+   "kind": "loi",
+   "number": "1993-14",
+   "date": "1993-09-28",
+   "title": "Loi n° 1993-14 du 28 septembre 1993 portant autorisation de ratification de l’Accord de Crédit N° 2338 –BEN signé le 11 Mai 1992 entre la République du Bénin et l'Association Internationale de Développement (AID) et de l'Avenant à l'Accord de Crédit de Développement signé le 3 Août 1993 et relatifs au projet de Réhabilitation et de Gestion Urbaines (PRGU)",
+   "source": "https://sgg.gouv.bj/doc/loi-93-014/download",
+   "text_layer": "publisher-ocr",
+   "articles": 0
+  },
+  {
+   "id": "lois/1993/1993-16-portant-autorisation-de-ratification-du-traite",
+   "kind": "loi",
+   "number": "1993-16",
+   "date": "1993-09-28",
+   "title": "Loi n° 1993-16 du 28 septembre 1993 portant autorisation de ratification du traité instituant une organisation intégrée de l'Industrie des Assurances dans les Etats Africains",
+   "source": "https://sgg.gouv.bj/doc/loi-93-016/download",
+   "text_layer": "publisher-ocr",
+   "articles": 0
+  },
+  {
+   "id": "lois/1993/1993-19-portant-autorisation-de-ratification-de-l-accord",
+   "kind": "loi",
+   "number": "1993-19",
+   "date": "1993-09-28",
+   "title": "Loi n° 1993-19 du 28 septembre 1993 portant autorisation de ratification de l'Accord entre le Gouvernement de la République du Bénin et le Gouvernement de la République Populaire de Chine sur l'exemption mutuelle de visa",
+   "source": "https://sgg.gouv.bj/doc/loi-93-019/download",
+   "text_layer": "publisher-ocr",
+   "articles": 0
+  },
+  {
    "id": "lois/1993/1993-20-portant-autorisation-de-ratification-de-la",
    "kind": "loi",
    "number": "1993-20",
    "date": "1993-12-02",
    "title": "Loi n° 1993-20 du 2 décembre 1993 portant autorisation de ratification de la Convention-cadre des Nations-Unies sur les Changements Climatiques signée le 13 Juin 1992 à Rio de Janeiro",
    "source": "https://faolex.fao.org/docs/pdf/ben182946.pdf",
+   "text_layer": "publisher-ocr",
+   "articles": 0
+  },
+  {
+   "id": "lois/1993/1993-21-portant-autorisation-de-ratification-de-la",
+   "kind": "loi",
+   "number": "1993-21",
+   "date": "1993-12-02",
+   "title": "Loi n° 1993-21 du 2 décembre 1993 portant autorisation de ratification de la Convention sur la diversité biologique signée le 13 Juin 1992 à Rio de Janeiro",
+   "source": "https://sgg.gouv.bj/doc/loi-93-021/download",
+   "text_layer": "publisher-ocr",
+   "articles": 0
+  },
+  {
+   "id": "lois/1993/1993-22-portant-autorisation-de-ratification-de-la",
+   "kind": "loi",
+   "number": "1993-22",
+   "date": "1993-12-13",
+   "title": "Loi n° 1993-22 du 13 décembre 1993 portant autorisation de ratification de la Convention relative à la circulation et au séjour des personnes entre le Bénin et la France",
+   "source": "https://sgg.gouv.bj/doc/loi-93-022/download",
    "text_layer": "publisher-ocr",
    "articles": 0
   },
@@ -3374,6 +3784,46 @@
    "articles": 2
   },
   {
+   "id": "lois/1994/1994-21-portant-transfert-de-competence-relative-a-l",
+   "kind": "loi",
+   "number": "1994-21",
+   "date": "1994-12-16",
+   "title": "Loi n° 1994-21 du 16 décembre 1994 portant transfert de compétence relative à l'Administration des personnels des Eaux-Forêt et chasse et ceux des douanes et droits indirects",
+   "source": "https://sgg.gouv.bj/doc/loi-1994-021/download",
+   "text_layer": "publisher-ocr",
+   "articles": 1
+  },
+  {
+   "id": "lois/1994/1994-22-autorisant-la-ratification-de-l-accord-de-credit",
+   "kind": "loi",
+   "number": "1994-22",
+   "date": "1994-12-16",
+   "title": "Loi n° 1994-22 du 16 décembre 1994 autorisant la ratification de l'Accord de Crédit de Développement N° 2601/BEN signé le 06 Mai 1994 entre la République du Bénin et l'Association Internationale de Développement (AID) relatif au financement du Projet d'Interventions Locales pour la sécurité Alimentaire(PILSA)",
+   "source": "https://sgg.gouv.bj/doc/loi-94-022/download",
+   "text_layer": "publisher-ocr",
+   "articles": 2
+  },
+  {
+   "id": "lois/1994/1994-30-portant-mise-en-conformite-de-la-loi-n94-013",
+   "kind": "loi",
+   "number": "1994-30",
+   "date": "1994-01-17",
+   "title": "Loi n° 1994-30 du 17 janvier 1994 portant mise en conformité de la loi N°94-013 fixant les règles générales pour les élections du président de la République et des membres de l'Assemblée Nationale avec Décision DCC 34-94 des 22 et 23/12/1994",
+   "source": "https://sgg.gouv.bj/doc/loi-1994-030/download",
+   "text_layer": "publisher-ocr",
+   "articles": 0
+  },
+  {
+   "id": "lois/1995/1994-15-definissant-les-regles-particulieres-pour-l",
+   "kind": "loi",
+   "number": "1994-15",
+   "date": "1995-01-27",
+   "title": "Loi n° 1994-15 du 27 janvier 1995 définissant les règles particulières pour l'Election des Membres de l'Assemblée Nationale",
+   "source": "https://sgg.gouv.bj/doc/loi-94-015/download",
+   "text_layer": "publisher-ocr",
+   "articles": 14
+  },
+  {
    "id": "lois/1995/1995-07-portant-autorisation-d-adhesion-a-la-convention",
    "kind": "loi",
    "number": "1995-07",
@@ -3382,6 +3832,16 @@
    "source": "https://sgg.gouv.bj/doc/loi-1995-7/download",
    "text_layer": "publisher-ocr",
    "articles": 2
+  },
+  {
+   "id": "lois/1996/1994-29-portant-reorganisation-de-l-ordre-national-du",
+   "kind": "loi",
+   "number": "1994-29",
+   "date": "1996-06-03",
+   "title": "Loi n° 1994-29 du 3 juin 1996 portant réorganisation de l'Ordre National du Bénin",
+   "source": "https://sgg.gouv.bj/doc/loi-1994-029/download",
+   "text_layer": "publisher-ocr",
+   "articles": 0
   },
   {
    "id": "lois/1996/1996-03-autorisant-la-ratification-de-l-accord-de-pret",
@@ -3884,6 +4344,26 @@
    "articles": 2
   },
   {
+   "id": "lois/1999/1993-13-portant-loi-organique-de-la-haute-cour-de-justice",
+   "kind": "loi",
+   "number": "1993-13",
+   "date": "1999-08-10",
+   "title": "Loi n° 1993-13 du 10 août 1999 portant Loi Organique de la Haute Cour de Justice",
+   "source": "https://sgg.gouv.bj/doc/loi-93-013/download",
+   "text_layer": "publisher-ocr",
+   "articles": 9
+  },
+  {
+   "id": "lois/1999/1994-27-relative-au-conseil-superieur-de-la-magistrature",
+   "kind": "loi",
+   "number": "1994-27",
+   "date": "1999-03-18",
+   "title": "Loi organique n° 1994-27 du 18 mars 1999 relative au conseil supérieur de la magistrature",
+   "source": "https://sgg.gouv.bj/doc/loi-1994-027/download",
+   "text_layer": "publisher-ocr",
+   "articles": 12
+  },
+  {
    "id": "lois/1999/1997-28-portant-organisation-de-l-administration",
    "kind": "loi",
    "number": "1997-28",
@@ -4282,6 +4762,16 @@
    "source": "https://sgg.gouv.bj/doc/loi-2000-15/download",
    "text_layer": "publisher-ocr",
    "articles": 2
+  },
+  {
+   "id": "lois/2001/1991-09-portant-loi-organique-sur-la-cour",
+   "kind": "loi",
+   "number": "1991-09",
+   "date": "2001-05-31",
+   "title": "Loi n° 1991-09 du 31 mai 2001 portant Loi Organique sur la Cour Constitutionnelle",
+   "source": "https://sgg.gouv.bj/doc/loi-91-009/download",
+   "text_layer": "publisher-ocr",
+   "articles": 71
   },
   {
    "id": "lois/2001/1999-08-portant-modification-de-l-article-32-de-la-loi-n",
@@ -7362,6 +7852,626 @@
    "source": "https://faolex.fao.org/docs/pdf/ben237537.pdf",
    "text_layer": "publisher-ocr",
    "articles": 54
+  },
+  {
+   "id": "ordonnances/1963/1963-07-relative-a-la-revision-exceptionnelle-des-listes",
+   "kind": "ordonnance",
+   "number": "1963-07",
+   "date": "1963-11-08",
+   "title": "Ordonnance n° 1963-07 du 8 novembre 1963 Relative à la révision exceptionnelle des listes électorales",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1963-7/download",
+   "text_layer": "publisher-ocr",
+   "articles": 8
+  },
+  {
+   "id": "ordonnances/1966/1966-38-portant-autorisation-d-ouverture-dans-les",
+   "kind": "ordonnance",
+   "number": "1966-38",
+   "date": "1966-08-26",
+   "title": "Ordonnance n° 1966-38 du 26 août 1966 Portant autorisation d'ouverture dans les écritures de la Banque Centrale d'un Compte Spécial Provisoire (CAA)",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1966-38/download",
+   "text_layer": "publisher-ocr",
+   "articles": 1
+  },
+  {
+   "id": "ordonnances/1970/1970-50-portant-ratification-de-la-convention-relative-a",
+   "kind": "ordonnance",
+   "number": "1970-50",
+   "date": "1970-11-18",
+   "title": "Ordonnance n° 1970-50 du 18 novembre 1970 portant ratification de la Convention relative à la création d'un centre Régional de l'Enseignement et de l'Apprentissage Maritime en Cote- d'Ivoire en date du 31 juillet 1970",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1970-50/download",
+   "text_layer": "publisher-ocr",
+   "articles": 0
+  },
+  {
+   "id": "ordonnances/1971/1971-25-portant-acceptation-de-l-acte-constitutif-de-l",
+   "kind": "ordonnance",
+   "number": "1971-25",
+   "date": "1971-06-24",
+   "title": "Ordonnance n° 1971-25 du 24 juin 1971 portant acceptation de l'Acte Constitutif de l'Association pour le développement de la Riziculture en Afrique de l'Ouest fait à Dakar le 4 Septembre 1970",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1971-25/download",
+   "text_layer": "publisher-ocr",
+   "articles": 2
+  },
+  {
+   "id": "ordonnances/1972/1972-23-portant-statut-general-de-la-fonction-publique",
+   "kind": "ordonnance",
+   "number": "1972-23",
+   "date": "1972-07-24",
+   "title": "Ordonnance n° 1972-23 du 24 juillet 1972 Portant Statut Général de la Fonction Publique",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1972-23/download",
+   "text_layer": "publisher-ocr",
+   "articles": 6
+  },
+  {
+   "id": "ordonnances/1973/1973-50-portant-approbation-de-la-convention-d",
+   "kind": "ordonnance",
+   "number": "1973-50",
+   "date": "1973-06-15",
+   "title": "Ordonnance n° 1973-50 du 15 juin 1973 Portant approbation de la convention d'établissement signée Cotonou le 14 juin 1973 entre la République du Dahomey, la Société Nationale de raffinage et le Groupe Européen",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1973-50/download",
+   "text_layer": "publisher-ocr",
+   "articles": 5
+  },
+  {
+   "id": "ordonnances/1973/1973-53-organisant-l-assistance-judiciaire",
+   "kind": "ordonnance",
+   "number": "1973-53",
+   "date": "1973-08-02",
+   "title": "Ordonnance n° 1973-53 du 2 août 1973 organisant l'assistance judiciaire",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1973-53/download",
+   "text_layer": "publisher-ocr",
+   "articles": 0
+  },
+  {
+   "id": "ordonnances/1973/1973-67-portant-reglementation-du-commerce-import-export",
+   "kind": "ordonnance",
+   "number": "1973-67",
+   "date": "1973-09-27",
+   "title": "Ordonnance n° 1973-67 du 27 septembre 1973 portant réglementation du commerce import-export de diamant et autres substances précieuse et semi-précieuses",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1973-67/download",
+   "text_layer": "publisher-ocr",
+   "articles": 10
+  },
+  {
+   "id": "ordonnances/1974/1974-79-portant-prise-en-charge-par-l-etat-de-la-banque",
+   "kind": "ordonnance",
+   "number": "1974-79",
+   "date": "1974-12-20",
+   "title": "Ordonnance n° 1974-79 du 20 décembre 1974 portant prise en charge par l'Etat de la Banque Dahoméenne de Développement (B.D.D.)",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1974-79/download",
+   "text_layer": "publisher-ocr",
+   "articles": 2
+  },
+  {
+   "id": "ordonnances/1975/1975-59-portant-approbation-des-statuts-de-la-caisse",
+   "kind": "ordonnance",
+   "number": "1975-59",
+   "date": "1975-08-22",
+   "title": "Ordonnance n° 1975-59 du 22 août 1975 Portant approbation des Statuts de la Caisse Nationale de Crédit Agricole (CNCA)",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1975-59/download",
+   "text_layer": "publisher-ocr",
+   "articles": 12
+  },
+  {
+   "id": "ordonnances/1976/1976-64-portant-ratification-de-l-accord-international",
+   "kind": "ordonnance",
+   "number": "1976-64",
+   "date": "1976-12-17",
+   "title": "Ordonnance n° 1976-64 du 17 décembre 1976 portant ratification de l'Accord International 1976 sur le Café",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1976-64/download",
+   "text_layer": "publisher-ocr",
+   "articles": 3
+  },
+  {
+   "id": "ordonnances/1977/1977-23-portant-ratification-de-la-convention-consulaire",
+   "kind": "ordonnance",
+   "number": "1977-23",
+   "date": "1977-06-04",
+   "title": "Ordonnance n° 1977-23 du 4 juin 1977 portant ratification de la Convention Consulaire entre la République Populaire du Bénin et l'Union des Républiques Socialistes Soviétiques signés à Cotonou le 16 décembre 1976",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1977-23/download",
+   "text_layer": "publisher-ocr",
+   "articles": 4
+  },
+  {
+   "id": "ordonnances/1977/1977-25-portant-approbation-du-contrat-entre-la",
+   "kind": "ordonnance",
+   "number": "1977-25",
+   "date": "1977-07-01",
+   "title": "Ordonnance n° 1977-25 du 1er juillet 1977 portant approbation du Contrat entre la République Populaire du Bénin et la Société Nationale des Ciments (SONACI) relatif à la construction d'une usine de broyage de clinker à Cotonou signé à Cotonou le 16 juin 1977",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1977-25/download",
+   "text_layer": "publisher-ocr",
+   "articles": 0
+  },
+  {
+   "id": "ordonnances/1977/1977-36-relative-au-paiement-du-01-janvier-au-31-decembre",
+   "kind": "ordonnance",
+   "number": "1977-36",
+   "date": "1977-09-26",
+   "title": "Ordonnance n° 1977-36 du 26 septembre 1977 relative au paiement du 01 janvier au 31 décembre 1977, du traitement ou solde d'activité aux ayants-droit des martyrs de la Révolution tombés au champ d'honneur lors de l'ignoble, lâche et barbare agression impérialiste du 16 janvier 1977",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1977-36/download",
+   "text_layer": "publisher-ocr",
+   "articles": 0
+  },
+  {
+   "id": "ordonnances/1978/1978-15-portant-ratification-de-l-accord-relatif-au",
+   "kind": "ordonnance",
+   "number": "1978-15",
+   "date": "1978-04-28",
+   "title": "Ordonnance n° 1978-15 du 28 avril 1978 portant ratification de l'Accord relatif au troisième prêt danois de 50 millions de couronnes danoises signé entre la République Populaire du Bénin et le Royaume du Danemark le 01 mars 1978, à BONN",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1978-15/download",
+   "text_layer": "publisher-ocr",
+   "articles": 1
+  },
+  {
+   "id": "ordonnances/1978/1978-18-fixant-le-nombre-et-les-modalites-d-election-des",
+   "kind": "ordonnance",
+   "number": "1978-18",
+   "date": "1978-05-30",
+   "title": "Ordonnance n° 1978-18 du 30 mai 1978 fixant le nombre et les modalités d'élection des Commissaires du Peuple à l'Assemblée Nationale Révolutionnaire",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1978-18/download",
+   "text_layer": "publisher-ocr",
+   "articles": 4
+  },
+  {
+   "id": "ordonnances/1978/1978-42-portant-ratification-du-premier-amendement-a-l",
+   "kind": "ordonnance",
+   "number": "1978-42",
+   "date": "1978-12-16",
+   "title": "Ordonnance n° 1978-42 du 16 décembre 1978 portant ratification du premier amendement à l'accord de prêt n°625 T 015 signé le 17 Mars 1977 entre le Fonds d'Entraide et de Garantie des Emprunts du Conseil de l'Entente, les Etats Membres et les Etats-Unis d'Amérique",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1978-42/download",
+   "text_layer": "publisher-ocr",
+   "articles": 0
+  },
+  {
+   "id": "ordonnances/1979/1979-11-portant-ratification-du-projet-amende-de",
+   "kind": "ordonnance",
+   "number": "1979-11",
+   "date": "1979-02-26",
+   "title": "Ordonnance n° 1979-11 du 26 février 1979 portant ratification du projet Amendé de Protocole de Non-Agression et de la Convention Générale sur les Privilèges et Immunités de la CEDEAO signés le 22 Avril 1978 à LAGOS (Nigéria)",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1979-11/download",
+   "text_layer": "publisher-ocr",
+   "articles": 4
+  },
+  {
+   "id": "ordonnances/1979/1979-16-portant-approbation-de-la-convention-d",
+   "kind": "ordonnance",
+   "number": "1979-16",
+   "date": "1979-04-20",
+   "title": "Ordonnance n° 1979-16 du 20 avril 1979 portant approbation de la convention d'établissement de l'Huilerie Mixte de Bohicon de la Société Nationale pour l'Industrie des Corps Gras (SONICOG)",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1979-16/download",
+   "text_layer": "publisher-ocr",
+   "articles": 1
+  },
+  {
+   "id": "ordonnances/1979/1979-37-portant-approbation-de-la-convention-d",
+   "kind": "ordonnance",
+   "number": "1979-37",
+   "date": "1979-08-17",
+   "title": "Ordonnance n° 1979-37 du 17 août 1979 portant approbation de la Convention d'établissement de la Société des Ciments d'ONIGBOLO (S C O )",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1979-37/download",
+   "text_layer": "publisher-ocr",
+   "articles": 3
+  },
+  {
+   "id": "ordonnances/1979/1979-49-portant-reglementation-et-repartition-des",
+   "kind": "ordonnance",
+   "number": "1979-49",
+   "date": "1979-09-13",
+   "title": "Ordonnance n° 1979-49 du 13 septembre 1979 portant réglementation et répartition des cargaisons en provenance ou a destination de la République Populaire du Bénin",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1979-49/download",
+   "text_layer": "publisher-ocr",
+   "articles": 2
+  },
+  {
+   "id": "ordonnances/1980/1980-10-portant-creation-de-la-caisse-centrale-de",
+   "kind": "ordonnance",
+   "number": "1980-10",
+   "date": "1980-02-11",
+   "title": "Ordonnance n° 1980-10 du 11 février 1980 Portant création de la Caisse Centrale de Financement",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1980-10/download",
+   "text_layer": "publisher-ocr",
+   "articles": 0
+  },
+  {
+   "id": "ordonnances/1990/1990-04-portant-creation-du-haut-conseil-de-la-republique",
+   "kind": "ordonnance",
+   "number": "1990-04",
+   "date": "1990-03-01",
+   "title": "Ordonnance n° 1990-04 du 1er mars 1990 portant création du Haut Conseil de la République",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1990-4/download",
+   "text_layer": "publisher-ocr",
+   "articles": 1
+  },
+  {
+   "id": "ordonnances/1992/1992-17-portant-composition-attributions-et",
+   "kind": "ordonnance",
+   "number": "1992-17",
+   "date": "1992-07-27",
+   "title": "Ordonnance n° 1992-17 du 27 juillet 1992 portant composition, attributions et fonctionnement du Cabinet du Président de la République",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1992-17/download",
+   "text_layer": "publisher-ocr",
+   "articles": 1
+  },
+  {
+   "id": "ordonnances/1993/1993-10-portant-reglement-financier-de-la-cour-supreme",
+   "kind": "ordonnance",
+   "number": "1993-10",
+   "date": "1993-08-09",
+   "title": "Ordonnance n° 1993-10 du 9 août 1993 Portant règlement financier de la Cour Suprême",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1993-10/download",
+   "text_layer": "publisher-ocr",
+   "articles": 11
+  },
+  {
+   "id": "ordonnances/1994/1994-01-portant-loi-de-finances-pour-la-gestion-1994",
+   "kind": "ordonnance",
+   "number": "1994-01",
+   "date": "1994-09-16",
+   "title": "Ordonnance n° 1994-01 du 16 septembre 1994 Portant Loi de Finances pour la Gestion 1994",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1994-001/download",
+   "text_layer": "publisher-ocr",
+   "articles": 4
+  },
+  {
+   "id": "ordonnances/1996/1996-01-portant-autorisation-de-ratification-de-i-accord",
+   "kind": "ordonnance",
+   "number": "1996-01",
+   "date": "1996-01-31",
+   "title": "Ordonnance n° 1996-01 du 31 janvier 1996 portant autorisation de ratification de I'Accord de crédit N° 2727 /BEN relatif au troisième Programme d'Ajustement Structurel signé entre la république du BENIN et I'Association Internationale de Développement le 8 juin 1995",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1996-01-bis/download",
+   "text_layer": "publisher-ocr",
+   "articles": 0
+  },
+  {
+   "id": "ordonnances/1996/1996-02-portant-nomination-de-monsieur-alladaye-ignace-en",
+   "kind": "ordonnance",
+   "number": "1996-02",
+   "date": "1996-02-28",
+   "title": "Ordonnance n° 1996-02 du 28 février 1996 PORTANT NOMINATION DE MONSIEUR ALLADAYE Ignace EN QUALITÉ DE CHEF DE LA SECTION ADMINISTRATIVE ET DU PERSONNEL DU CABINET DU PRÉSIDENT DE LA COUR SUPRÊME",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1996-02-bis/download",
+   "text_layer": "publisher-ocr",
+   "articles": 1
+  },
+  {
+   "id": "ordonnances/1996/1996-03-portant-nomination-de-monsieur-avocevou-lucien-en",
+   "kind": "ordonnance",
+   "number": "1996-03",
+   "date": "1996-02-28",
+   "title": "Ordonnance n° 1996-03 du 28 février 1996 PORTANT NOMINATION DE MONSIEUR AVOCEVOU Lucien EN QUALITÉ DE GARDE DE CORPS DU PRÉSIDENT DE LA COUR SUPRÊME",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1996-03-bis/download",
+   "text_layer": "publisher-ocr",
+   "articles": 1
+  },
+  {
+   "id": "ordonnances/1996/1996-04-portant-nomination-de-monsieur-akakpo-maxime",
+   "kind": "ordonnance",
+   "number": "1996-04",
+   "date": "1996-02-28",
+   "title": "Ordonnance n° 1996-04 du 28 février 1996 PORTANT NOMINATION DE MONSIEUR AKAKPO Maxime Bruno EN QUALITÉ DE VERIFICATEUR A LA CHAMBRE DES COMPTES DE LA COUR SUPRÊME",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1996-04-bis/download",
+   "text_layer": "publisher-ocr",
+   "articles": 3
+  },
+  {
+   "id": "ordonnances/1996/1996-10-mettant-fin-aux-fonctions-de-monsieur-mehissou-d",
+   "kind": "ordonnance",
+   "number": "1996-10",
+   "date": "1996-02-29",
+   "title": "Ordonnance n° 1996-10 du 29 février 1996 Mettant fin aux fonctions de Monsieur MEHISSOU D. Mathieu, Administrateur de l'Action Culturelle, précédemment chargé de mission du Président de la Cour Suprême, Chef du Service Documentation",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1996-10/download",
+   "text_layer": "publisher-ocr",
+   "articles": 0
+  },
+  {
+   "id": "ordonnances/1996/1996-21-mettant-fin-aux-fonctions-de-monsieur-akanni",
+   "kind": "ordonnance",
+   "number": "1996-21",
+   "date": "1996-09-13",
+   "title": "Ordonnance n° 1996-21 du 13 septembre 1996 Mettant fin aux fonctions de Monsieur AKANNI Franck Arthur en qualité de Chargé de mission du Président de la Cour Suprême",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1996-21/download",
+   "text_layer": "publisher-ocr",
+   "articles": 1
+  },
+  {
+   "id": "ordonnances/1996/1996-22-portant-creation-organisation-attributions-et",
+   "kind": "ordonnance",
+   "number": "1996-22",
+   "date": "1996-09-23",
+   "title": "Ordonnance n° 1996-22 du 23 septembre 1996 Portant création, organisation, attributions et fonctionnement de la Direction de Documentation et d'Etudes (D.D.E.)",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1996-22/download",
+   "text_layer": "publisher-ocr",
+   "articles": 6
+  },
+  {
+   "id": "ordonnances/1996/1996-23-portant-organisation-des-chambres-de-la-cour",
+   "kind": "ordonnance",
+   "number": "1996-23",
+   "date": "1996-09-23",
+   "title": "Ordonnance n° 1996-23 du 23 septembre 1996 Portant Organisation des Chambres de la Cour Suprême",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1996-23/download",
+   "text_layer": "publisher-ocr",
+   "articles": 5
+  },
+  {
+   "id": "ordonnances/1996/1996-30-mettant-fin-aux-fonctions-de-monsieur-agbomenou",
+   "kind": "ordonnance",
+   "number": "1996-30",
+   "date": "1996-12-31",
+   "title": "Ordonnance n° 1996-30 du 31 décembre 1996 Mettant fin aux fonctions de Monsieur AGBOMENOU MARCELLIN en qualité de Chef du Service du Protocole de la Cour Suprême",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1996-30/download",
+   "text_layer": "publisher-ocr",
+   "articles": 0
+  },
+  {
+   "id": "ordonnances/1996/1996-31-completant-les-dispositions-de-l-ordonnance-n91",
+   "kind": "ordonnance",
+   "number": "1996-31",
+   "date": "1996-12-31",
+   "title": "Ordonnance n° 1996-31 du 31 décembre 1996 Complétant les dispositions de l'Ordonnance N°91-10/PCS/CAB du 14 Août 1991 fixant les avantages en nature et en espèces alloués aux magistrats et au personnel de la Cour Suprême",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1996-31/download",
+   "text_layer": "publisher-ocr",
+   "articles": 3
+  },
+  {
+   "id": "ordonnances/1997/1997-10-portant-nomination-de-madame-aitchedji-olga-irene",
+   "kind": "ordonnance",
+   "number": "1997-10",
+   "date": "1997-03-04",
+   "title": "Ordonnance n° 1997-10 du 4 mars 1997 portant nomination de Madame AÏTCHEDJI OLGA Irène en qualité de greffier à la chambre administrative de la Cour Suprême",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1997-10/download",
+   "text_layer": "publisher-ocr",
+   "articles": 3
+  },
+  {
+   "id": "ordonnances/1997/1997-11-portant-nomination-de-mr-tindo-denis-en-qualite-d",
+   "kind": "ordonnance",
+   "number": "1997-11",
+   "date": "1997-03-04",
+   "title": "Ordonnance n° 1997-11 du 4 mars 1997 portant nomination de Mr TINDO Dénis en qualité d'assistant à la chambre Judiciaire de la Cour Suprême",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1997-11/download",
+   "text_layer": "publisher-ocr",
+   "articles": 1
+  },
+  {
+   "id": "ordonnances/1997/1997-12-portant-nomination-de-mr-gbaguidi-a-noel-en",
+   "kind": "ordonnance",
+   "number": "1997-12",
+   "date": "1997-03-04",
+   "title": "Ordonnance n° 1997-12 du 4 mars 1997 portant nomination de Mr GBAGUIDI A. Noël en qualité d'assistant à la chambre judiciaire de la Cour Suprême",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1997-12/download",
+   "text_layer": "publisher-ocr",
+   "articles": 2
+  },
+  {
+   "id": "ordonnances/1997/1997-20-mettant-fin-aux-fonctions-du-gendarme-de-premiere",
+   "kind": "ordonnance",
+   "number": "1997-20",
+   "date": "1997-06-20",
+   "title": "Ordonnance n° 1997-20 du 20 juin 1997 mettant fin aux fonctions du gendarme de première classe AVOCEVOU Lucien en qualité de garde de Corps du Président de la Cour Suprême",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1997-20/download",
+   "text_layer": "publisher-ocr",
+   "articles": 1
+  },
+  {
+   "id": "ordonnances/1997/1997-22-portant-nomination-du-marechal-des-logis-sodji",
+   "kind": "ordonnance",
+   "number": "1997-22",
+   "date": "1997-06-20",
+   "title": "Ordonnance n° 1997-22 du 20 juin 1997 portant nomination du MARECHAL DES LOGIS SODJI EZECHIEL en qualité de garde de Corps du Président de la Cour Suprême",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1997-22/download",
+   "text_layer": "publisher-ocr",
+   "articles": 2
+  },
+  {
+   "id": "ordonnances/1997/1997-28-mettant-fin-aux-fonctions-de-monsieur-adjovi",
+   "kind": "ordonnance",
+   "number": "1997-28",
+   "date": "1997-09-17",
+   "title": "Ordonnance n° 1997-28 du 17 septembre 1997 mettant fin aux fonctions de Monsieur ADJOVI Gontran Prince en qualité de Chef de la cellule Informatique de la Cour Suprême",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1997-28/download",
+   "text_layer": "publisher-ocr",
+   "articles": 2
+  },
+  {
+   "id": "ordonnances/1997/1997-30-portant-nomination-de-mr-bocossa-cakpo-felix-en",
+   "kind": "ordonnance",
+   "number": "1997-30",
+   "date": "1997-09-17",
+   "title": "Ordonnance n° 1997-30 du 17 septembre 1997 portant nomination de Mr BOCOSSA Cakpo Félix en qualité de Planton du Procureur Général près la Cour Suprême",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1997-30/download",
+   "text_layer": "publisher-ocr",
+   "articles": 3
+  },
+  {
+   "id": "ordonnances/1998/1998-07-portant-nomination-de-monsieur-zinsou-tohouede",
+   "kind": "ordonnance",
+   "number": "1998-07",
+   "date": "1998-11-20",
+   "title": "Ordonnance n° 1998-07 du 20 novembre 1998 Portant Nomination de Monsieur ZINSOU Tohouèdé Jean en qualité de Chauffeur du Directeur de Cabinet du Président de la Cour Suprême",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1998-07/download",
+   "text_layer": "publisher-ocr",
+   "articles": 3
+  },
+  {
+   "id": "ordonnances/1998/1998-08-portant-nomination-de-monsieur-gbaguidi-a-noel-en",
+   "kind": "ordonnance",
+   "number": "1998-08",
+   "date": "1998-12-03",
+   "title": "Ordonnance n° 1998-08 du 3 décembre 1998 Portant Nomination de Monsieur GBAGUIDI A. Noêl en qualité de Directeur de Documentation et d'Etudes de la Cour Suprême",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1998-8/download",
+   "text_layer": "publisher-ocr",
+   "articles": 1
+  },
+  {
+   "id": "ordonnances/1998/1998-09-portant-nomination-de-monsieur-fifatin-marie",
+   "kind": "ordonnance",
+   "number": "1998-09",
+   "date": "1998-12-03",
+   "title": "Ordonnance n° 1998-09 du 3 décembre 1998 Portant Nomination de Monsieur FIFATIN Marie Etienne, en qualité d'Assistant à la Chambre Judiciaire de la Cour Suprême",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1998-09/download",
+   "text_layer": "publisher-ocr",
+   "articles": 3
+  },
+  {
+   "id": "ordonnances/1998/1998-10-portant-nomination-de-monsieur-sossou-marcellin",
+   "kind": "ordonnance",
+   "number": "1998-10",
+   "date": "1998-12-03",
+   "title": "Ordonnance n° 1998-10 du 3 décembre 1998 Portant Nomination de Monsieur SOSSOU Marcellin Alexis, en qualité de Chargé de Mission du Président de la Cour Suprême",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1998-010/download",
+   "text_layer": "publisher-ocr",
+   "articles": 1
+  },
+  {
+   "id": "ordonnances/1999/1999-19-portant-nomination-de-monsieur-adossou-d-victor",
+   "kind": "ordonnance",
+   "number": "1999-19",
+   "date": "1999-10-25",
+   "title": "Ordonnance n° 1999-19 du 25 octobre 1999 PORTANT NOMINATION DE MONSIEUR ADOSSOU D. VICTOR MAGISTRAT, EN QUALITÉ DE CHEF DU SERVICE DU PROTOCOLE PAR INTÉRIM DU PRÉSIDENT DE LA COUR SUPRÊME",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-1999-019/download",
+   "text_layer": "publisher-ocr",
+   "articles": 1
+  },
+  {
+   "id": "ordonnances/2000/2000-01-portant-loi-de-finances-pour-la-gestion-2000",
+   "kind": "ordonnance",
+   "number": "2000-01",
+   "date": "2000-01-02",
+   "title": "Ordonnance n° 2000-01 du 2 janvier 2000 Portant Loi de Finances pour la Gestion 2000",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-2000-1/download",
+   "text_layer": "publisher-ocr",
+   "articles": 17
+  },
+  {
+   "id": "ordonnances/2000/2000-02-portant-programme-d-investissements-publics-pour",
+   "kind": "ordonnance",
+   "number": "2000-02",
+   "date": "2000-01-02",
+   "title": "Ordonnance n° 2000-02 du 2 janvier 2000 portant Programme d’Investissements Publics pour la gestion 2000",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-2000-2/download",
+   "text_layer": "publisher-ocr",
+   "articles": 7
+  },
+  {
+   "id": "ordonnances/2000/2000-03-portant-loi-de-finances-pour-la-gestion-2000",
+   "kind": "ordonnance",
+   "number": "2000-03",
+   "date": "2000-11-29",
+   "title": "Ordonnance n° 2000-03 du 29 novembre 2000 portant Loi de Finances pour la Gestion 2000",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-2000-3/download",
+   "text_layer": "publisher-ocr",
+   "articles": 27
+  },
+  {
+   "id": "ordonnances/2002/2002-02-portant-principes-fondamentaux-du-regime-des",
+   "kind": "ordonnance",
+   "number": "2002-02",
+   "date": "2002-01-31",
+   "title": "Ordonnance n° 2002-02 du 31 janvier 2002 portant principes fondamentaux du régime des Télécommunications en République du Bénin",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-2002-2/download",
+   "text_layer": "publisher-ocr",
+   "articles": 18
+  },
+  {
+   "id": "ordonnances/2008/2008-01-portant-autorisation-de-ratification-de-l-accord",
+   "kind": "ordonnance",
+   "number": "2008-01",
+   "date": "2008-07-28",
+   "title": "Ordonnance n° 2008-01 du 28 juillet 2008 Portant autorisation de ratification de l'Accord de prêt signé le 05 septembre 2007, entre le Fonds de l'OPEP pour le Développement international (OFID) et la République du Bénin dans le cadre du financement partiel du Projet Protection côtière à l'Est de Cotonou",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-2008-01/download",
+   "text_layer": "publisher-ocr",
+   "articles": 1
+  },
+  {
+   "id": "ordonnances/2008/2008-02-portant-autorisation-de-ratification-de-i-accord",
+   "kind": "ordonnance",
+   "number": "2008-02",
+   "date": "2008-07-28",
+   "title": "Ordonnance n° 2008-02 du 28 juillet 2008 Portant autorisation de ratification de I'Accord de prêt signé à Cotonou le 17 décembre 2OO7 , entre le Fonds Koweitien pour le Développement Economique Arabe et la République du Bénin, dans le cadre du financement partiel du Projet de Protection côtière à l'Est de Cotonou",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-2008-02/download",
+   "text_layer": "publisher-ocr",
+   "articles": 2
+  },
+  {
+   "id": "ordonnances/2008/2008-03-portant-autorisation-de-ratification-de-l-accord",
+   "kind": "ordonnance",
+   "number": "2008-03",
+   "date": "2008-07-28",
+   "title": "Ordonnance n° 2008-03 du 28 juillet 2008 Portant autorisation de ratification de l'Accord de prêt signé à Cotonou le 28 juin 2008, entre le Fonds Saoudien de Développement et la République du Bénin dans le cadre du financement partiel du Projet de Protection dela côte de Cotonou",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-2008-3/download",
+   "text_layer": "publisher-ocr",
+   "articles": 2
+  },
+  {
+   "id": "ordonnances/2010/2010-01-portant-autorisation-de-ratification-de-l-accord",
+   "kind": "ordonnance",
+   "number": "2010-01",
+   "date": "2010-06-25",
+   "title": "Ordonnance n° 2010-01 du 25 juin 2010 Portant autorisation de ratification de l'Accord de prêt signé, le 06 août 2009, entre la République du Bénin et la Banque Ouest Africaine de Développement (BOAD), dans le cadre du financement partiel du projet de sécurité alimentaire par I'aménagement des bas-fonds et le renforcement des capacités de stockage en République du Bénin",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-2010-1-bis/download",
+   "text_layer": "publisher-ocr",
+   "articles": 2
+  },
+  {
+   "id": "ordonnances/2010/2010-02-portant-autorisation-de-ratification-de-l-accord",
+   "kind": "ordonnance",
+   "number": "2010-02",
+   "date": "2010-06-25",
+   "title": "Ordonnance n° 2010-02 du 25 juin 2010 Portant autorisation de ratification de l'Accord de financement signé, le 21 juillet 2009 à Rome en Italie, entre la République du Bénin et le Fonds international de Développement Agricole (FIDA) dans le cadre du Projet d'Appui à la Croissance Economique Rurale (PACER)",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-2010-02/download",
+   "text_layer": "publisher-ocr",
+   "articles": 2
+  },
+  {
+   "id": "ordonnances/2010/2010-03-portant-autorisation-de-ratification-de-i-accord",
+   "kind": "ordonnance",
+   "number": "2010-03",
+   "date": "2010-06-25",
+   "title": "Ordonnance n° 2010-03 du 25 juin 2010 Portant autorisation de ratification de I'Accord de financement signé, le 24 avril 2010, à DJEDDAH en Arabie Saoudite entre la République du Bénin et la Banque Islamique de Développement (BlD), dans le cadre du financement partiel du projet intégré d'Appui à la Microfinance en République du Bénin",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-2010-3/download",
+   "text_layer": "publisher-ocr",
+   "articles": 1
+  },
+  {
+   "id": "ordonnances/2010/2010-04-portant-autorisation-de-ratification-de-l-accord",
+   "kind": "ordonnance",
+   "number": "2010-04",
+   "date": "2010-06-25",
+   "title": "Ordonnance n° 2010-04 du 25 juin 2010 Portant autorisation de ratification de l'Accord de prêt signé, le 23 novembre 2009, entre la République du Bénin et la Banque Arabe pour le Développement Economique en Afrique (BADEA), dans le cadre du financement de la ligne de crédit pour le Fonds National de la Microfinance",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-2010-04/download",
+   "text_layer": "publisher-ocr",
+   "articles": 2
+  },
+  {
+   "id": "ordonnances/2010/2010-28-portant-nomination-de-monsieur-stanislas-jean",
+   "kind": "ordonnance",
+   "number": "2010-28",
+   "date": "2010-06-09",
+   "title": "Ordonnance n° 2010-28 du 9 juin 2010 PORTANT NOMINATION DE MONSIEUR STANISLAS JEAN FELIHO EN QUALITE D'ARCHIVISTE A LA CHAMBRE DES COMPTES DE LA COUR SUPRÊME",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-2010-028/download",
+   "text_layer": "publisher-ocr",
+   "articles": 3
+  },
+  {
+   "id": "ordonnances/2010/2010-52-portant-nomination-de-monsieur-koto-yerima-s",
+   "kind": "ordonnance",
+   "number": "2010-52",
+   "date": "2010-08-31",
+   "title": "Ordonnance n° 2010-52 du 31 août 2010 PORTANT NOMINATION DE MONSIEUR KOTO YERIMA S. MOUHAMADOU EN QUALITÉ DE VÉRIFICATEUR A LA CHAMBRE DES COMPTES DE LA COUR SUPRÊME",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-2010-052/download",
+   "text_layer": "publisher-ocr",
+   "articles": 3
+  },
+  {
+   "id": "ordonnances/2010/2010-54-completant-l-ordonnance-n91-10-pcs-cab-du-14-aout",
+   "kind": "ordonnance",
+   "number": "2010-54",
+   "date": "2010-09-03",
+   "title": "Ordonnance n° 2010-54 du 3 septembre 2010 complétant l'ordonnance N°91-10/PCS/CAB du 14 Août 1991 fixant les avantages en nature et en espèces alloués aux Magistrats et au Personnel de la Cour Suprême",
+   "source": "https://sgg.gouv.bj/doc/ordonnance-2010-54/download",
+   "text_layer": "publisher-ocr",
+   "articles": 1
   }
  ]
 }
